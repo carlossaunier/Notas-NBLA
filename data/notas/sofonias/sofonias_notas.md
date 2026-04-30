@@ -1,0 +1,216 @@
+# Notas de Estudio - Sofonías
+
+### Sofonías 1:1
+Encabezado. Ver Introducción: Título y Autor; Fecha y Ocasión. Palabra del Señor. La frase se refiere a la revelación recibida del Señor y comunicada a través de un profeta.
+
+---
+
+### Sofonías 1:2
+El profeta comienza con un anuncio de juicio universal (vv. 2, 3), y rápidamente lo particulariza contra Judá y Jerusalén (v. 4). Se denuncian tres pecados específicos: la idolatría (v. 4), el sincretismo (v. 5) y la indiferencia religiosa (v. 6). SOFONIAS 1:2
+
+---
+
+### Sofonías 1:3
+barrerá a los hombres y a las bestias. Cf. Mateo 13:41, 42. El juicio venidero se compara con el del diluvio del Génesis mediante el uso de las frases “hombres y bestias” y “aves del cielo” (cf. Génesis 6:7; 7:23). Esta profecía se consumará al final de la historia (2 Pedro 3:3–7).
+
+---
+
+### Sofonías 1:4
+Extiende mi mano. Esta frase se refiere al poder de Dios desatado contra sus antagonistas (2:13; Éx. 3:20; Dt. 4:34; Is. 5:25). Restos de Baal. Todo lo que quede del culto a Baal será destruido. Esta declaración puede significar que ya se está produciendo una renovación religiosa en la era de Sofonías y que el culto a Baal está en decadencia.
+
+---
+
+### Sofonías 1:5
+los que se inclinan... al ejército de los cielos. La frase “ejército de los cielos” se relaciona frecuentemente con Baal o Asera (2 R 17:16; 21:3, 5; 23:4, 5; 2 Cr 33:3, 5). El culto a Baal y a las estrellas eran pecados que habían contribuido a la caída del reino del norte en el siglo VIII a. C. (2 R 17:16). Al parecer, se erigían altares sobre los techos de las casas (2 R 23:12; Jer 19:13). Milcom o “Moloc”. La adoración de este dios amonita, que implica la horrible práctica del sacrificio de niños, está estrictamente prohibida (Levítico 18:21 nota; 20:2–5; cf. 1 Reyes 11:5; 2 Reyes 23:10; Jeremías 32:35).
+
+---
+
+### Sofonías 1:6
+Buscad al SEÑOR. Ver 2:3.
+
+---
+
+### Sofonías 1:7
+Callad. Véase Sal. 46:10; Hab. 2:20; Zac. 2:13. El profeta hace un llamado a la sumisión confiada al Dios soberano del pacto. El mandato de “callar” a menudo está vinculado con estar en la presencia del Dios santo. El día del Señor. Este término aparece con frecuencia en los profetas del Antiguo Testamento. Puede referirse a cualquier momento específico en el que el Guerrero Divino, el Señor de los Ejércitos, se muestra glorioso en la victoria: contra Babilonia a través de los medos (Is. 13:1–14:27), contra Egipto a través de Babilonia (Ez. 30:2–4), o contra Israel a través de Asiria (Is. 10:5, 6, 20, 24). Este día de la venganza del Señor contra los malvados también se describe como el tiempo de la liberación de Israel (Is. 34:2–35:10) cuando el Señor derrota decisivamente a toda la oposición de Israel (2:2, 9; 3:8–20; Jl. 3:14–16). También es el día del juicio final (Amós 5:18–20). Cf. notas sobre Ez. 7:7 y Amós 5:18. El Señor ha preparado un sacrificio. El juicio inminente que viene sobre Judá se compara con los sacrificios. La nación es un cordero sacrificial (Is. 34:6; Jer. 10:13). 46:10; Ezequiel 39:17–19). Consagró a sus huéspedes. Los huéspedes invitados pueden ser las naciones que sirven como instrumento divino de juicio (Is. 10:5-10; Hab. 1:6). La consagración de los huéspedes es necesaria para mantener la santidad del Señor (Éx. 19:10; 24:9-11), y recuerda elementos del ritual del pacto en el monte Sinaí (vv. 15, 16 nota).
+
+---
+
+### Sofonías 1:8
+Los funcionarios. Los hijos del rey y otros funcionarios reales. Su falta de compromiso con el pacto se evidencia por la adopción de costumbres y vestimentas extranjeras, una señal de deslealtad religiosa. VOLVER SOFONIAS 1:8
+
+---
+
+### Sofonías 1:9
+El umbral. Muchos interpretan este versículo como una referencia a una mala práctica religiosa. Identifican el umbral como el de un santuario pagano y consideran que la alusión se refiere a una práctica religiosa filistea que se está imitando (1 Sam. 5:5), donde “amo” se refiere a su dios (nota del texto). Otra posibilidad es que se trate de una injusticia social. La expresión puede indicar la rapidez con la que los sirvientes sin escrúpulos entran en las casas para apoderarse de todo lo que pueden y llevárselo a sus amos.
+
+---
+
+### Sofonías 1:10
+Puerta del Pescado... Segundo Trimestre. Clamor De todas partes de la ciudad salen gritos de angustia que representan la magnitud del mal y del juicio. La Puerta del Pescado está en el lado norte de la ciudad (2 Cr. 33:14) y el Segundo Barrio está al este del templo (2 R. 22:14). SOFONIAS 1:10
+
+---
+
+### Sofonías 1:11
+El mortero. Posiblemente el nombre que se le da a una depresión en el valle de Tiropeón que corre de norte a sur a través del centro de Jerusalén. Este es un distrito donde se encuentran mercados en los días de Sofonías. La clase de comerciantes más adinerados es señalada por sus prácticas comerciales codiciosas y corruptas (Amós 8:4-6).
+
+---
+
+### Sofonías 1:12
+“Yo buscaré”. La investigación del Señor se lleva a cabo antes de la destrucción. El Señor hará una investigación exhaustiva, y no habrá escapatoria de este escrutinio divino (Salmo 139; Amós 9:1–4). Los que son complacientes. Véase la nota del texto. El profeta describe una imagen verbal del proceso de elaboración del vino. Como el sedimento del vino, que se asienta y se espesa si no se toca, los ciudadanos de Jerusalén se han asentado (confirmado) en su indiferencia hacia Dios. Debido a que son completamente complacientes con Dios, lo consideran moralmente indiferente hacia el bien o el mal y, por lo tanto, inactivo en los asuntos humanos.
+
+---
+
+### Sofonías 1:13
+No habitarán allí. La maldición del pacto quebrantado frustra los esfuerzos de quienes desafían flagrantemente las normas del Señor (Deut. 28:30; Amós 5:11; Miqueas 6:15).
+
+---
+
+### Sofonías 1:14
+Sofonías profundiza más sobre el día del Señor, preparando el escenario para su fuerte súplica de arrepentimiento en 2:1–3. El estilo staccato del profeta enfatiza la velocidad con la que se acerca el día y la naturaleza devastadora del juicio que trae. 1:14 Allí clama el valiente; aquel día infundirá terror en el soldado, en el valiente hombre de guerra.
+
+---
+
+### Sofonías 1:15
+El día del Señor se presenta en imágenes aterradoras que recuerdan la teofanía que acompañó el establecimiento del pacto mosaico en el monte Sinaí (Éxodo 19:16), cuyos términos Judá había quebrantado. Algunos sugieren que el “día del Señor” puede considerarse aquí como el día de su pacto, cuando el Señor establece su pacto o hace cumplir sus disposiciones.
+
+---
+
+### Sofonías 1:17
+La profecía se amplía para anticipar el día final y devorador del Señor que afectará “toda la tierra” (v. 18). Andarán como ciegos. Una de las maldiciones del pacto que se encuentran en Deuteronomio 28:28, 29. Han pecado. La razón por la cual el Señor juzga a Judá se expresa en términos generales. Véase la nota sobre 3:1–5.
+
+---
+
+### Sofonías 1:18
+Ni su plata ni su oro. Véase Salmo 49:6–9; Proverbios 11:4; Mateo 16:26; Lucas 12:13–21. Los celos. Véase Éxodo 20:5; 34:14; Deuteronomio 4:24. Los celos de Dios presuponen su amor de pacto. Él ha redimido a un pueblo para convertirlo en su “propiedad especial” (Éxodo 19:5). El amor de pacto de Dios exige la lealtad absoluta de su pueblo.
+
+---
+
+### Sofonías 2:1
+Como representantes del Señor para hacer cumplir el pacto, los profetas del AT a menudo advertían al pueblo de Dios (Is. 1:16–20; 55:1–6; Os. 2:4, 5; 4:15; Amós 4:12; 5:5, 6; Miq. 6:8). 2:1 Reúnanse. Están llamados a reunirse para escuchar (cf. Is. 34:1; Jer. 4:5; Jl. 2:15, 16; 3:11). El llamado a escuchar estas severas advertencias es en sí mismo un acto de gracia divina, pues las advertencias están diseñadas para provocar el arrepentimiento. Sin vergüenza, espiritualmente insensibles y ya no capaces de evaluar su propia conducta de acuerdo con los estándares divinos.
+
+---
+
+### Sofonías 2:3
+Buscad al SEÑOR . Véase 1:6 e Isaías 55:6, 7. Aquí esta búsqueda del Señor se define además como “buscad la justicia; buscad la humildad”. Un patrón similar es evidente en Amós, donde el profeta ordena: “Buscad al Señor”, y más adelante: “Buscad el bien, y no el mal” (Amós 5:6, 14). Tal vez estéis escondidos. Las palabras tentativas del profeta expresan aquí tanto su esperanza de que el remanente “humilde” (v. 3) encuentre refugio de la ira del Señor (cf. Is. 55:7) como su pesimismo de que la “nación desvergonzada” (v. 1) realmente se arrepienta. Cf. Amós 5:15.
+
+---
+
+### Sofonías 2:4
+Esta sección consta de cuatro profecías de juicio dirigidas contra las naciones extranjeras. Dichos mensajes tienen el propósito de asegurar al propio pueblo de Dios que Sus propósitos soberanos se extienden sobre sus enemigos (1:5, 6) y que estas naciones también son moralmente responsables de sus acciones (Amós 1:3–2:3; Miqueas 1:2). 2:4–7 Esta profecía está dirigida contra Filistea, un territorio al suroeste de Judá, en la costa mediterránea. 2:4 Como en Amós 1:6–8, sólo se mencionan cuatro de las cinco ciudades principales de los filisteos (1 Sam. 6:17). Es posible que la quinta, Gat, ya no existiera cuando Sofonías estaba ministrando.
+
+---
+
+### Sofonías 2:5
+Ay. La misma palabra de condenación pronunciada posteriormente sobre Jerusalén (3:1). A menudo introduce una profecía de juicio. Cereteos. Término que designaba a un pueblo asociado con los filisteos que se originó en Creta (2 Sam. 8:18; Eze. 25:16).
+
+---
+
+### Sofonías 2:7
+El juicio de las naciones estará acompañado por la preservación por parte de Dios de un remanente de Su pueblo (Deut. 32:27). Nota) que han sobrevivido a la devastación. Otras referencias en Sofonías al remanente aparecen en los versículos 9 y 3:9-12. restaurar sus fortunas. Esta frase ampliamente utilizada se refiere a la futura salvación de Israel más allá del juicio (Deut. 30:3; Sal. 14:7; Jer. 30:3, 18; 32:44; Amós 9:14). Se refiere en algunos casos al regreso físico de los exiliados, pero en otros casos a una restauración más general de las fortunas (por ejemplo, Job 42:10). SOFONIAS 2:7
+
+---
+
+### Sofonías 2
+Moab y ... el Amonitas . Estas naciones ocupan territorio al este de Judá, al otro lado del Mar Muerto, y son enemigos empedernidos del pueblo de Dios durante la era del Antiguo Testamento. Estos versículos predicen la destrucción de la otrora poderosa Asiria, ubicada al noreste de Judá. A lo largo del reinado de Josías, Judá fue emergiendo de la dominación de los asirios en retirada. 2:13 Destruir a Asiria. Nínive, la capital de Asiria, cayó ante los babilonios y los medos en el año 612 a. C. Este versículo indica que Sofonías profetizó antes de esa fecha (Introducción: Fecha y ocasión).
+
+---
+
+### Sofonías 2:9
+El Dios de Israel, es decir, del pueblo del pacto, ahora representado por Judá (3:13-15), ya que el reino del norte fue exiliado un siglo antes del ministerio de Sofonías. Sodoma... Gomorra. Estas ciudades antiguas simbolizan el pecado y sirven como tipos del juicio final de Dios sobre los pecadores (cf. Génesis 18:20 nota; Isaías 1:9; Amós 4:11; Mateo 12:1-13). 10:5; 2 Ped. 2:6). Irónicamente, tanto Moab como Amón descienden de Lot y sus hijas, a quienes Dios rescató al destruir Sodoma y Gomorra (Gén. 19:15–38). El resto de mi pueblo los saqueará. Véase v. 7.
+
+---
+
+### Sofonías 2:11
+se inclinarán... todas las tierras de los naciones. Véase 3:9, 10; Sal. 72:8–11; Is. 56:67.
+
+---
+
+### Sofonías 2:12
+Los etíopes. Su tierra se encuentra al sur de Egipto y se menciona aquí para indicar el dominio universal del Señor. Mi espada. Una referencia al uso que el Señor hace de una potencia extranjera (posiblemente Babilonia; cf. Ezequiel 30:4, 5) para abrumarlos.
+
+---
+
+### Sofonías 2:15
+Yo soy... nadie más. Esta jactancia está expresada en un lenguaje similar al que sólo el Señor soberano puede usar con justicia (Deut. 4:39; Is. 45:5, 6; 47:10). Tal autodeificación termina en ruina, y aquellos asirios que se jactaron se convierten en objetos de burla.
+
+---
+
+### Sofonías 3:1
+Las referencias que se hacen aquí a los profetas, sacerdotes, el santuario y la ley indican que el profeta se está dirigiendo a Jerusalén. La acusación general de 1:17 ahora se vuelve específica. Los pecados de Jerusalén son particularmente atroces porque se cometen contra el Dios justo del pacto que se ha revelado misericordiosamente a su pueblo (v. 5; Amós 2:4, 10-12; 3:2). 3:1 ¡Ay de ella! Véase 2:5.
+
+---
+
+### Sofonías 3:2
+No escucha ninguna voz. El pueblo ha ignorado la voz de Dios revelada en la ley (Deut. 31:9-13), a través de la profetas (Jer. 7:23–28; Hageo 1:12), y por medio de los sabios (Prov. 1:8). No acepta corrección ( véase v. 7). No recibir corrección conduce a la muerte (Prov. 5:23), pero estar abierto a ella conduce a la vida (Prov. 6:23; Jer. 2:30; 5:3; 7:28; 32:33; 35:13; Sal. 50:17). acercarse. El verbo Hb. aquí significa “acercarse a Dios apropiadamente en la adoración” (cf. Lev. 10:3). La adoración debe venir del corazón, no sólo de la boca (cf. Is. 29:13; Jn. 4:24). Jerusalén no ha aprovechado las oportunidades que posee gracias a la presencia del Señor en el templo “dentro de ella” (v. 5). Sofonías 3:2
+
+---
+
+### Sofonías 3:3
+La decadencia de la nación se ve acelerada por un liderazgo corrupto, de los cuales se nombran aquí cuatro grupos principales (compara con Miqueas 3:9-11). No se menciona al rey, lo que puede reflejar el carácter reformador del gobierno de Josías. 3:3 funcionarios dentro de ella. Véase la nota sobre el v. 5. Leones rugientes. Las imágenes del león y el lobo inmundos que aparecen aquí describen la naturaleza feroz y depredadora de los funcionarios gubernamentales corruptos. En lugar de cumplir con sus funciones adecuadas de proteger y dar estabilidad a la sociedad, han estado devorando a la gente y aprovechándose de ella.
+
+---
+
+### Sofonías 3:5
+dentro de ella. Sofonías contrasta la presencia del Señor justo dentro de Jerusalén y la presencia de un liderazgo corrupto e injusto dentro de ella (v. 3). La esencia del compromiso de pacto de Dios es la promesa de Su presencia con Su pueblo (nota Éx. 29:42–46; Núm. 14:14; Isaías 43:2). Aquí, la presencia de Dios amenaza con juicio (Os. 11:9), pero la misma frase en 3:17 significa salvación.
+
+---
+
+### Sofonías 3:6
+La atención se desplaza de Jerusalén a las naciones circundantes. El profeta menciona el juicio previo de Dios sobre las naciones (v. 6), que debería ser una lección para Jerusalén (v. 7), antes de pasar al juicio futuro que aguarda (v. 8).
+
+---
+
+### Sofonías 3:7
+aceptarás la corrección. Véase el versículo 2.
+
+---
+
+### Sofonías 3:8
+espérame. Dirigido a los “los humildes de la tierra” (v. 2:3). El juicio del Señor llegará de una manera que anticipa el día final del Señor.
+
+---
+
+### Sofonías 3:9
+El dramático cambio: el juicio es el preludio de la restauración y purificación tanto en Israel como entre las naciones (vv. 9, 12, 13). En un himno de alabanza final (3:14-20), el profeta canta acerca del futuro reinado del Señor, su victoria sobre sus enemigos y su amor por su pueblo y su presencia con él. La iglesia puede cantar este cántico ahora en celebración de la victoria de Cristo en la cruz (Col. 2:15) y en anticipación de su triunfo cuando regrese (2 Tes. 1:5-10). 3:9 cambio... un habla pura. Purificar los labios es o bien limpiar del pecado en general (Is. 6:5) o bien quitar los nombres de dioses ajenos de los labios de un adorador (Os. 2:17). de los pueblos. También los gentiles invocarán su nombre (Is. 52:15; 65:1; 66:18). todos ellos invocarán el nombre de Jehová . En contraste con los idólatras de 1:5, 6. Véase Génesis 4:26; 1 Reyes 18:24; Jeremías 10:25; Joel 2:32; Hechos 2:21; Romanos 1:11. 10:12, 13.
+
+---
+
+### Sofonías 3:11
+Los que se regocijan con orgullo. Véase Isaías 2:12– 18.
+
+---
+
+### Sofonías 3:12
+Los humildes y los humildes se contrastan con los orgullosos y altivos del versículo 11.
+
+---
+
+### Sofonías 3:13
+los que quedan. Ver nota sobre 2:7. No hará injusticia. El remanente será como Dios. Se usan palabras idénticas para referirse al Señor en el versículo 5. Una meta primordial de la salvación es la conformidad cada vez mayor a la imagen de Dios (Mateo 5:48; 1 Pedro 1:15, 16; 2 Pedro 1:3, 4). y no digan mentiras. En contraste con los idólatras engañosos de 1:9. pastar y echarse. Frase profética común (cf. Is. 49:9; Jer. 50:19; Eze. 34:14; Miqueas 7:14) que retrata la seguridad que llega a las ovejas del Señor al confiar en Él y reconocer su realeza (v. 15). No habrá quien los espante. Véase Miqueas 4:4.
+
+---
+
+### Sofonías 3:14
+hija de Sion. Esta La personificación de Jerusalén se basa en la práctica de los poetas de personificar lugares y objetos en términos de género gramatical. La palabra “ciudad” en hebreo es femenina, y el profeta habla de Sión como “hija”.
+
+---
+
+### Sofonías 3:15
+juicios... vuestros enemigos. La base del regocijo en el versículo 14 es que los juicios contra el pueblo de Dios son eliminados y los enemigos que lo amenazan son vencidos. Esta profecía encuentra su cumplimiento final en Jesucristo, quien satisfizo el juicio de Dios contra el pecado y venció a los enemigos de Dios mediante Su muerte en la cruz (Rom. 3:23–25; Col. 2:15 nota). El Rey de Israel... en medio de vosotros. La promesa de que Dios morará en medio de su pueblo apunta hacia Cristo, el Rey de Israel (Juan 1:49) y la gloria encarnada de Dios (Éxodo 26 y notas de Juan 1:14).
+
+---
+
+### Sofonías 3:17
+se gozará sobre ti con gozo, alegría. Este deleite se fundamenta en el carácter de Dios, quien “se deleita en la misericordia” (Miqueas 7:18). Él te calmará con su amor. La frase traducida como “te calmará” también puede traducirse como “está tranquilo” o “descansa”. En el contexto más amplio, Dios ha sido revelado como el Guerrero Divino que es “poderoso para salvar”. El antiguo grito de guerra (1:14) ahora se acalló por la victoria y la relación amorosa entre Dios y Su pueblo. La obra purificadora y transformadora de la gracia del Señor crea un pueblo renovado que reconoce Su gobierno y confía en Su nombre (v. 12). DE
+
+---
+
+### Sofonías 3:18
+Haré. Los verbos repetidos en primera persona enfatizan la iniciativa del Señor y su determinación soberana de llevar a cabo esta restauración.
+
+---
+
+### Sofonías 3:19
+alabanza y renombre. Véase v. 20. La frase se remonta a Deut. 26:18, 19, donde Israel como el pueblo especial del Señor tiene el privilegio de representarlo y ser el medio tangible por el cual se le da alabanza, honor y gloria al Señor (cf. Is. 43:7; Jer. 13:11; 33:9). Pablo ve a la iglesia en este papel (Tito 2:14), al igual que Pedro (1 Ped. 2:9-12). SOFONIAS 3:19 NOTAS AL PIE DE PÁGINA DE SOFONIAS 1 1 O piedras de tropiezo (es decir, ídolos) 1 O de su Señor 2 O todo el pueblo de Canaán 3 Los hebreos se están espesando con las heces [de su vino] NOTAS AL PIE DE PÁGINA DE SOFONIAS 2 1 Hebreo da a luz 2 O que ejecutan su juicio 1 O cuevas 1 Bestias hebreas de cada nación 2 La identidad de los animales representados como búho y erizo es incierta NOTAS AL PIE DE PÁGINA SOBRE SOFONIAS 3 1 Hebreo ella 2 Hebreo ella 1 El significado del hebreo es incierto El LIBRO de Hageo TÍTULO Y AUTOR Sabemos poco acerca del profeta Hageo, pues sólo leemos acerca de él en los libros de Hageo y Esdras, dos fuentes que nos dan sólo una cantidad limitada de información sobre el ministerio del profeta. Su nombre podría darnos algunos datos biográficos. Hageo significa “festivo”, lo que quizá indica que el profeta nació durante una fiesta. En cualquier caso, sí sabemos que los profetas Hageo y Zacarías cooperaron para alentar a los judíos a reconstruir el templo de Jerusalén después de su regreso en el siglo VI a. C. de su exilio en Babilonia (Esdras 5:1; 6:14). FECHA Y OCASIÓN Hageo y Zacarías comparten un pasado histórico común. Antecedentes: ambos habían comenzado su ministerio en “el segundo año del rey Darío” (520 a. C.). En ese momento, los judíos habían regresado a Palestina bajo el edicto del rey persa Ciro en 538 a. C. y habían comenzado a reconstruir el templo. Oposición de el afuera y El desánimo interno les hizo abandonar el proyecto que duraría unos dieciséis o diecisiete años (Esdras 4:1–4). Cuando Hageo y Zacarías comenzaron su obra en el año 520 a. C., Otra oposición vino de Tattenai, el persa. Gobernador de Trans-Éufrates, que incluía Palestina (Esdras 5). Pero Darío I (Histaspes), que gobernó Persia desde 522 a 486 a. C., reeditó el edicto de Ciro para que el templo fuera reconstruido en cuatro años (Esdras 6:13-15). El segundo templo fue dedicado el 12 de marzo de 516 a. C. En cuanto a los mensajes de Hageo en sí, aprendemos de su libro que fueron entregados entre agosto y Diciembre del 520 a.C. GÉNERO Y CARACTERÍSTICAS LITERARIAS El tipo de texto que representa Hageo ha sido llamado una crónica oficial, ya que las fechas del libro están fundamentadas históricamente y representan la predicación del profeta durante las fases iniciales del renovado esfuerzo de reconstrucción del templo. Aunque el libro contiene varios discursos, Sin embargo, presenta una imagen unificada. Durante muchos años en el período moderno, los eruditos creyeron que 2:15–19 había sido reubicado de su lugar original después de 1:15b. Sin embargo, el apoyo a esta teoría ha disminuido. significativamente en los últimos años. CARACTERÍSTICAS Y PRINCIPIOS TEMAS Hageo consta de cuatro mensajes encabezados por la frase “La palabra del Señor vino por mano del profeta Hageo” o una frase similar (1:1; 2:1, 10, 20). Los cuatro mensajes alternan entre llamados al arrepentimiento a la luz de las maldiciones de Dios sobre la tierra (1:1–11; 2:10–19) y promesas de mayores bendiciones para el templo y el Mesías a través del linaje davídico (2:1–9, 20–23). Hageo, Zacarías y Malaquías utilizan el título “Señor de los ejércitos” más de noventa veces (catorce veces en Hageo). Este título tiene connotaciones militares (Dios como líder de los ejércitos de Israel; cf. 1 Sam. 17:45), pero también resalta la gloria de Dios (Sal. 24:10) y su soberanía sobre toda la creación (Amós 4:13). Como tal, es un recordatorio para el pueblo de Dios de Su asombroso poder y capacidad para liberar a Su pueblo. Aunque Hageo es el segundo libro más corto del Antiguo Testamento, está repleto de enseñanzas provechosas para la iglesia. A través de Hageo, su mensajero (1:13), el Señor llama al remanente infiel de su pueblo del pacto a arrepentirse y reconstruir su templo. La preocupación de Dios se basa Según su propio placer soberano y su deseo de ser honrado (1:8). La falta de interés del pueblo en construir el templo mostró su falta más profunda de deseo por la presencia de Dios. Presencia especial. Estaban bajo las maldiciones del pacto (1:6, 9, 11 y notas), pero no se daban cuenta. En respuesta al ministerio de Hageo, el Señor despertó el espíritu del pueblo (1:14), y ellos obedecieron (1:12). Hageo reafirma que el Señor estaba con su pueblo, así como era cuando los sacó de Egipto (1:13; 2:4, 5) El ministerio de Hageo se basó en la expectativa de que Dios renovaría sus promesas de pacto con Israel cuando los trajera de regreso a la tierra desde el cautiverio en Babilonia. Las palabras de Hageo se basan en las de profetas anteriores en varios puntos (2:7, 8 y notas). La reconstrucción del templo fue una parte importante de esa renovación, y Hageo desarrolló esa esperanza al asociar el templo con la era venidera del Mesías (2:9, 23 y notas). TEOLOGÍA DE HAGEO La enseñanza de Hageo está impregnada del lenguaje del pacto mosaico y reconoce la importancia de la dinastía davídica dentro de la trayectoria de este pacto. Hageo está especialmente interesado en la venida del Mesías y en la construcción de la casa davídica de Dios. El nombre divino (Yahvé, traducido como “el Señor”) aparece treinta y cuatro veces en los treinta y ocho versículos de esta breve obra, que afirma la presencia y la actividad de Dios en la vida de su pueblo. Este libro expresa el consuelo y el desafío que proviene de la presencia del Dios vivo aun cuando su gloria no esté en exhibición pública (2:3). Hageo anticipa el día en que la gloria de Dios venga a la tierra en la persona de Cristo y traiga consigo la salvación largamente prometida a su pueblo (2:20-23). HAGEO EN LA HISTORIA MÁS AMPLIA DE LA BIBLIA Como todos los profetas, el ministerio de Hageo se basaba en la revelación de Dios a Moisés en el monte Sinaí. La infidelidad del pueblo a sus obligaciones bajo ese pacto había llevado al desastre en el pasado y continuaba persiguiéndolos con la infertilidad agrícola. Hageo también usó las disposiciones de la ley de Moisés para demostrar que el pueblo estaba tan contaminado que ni siquiera sus ofrendas podían salvarlo (2:11-14). Sin embargo, el Señor no había olvidado su promesa anterior de estar con su pueblo y no los dejaría ni los abandonaría. En cambio, actuaría para traer verdadera bendición y paz para su pueblo a través del templo, y lo que el templo en última instancia representaba, que era la presencia de Jesucristo en medio de su pueblo. Para el pueblo del nuevo pacto de Dios, el mensaje de Hageo sigue siendo un mensaje de aliento. Vivir entre la promesa y la plena realización de la promesa en el un cielo y una tierra nuevos, para que el pueblo de Dios sepa que Él desea bendecirlos y que así lo hará (2:19). Hageo transmite un mensaje de carácter profético y escatológico. (ultimos dias) esperanza que anima al pueblo de Dios en esta vida. CRISTO EN EL LIBRO DE HAGEO La reconstrucción del templo era una parte importante del plan de Dios para bendecir a su pueblo, especialmente porque estaba relacionada con la venida del Mesías (2:9, 23 y notas). El Mesías, como representante ungido de Dios en la tierra, traería su gloria, paz y prosperidad al pueblo de Dios (2:9). De hecho, en el Nuevo Testamento, Jesús Cristo se revela como la encarnación personal de la templo (Juan 2:19). En Él, Dios tomó forma humana y vino a morar entre nosotros para que pudiéramos contemplar su gloria y recibir su paz (Juan 1:14-17). En Él, los pecadores contaminados son limpiados y capacitados con valentía. para presentar las obras de sus manos al Padre en gratitud por su salvación, no como un medio para alcanzarla (Heb. 12:18–29). Zorobabel, el heredero davídico, prefiguró al Mesías en los días de Hageo mediante su fiel labor de reconstrucción del templo. Se le prometió que, debido a su fidelidad, el Señor revertiría la maldición sobre Joaquín y restauraría a favor de la línea desechada de David (2:20–23; cf. Jer. 22:24). En última instancia, Jesús cumple la promesa hecha a Zorobabel de ser el gobernante real de Dios ("anillo de sellar") en la tierra (2:23). Hoy, somos los destinatarios de estas promesas y esperamos con ansias la entronización visible final de Cristo como gobernante, cuando una vez más el Señor sacudirá los cielos y la tierra y traerá todas las cosas a su lugar. su conclusión correcta (Hebreos 12:26). HAGEO EN LA HISTORIA DE LA INTERPRETACIÓN Como muchos libros del Antiguo Testamento, el libro de Hageo ha permanecido desconocido para la mayoría de los cristianos en los últimos años. Parte de la razón de la falta de interés en este libro puede estar en el hecho de que Hageo describe eventos del tiempo posterior al exilio, cuando todo lo que quedaba del pueblo de Dios era un pequeño remanente que vivía en la pobreza en Judá. Pero la Escritura es clara en cuanto a que Dios obra poderosamente a través de un remanente fiel que depende completamente de Él. Si, como el apóstol Pablo, nos contentamos con ser vasos rotos sin gloria en nosotros mismos para que la gloria de Cristo crucificado pueda manifestarse más claramente (2 Cor. 4), encontraremos mucha bendición en este libro. ESQUEMA DE HAGEO I. EL PRIMER MENSAJE: UN LLAMADO A RECONSTRUIR LA TEMPLO (CAP. 1) A. La indiferencia y la pobreza del pueblo (1:1–11) B. La respuesta del pueblo: arrepentimiento (1:12–15) II. EL SEGUNDO MENSAJE: EL TEMPLO MAYOR DE DIOS Y BENDICIONES (2:1–9) A. Ánimo de parte de Dios Presencia (2:1–5) B. Ánimo proveniente de la promesa de bendición de Dios a través del templo (2:6–9) III. EL TERCER MENSAJE: LA PROMESA DE DIOS BENDICIÓN PARA UN PUEBLO CONTAMINADO (2:10–19) A. La Causa de su contaminación (2:10-14)
+
+---

@@ -1,0 +1,556 @@
+# Notas de Estudio - Lamentaciones
+
+### Lamentaciones 1:3
+Para la caída de Judá, véase 2 Rey. 24:20–25:30; Jer. 39–45, 52. Exilio. La humillación máxima para el pueblo del pacto (Deut. 28:63–68). No había lugar de descanso. El Señor prometió y proveyó a Su pueblo descanso de sus enemigos (Deut. 12:9; 2 Sam. 7:1, cf. Deut. 28:65). Israel y Judá La infidelidad los ha dejado sin descanso.
+
+---
+
+### Lamentaciones 1:4
+Una imagen de la vida de culto regular del antiguo Israel. Caminos que conducían a Sión. En el pasado, la gente que vivía lejos recorría esos caminos en peregrinación al templo (Salmo 84:5), pero ahora ese templo ha sido destruido por los babilonios. fiesta. Las tres principales reuniones anuales de adoración son los Panes sin Levadura/Pascua, las Semanas (Pentecostés) y los Tabernáculos (Éx. 23:14–17; Lev. 23:4–44). En circunstancias normales, Jerusalén está abarrotada y los sacerdotes presiden las vibrantes celebraciones. El exilio hace que esto sea imposible. Sus sacerdotes gimen. Los sacerdotes son los más afectados por la destrucción del templo. Las vírgenes han sido afligidas. Señal de derrota; cf. Jer. 31:13.
+
+---
+
+### Lamentaciones 1:5
+Los enemigos prosperan. Véanse otras quejas en Jeremías 12:1; Salmo 73. Aquí la queja va acompañada de una confesión de pecado. Como predijeron los profetas, la infidelidad de Judá la ha traído al dolor. El Señor la ha afligido. La destrucción de Jerusalén no es el resultado del gran poder de los babilonios y sus dioses; es el juicio del Señor sobre el pueblo. En esto estaba su esperanza: Aquel que los ha herido puede vendar esas heridas (véase Oseas 6:1). La fidelidad al pacto de su Juez perdura para siempre (véase 3:22-24).
+
+---
+
+### Lamentaciones 1:6
+hija de Sión. Esta frase personifica a Jerusalén (Jer. 6:2), pero también podría aludir a las mujeres de la ciudad, quienes sienten su angustia más profundamente. Toda su majestad se ha ido. La gloria de Dios, que una vez habitó el Lugar Santísimo del templo en Jerusalén, lo ha abandonado y se ha ido al exilio con los de Babilonia (véase Ezequiel 8-11).
+
+---
+
+### Lamentaciones 1:7
+Jerusalén recuerda. El amargo presente contrasta con un tiempo anterior, más feliz, posiblemente los días de David y Salomón. No hay quien la ayude. Cf. Sal. 46:5.
+
+---
+
+### Lamentaciones 1:8
+Jerusalén pecó. Se desarrolla la idea de que el pecado ha causado el exilio, primero con imágenes de impureza ritual. sucio. Probablemente se refiere a la menstruación, que, como otras emisiones corporales de fluidos vitales, deja a una persona temporalmente incapacitada para estar en la presencia de Dios (Lev. 15:19–33). La consecuencia del pecado de Judá es similar, si no más severa: ser separado del culto a Dios, y quizás también sufrir humillación pública (cf. Jer. 13:22, 26). El adulterio espiritual de Jerusalén, en el que se desnudó delante de sus amantes, es castigado apropiadamente mediante un descubrimiento involuntario. En el día en que se escriben las Lamentaciones, a los prisioneros de guerra, tanto hombres como mujeres, a menudo se los desnuda como un acto de extrema humillación. Cf. una secuencia similar en Eze. 16:36–39.
+
+---
+
+### Lamentaciones 1:9
+inmundicia. La imagen de la inmundicia ritual se intensifica. Ella no tiene quien la consuele. Como ella ha sido sorda a las advertencias de los profetas, el Señor es sordo a sus llamados (ver Jeremías 11:11). Oh Señor, mira. Se introduce ahora un elemento de apelación al Señor, una parte normal de la forma de lamento (Introducción: Características y temas principales).
+
+---
+
+### Lamentaciones 1:10
+El santuario. El verdadero propósito del templo es atraer a las naciones para que adoren al Dios de Israel (1 R. 8:41–43), pero ahora ha traído invasores que lo profanan. A los que tú les prohibiste entrar. Puesto que el pueblo de Dios no ha protegido la santidad del templo, sino que ha permitido que los gentiles incircuncisos entren en él (véase Ezequiel 44:6-8), Dios ha traído a los gentiles para destruirlo.
+
+---
+
+### Lamentaciones 1:11
+Toda... fuerza. Esta vívida imagen de desolación insinúa escasez de alimentos.
+
+---
+
+### Lamentaciones 1:12
+todos vosotros que pasáis por aquí... como mi Dolor. El que sufre imagina que su sufrimiento no tiene precedentes. Sin embargo, nadie parece simpatizar con él. El día de su ira feroz. Una sombría confirmación de la profecía de Amós de que en el Día del Señor Su ira será contra su propio pueblo (Amós 5:18). VOLVER Lamentaciones 1:12
+
+---
+
+### Lamentaciones 1:13
+Desde lo alto envió fuego. Sión sabe que el Señor mismo la ha afligido (Sal. 88:13-18). Su caída es como la de Sodoma y Gomorra (Gén. 19:24). Extendió una red. Cf. Ezequiel 17:20.
+
+---
+
+### Lamentaciones 1:14
+un yugo. Véase Jeremías 27, 28. VOLVER Lamentaciones 1:14
+
+---
+
+### Lamentaciones 1:15
+El Señor ha pisoteado. El Señor, que anteriormente era un guerrero a favor de Israel (Deut. 9:1–3), ha vuelto Su poder contra Su propio pueblo, pisoteándolo como uvas en un lagar (ver Is. 63:1–4).
+
+---
+
+### Lamentaciones 1:16
+Mis ojos se llenan de lágrimas. Véase Jeremías 9:1. El consolador está lejos de mí. No hay quien me ayude ni quien me consuele. Este es el tema dominante en estos versículos (2, 7, 9, 17).
+
+---
+
+### Lamentaciones 1:17
+Jacob. Nombre histórico de Israel, derivado del nombre del antepasado de la nación (Gén. 32:28). Sus vecinos deben ser sus enemigos. La presencia de Judá como algo inmundo entre las naciones falsifica su papel previsto como testigo de la santidad de Dios (Éxodo 19:5, 6).
+
+---
+
+### Lamentaciones 1:18
+El Señor tiene razón. Sión justifica el castigo del Señor al admitir su pecado (véase Salmo 51:4). Sin embargo, el pensamiento vuelve rápidamente a su esclavitud.
+
+---
+
+### Lamentaciones 1:19
+Los amantes. Las naciones que rodean a Judá no la ayudan en su momento de necesidad. sacerdotes y ancianos. Véase Jeremías 2:8.
+
+---
+
+### Lamentaciones 1:21
+Mis enemigos. Sión apela al Señor a causa del regocijo de sus enemigos. Sus insultos son profundamente ofensivos para la condición de Judá como pueblo del pacto de Dios y, por lo tanto, para Dios mismo. Según el pacto abrahámico, sus insultos exigen una respuesta divina (Gén. 12:1- 3). Día. El día del Señor se convierte ahora en un día de terror para los enemigos de Sión. El lamento de Sión sigue un patrón profético establecido: los enemigos que administran el juicio de Dios finalmente llegan a sufrir el juicio ellos mismos (Jer. 25:15-38).
+
+---
+
+### Lamentaciones 1:22
+Que ... transgresiones. Sión finalmente afirma que sus enemigos merecen juicio tanto como ella. Mis gemidos. La petición de castigo, sin embargo, no disminuye la profunda angustia de Sión.
+
+---
+
+### Lamentaciones 2:2
+Sin misericordia. Cf. Éx. 34:6, 7. fortalezas. La fortaleza de las ciudades fortificadas de Judá simbolizaba en su día la presencia de Dios. bendición en respuesta a la fidelidad al pacto de Judá (2 Crónicas 10:4-12). Lamentaciones 2:2
+
+---
+
+### Lamentaciones 2:3
+El lenguaje contrasta vívidamente a Judá y sus enemigos, así como la vida de Judá como debería ser y como es. un fuego llameante... que consumía todo alrededor. Cf. Ex. 3:2.
+
+---
+
+### Lamentaciones 2:4
+tensó su arco. Las flechas dañinas que estaban destinadas a los enemigos de Dios (Deut. 32:42) ahora apuntan a Su pueblo (Os. 5:10; Jer. 6:11; 7:20). como un enemigo. Véase nota sobre 1:15. Derramó su furor. Esta imagen de la guerra santa se usa clásicamente para referirse al juicio de Dios sobre las naciones (Salmo 69:24).
+
+---
+
+### Lamentaciones 2:5
+hija de Judá. Véase la nota sobre 1:6.
+
+---
+
+### Lamentaciones 2:6
+su tienda... su lugar de reunión. Referencias al templo. El Señor ha hecho olvidar las fiestas solemnes y los sábados. Véase la nota sobre 1:4. Esto se puede traducir como “El Señor ha hecho olvidar en Sión las fiestas señaladas y los sábados”, una justicia irónica, ya que el pueblo fue el primero en olvidar los sábados mismos (Amós 8:5; Jeremías 17:19-27). Rey y sacerdote. La ira del Señor se derrama sobre el lugar sagrado, las fiestas sagradas y el pueblo sagrado. Todo lo sagrado es barrido por su ira.
+
+---
+
+### Lamentaciones 2:7
+Su altar... su santuario. El juicio de Dios destruye no sólo el lugar de Su morada, sino también el medio que tiene Israel para acercarse a Él en adoración. Los gritos de los enemigos triunfantes reemplazan el clamor de las asambleas de adoración.
+
+---
+
+### Lamentaciones 2:8
+extendió la mano de medir línea. Para inspeccionar la ciudad en busca de destrucción (Is. 34:11; Amós 7:7, 8). En Zacarías 1:16, el Señor promete hacer lo mismo cuando restaure Su ciudad elegida. Lamentaciones 2:8
+
+---
+
+### Lamentaciones 2:9
+ley... profetas... visión. No sólo se destruyen las instituciones religiosas, sino que el Señor retiene la revelación. La visión profética que acompaña la predicación de la ley ha cesado (Jer. 8:8– 10; 18:18; 1 Sam. 3:1).
+
+---
+
+### Lamentaciones 2:10
+Los ancianos... polvo... cilicio ... inclinaron la cabeza. Gestos convencionales de duelo (1:14; Job 2:12, 13). Aquí los realizan ancianos y mujeres jóvenes, lo que da a entender la amplitud del duelo. 2:11 Mis ojos se han consumido de llanto. Cf. este sufrimiento natural por la agonía de su pueblo en Jer. 4:19, y nótese las imágenes de desolación que acompañan las expresiones de angustia del profeta (Jer. 4:31). mi bilis. Lit. “mi hígado”, que en el pensamiento hebreo es uno de los lugares clave de las emociones.
+
+---
+
+### Lamentaciones 2:11
+infantes y bebés... sus Madres. El poeta se conmueve especialmente al ver a los niños sufriendo. A LAMENTACIONES 2:11, 12
+
+---
+
+### Lamentaciones 2:13
+¿Qué puedo decirles? Parece que el significado es: “¿Qué puedo decirles acerca del sufrimiento, ustedes que han sufrido tanto?” A alguien que ha presenciado dolores como estos no se le ocurren respuestas fáciles. Consuelo. Véase nota sobre 1:2.
+
+---
+
+### Lamentaciones 2:14
+Visiones engañosas. La idea avanza a partir del versículo 9; ahora se dice que los profetas profetizaron falsamente. El complejo problema de la profecía falsa es un tema recurrente en los Profetas (Jeremías 6:14). 5:12, 13; 23:9–40; 28). Deuteronomio 18:21, 22 proporciona uno de los criterios por los cuales se puede juzgar si los profetas son verdaderos o falsos.
+
+---
+
+### Lamentaciones 2:15
+perfección de la belleza... gozo de toda la tierra. La belleza del lugar elegido se expresa de manera extravagante (Sal. 50:2; 48:2), pero es por burladores que se mofan de la ruina y la agonía de Jerusalén.
+
+---
+
+### Lamentaciones 2:16
+La hemos devorado. En los vv. 2 y 5, se dice que Dios mismo devoró al pueblo. Como lo deja claro este versículo, lo hizo utilizando a los enemigos de Judá como agentes suyos. El versículo también muestra cómo las naciones atribuyen orgullosamente su victoria sobre Judá a su propia fuerza.
+
+---
+
+### Lamentaciones 2:17
+cumplió su palabra... ordenó que se cumpliera el propósito de juicio que Dios había establecido hace mucho tiempo. Los propósitos de juicio de Dios fueron declarados por medio de Moisés en las maldiciones del pacto (Levítico 26:23-39; Deuteronomio 28:15-68). El presente de Judá ha sucedido de acuerdo con los propósitos conocidos de Dios. Véase 1:18; 2:8. poder. Véase la nota sobre el versículo 3.
+
+---
+
+### Lamentaciones 2:18
+¡Oh muralla! Hay ironía en este grito inútil dirigido a la muralla de la ciudad, símbolo de la supuesta fortaleza de la nación. día y noche. Cf. Deut. 28:67.
+
+---
+
+### Lamentaciones 2:19
+niños. Véase la nota sobre el versículo 12.
+
+---
+
+### Lamentaciones 2:20
+¿Deben las mujeres... tener hijos? El tema del sufrimiento de los niños inocentes alcanza el colmo del patetismo (Jer. El poder de la interpelación a Dios se acrecienta por el conocimiento de que Dios conoce el afecto maternal (Is 66,13). El ultraje del sacrilegio es igualmente extremo: los ungidos del Señor son asesinados en su santuario. Esto sólo es posible porque el templo de Jerusalén ya ha sido profanado por la idolatría del pueblo (cf. Ez 8, 9). sacerdote y profeta. Para los pecados de los sacerdotes y profetas, véase 4:13.
+
+---
+
+### Lamentaciones 2:21
+Los jóvenes y los ancianos. El horror de la muerte en la juventud contrasta con la bendición de alcanzar una buena edad (Job 42:17).
+
+---
+
+### Lamentaciones 2:22
+Un día de fiesta... terrores. Este contraste entre la convocatoria a la alegría de una fiesta y la convocatoria al desastre es sumamente poderoso. Terrores por todas partes. Véase Jeremías 6:25; 20:10. Día de la ira del Señor. El poema termina donde empezó, sin que se alivie el panorama sombrío.
+
+---
+
+### Lamentaciones 3:2
+en tinieblas sin ninguna luz. Cf. Is 9,2. La oscuridad es una metáfora de la angustia que se experimenta en la ausencia de Dios; la luz representa lo opuesto: la salvación y la bendición. El día del Señor se describe en estos términos en Amós 5,18.
+
+---
+
+### Lamentaciones 3:4
+piel... huesos. Representaciones de sufrimiento físico, tal vez debido a la edad o a una enfermedad (Job 13:28; Is. 38:13). En cuanto a los huesos rotos como representación del juicio, véase Sal. 51:8.
+
+---
+
+### Lamentaciones 3:5
+amargura y tribulación . Los efectos emocionales y físicos de la angustia van de la mano.
+
+---
+
+### Lamentaciones 3:6
+Los muertos de antaño. La aflicción y la enfermedad disminuyen la plenitud de la vida, y culminan en la muerte. En su condición debilitada, el poeta considera que tiene poca más participación en la vida de la que tendría si estuviera realmente muerto. Desde la perspectiva de los vivos, los muertos no existen en absoluto, o solo existen como sombras (Prov. 2:18; 9:18 y notas). Para otras imágenes de la muerte en el AT, véase Job 3:11–19; Sal. 6:5; 115:17; Is. 14:18, 19; Eze. 32:17– 32. En este contexto, el AT es elocuente en su breve testimonio de la resurrección más allá de la tumba (Job 19:25–27; Sal. 16:9–11; 49:15; 73:24; Dan. 12:2).
+
+---
+
+### Lamentaciones 3:8
+excluye mi oración . oración no escuchada véase Salmos 10:1; 13:1; 22:1, 2; y especialmente Jeremías 7:16.
+
+---
+
+### Lamentaciones 3:9
+Ha torcido mis caminos. En Jeremías 3:21, el pueblo ha torcido su camino, por lo que el castigo corresponde al crimen.
+
+---
+
+### Lamentaciones 3
+un oso... su flecha. Algunos de los peligros que pueden sobrevenir al viajero son formas vívidas de expresar terror y angustia. Para el Señor como arquero, véase 2:4. El punto culminante del poema y del libro. La forma de lamento a menudo tiene puntos de inflexión donde la experiencia de rechazo por parte de Dios se transforma inesperadamente en confianza, basada en un conocimiento de Su carácter y de Sus misericordias pasadas. Vea las confesiones de confianza y esperanza en el Salmo 22. 3:22, 23 Véase la nota teológica “La bondad de Dios” en la pág. 991. 3:22 misericordia. Sobre la palabra hesed ( hesed ), véase nota sobre Sal. 36:5. La forma plural, usada aquí, evoca muchos actos o quizás las riquezas del amor divino. Cf. Is. 55:3. Misericordias. La devoción del pacto de Dios siempre va unida a Su compasión. Aunque el Señor puede retener temporalmente su misericordia (ver 2:2), ese no es el final de la historia. Su pueblo no es consumido finalmente porque la compasión de Dios no se agota. La ira de Dios hacia Su pueblo debe llegar a su fin porque Su compasión no puede terminar (4:22; Oseas 11:8). La implicación de estos versículos es que Dios no puede, en última instancia, aprobar tales cosas (Job 8:3). Los babilonios pagarán por su arrogante ataque al pueblo del Señor (cf. Jer. 50; 51) Por supuesto, en otro sentido, Dios ha aprobado estas mismas cosas, ya que Él ha hecho que se cumplan. Este es el problema del juicio y la aflicción que el El poeta se enfrenta a: Dios puede ordenar y usar cosas que odia para lograr sus objetivos. Cosas que Él ama. El orador usa el plural Las formas temáticas se utilizan a lo largo de esta sección. El poeta habla como representante de Su gente. 3:40–42 Probemos... transgredidos. Un llamado al arrepentimiento, reconociendo el pecado. El impulso de confesar los pecados parece dar paso pronto a una renovada lamentación. después de la declaración “no has perdonado” (v. 42). Las penalidades por el pecado son Aún no se ha levantado.
+
+---
+
+### Lamentaciones 3:14
+El hazmerreír. Véase Jer. 20:7.
+
+---
+
+### Lamentaciones 3:15
+ajenjo. Véase Jeremías 9:15.
+
+---
+
+### Lamentaciones 3:17
+paz... felicidad. Estos Las condiciones, la suma de la bendición, están completamente ausentes.
+
+---
+
+### Lamentaciones 3:18
+Mi paciencia... Señor . La expresión de desesperanza en el poema alcanza su clímax aquí.
+
+---
+
+### Lamentaciones 3:19
+Acuérdate de mi aflicción . El Señor no se ha acordado de Jerusalén, estrado de sus pies (cf. 2,1).
+
+---
+
+### Lamentaciones 3:20
+recuerda. El poeta La experiencia es un símbolo del pueblo; ver 1:7.
+
+---
+
+### Lamentaciones 3:21
+Esto traigo a mi memoria. El recuerdo que una vez desanimó ahora alienta (Sal. 77:3–9, 10–15). El recuerdo de la devoción de Dios a Su pueblo trae esperanza de la desesperanza. Esta esperanza solo es posible si Dios es Aquel que soberanamente aflige y soberanamente sana. VOLVER Lamentaciones 3:21
+
+---
+
+### Lamentaciones 3:24
+mi porción. Esta frase recuerda las asignaciones territoriales a las tribus israelitas. Los sacerdotes y los levitas, que no tienen tierras, tienen al Señor como su porción (Núm. 18:20; cf. Sal. 73:26). Lamentaciones 3:24
+
+---
+
+### Lamentaciones 3:25
+El Señor... lo busca. Dios siempre es bueno con quienes lo buscan, lo esperan y lo esperan (cf. 1 Cr. 28:9). El triple “bien” en este contexto (cf. vv. 26, 27) enfoca la atención en la bondad de Dios. Puesto que Dios es bueno, su pueblo puede esperar tranquilamente su liberación aun cuando no entienda sus propósitos.
+
+---
+
+### Lamentaciones 3:27
+en su juventud. Si un hombre sufre en la primera y mediana edad de su vida, al menos tiene la posibilidad de encontrar alivio en la vejez. Tal vez la comunidad, como un individuo, debería esperar que el yugo se levante con el paso del tiempo.
+
+---
+
+### Lamentaciones 3:28
+Que ... insulte. El poeta exhorta a los afligidos a soportar el sufrimiento presente a la luz de la afirmación de los siguientes versículos. 3:28 Siéntate solo. Cf. 1:1.
+
+---
+
+### Lamentaciones 3:30
+Que dé la mejilla. El poeta insta a una humilde sumisión ante el opresor, ya que el juicio en última instancia viene del Señor. La humillación de Israel prefigura la humillación de Cristo (Is. 50:6; Mt. 26:67).
+
+---
+
+### Lamentaciones 3:31
+Puesto que Dios es compasivo, la experiencia presente de su ira debe ser temporal (Sal. 30:5; Is. 54:7; Os. 6:1). Nuevamente, la compasión se une al amor infalible de Dios (Hb. hesed, 3:22). Incluso en el juicio, Dios no aflige a las personas “voluntariamente”, es decir, “con alegría”. o “de Su corazón”. Él no se complace en la muerte de los malvados (Ezequiel 10:13). 18:23)
+
+---
+
+### Lamentaciones 3:37
+Todo lo que sucede es por voluntad de Dios. Palabra (Gén. 1:3), tanto calamidad como bien (Amós 3:6).
+
+---
+
+### Lamentaciones 3:39
+el castigo de sus pecados. Puesto que todas las cosas suceden por la palabra del Señor, nadie puede quejarse cuando Dios trae la calamidad como castigo por el pecado. El pecado del pueblo es un pecado importante. parte de la respuesta del poeta al problema del juicio y la aflicción (terrible aunque el juicio de Dios es; cf. 2:20–22). La frase en hebreo implica que el pecado y el castigo consiguiente van inseparablemente juntos.
+
+---
+
+### Lamentaciones 3:41
+Levantemos nuestros corazones y nuestras manos. Señales internas y externas de arrepentimiento.
+
+---
+
+### Lamentaciones 3:43
+Has envuelto... entre los pueblos. El poeta parodia las acciones de Dios en el éxodo . Entonces, La ira de Dios ayudó a Israel; fueron sus enemigos los que fueron asesinados sin piedad. La nube era una señal de favor. Israel era precioso entre las naciones , no “escoria”. y basura.”
+
+---
+
+### Lamentaciones 3:48
+El poeta regresa al singular formas de sujeto. 3:48 ríos de lágrimas. Hay fuertes ecos de Jeremías en este pasaje asociación entre el dolor del pueblo y el dolor del poeta (cf. Jer. 9, 1). Se establece un vínculo sugerida entre el sufrimiento del pueblo y del poeta.
+
+---
+
+### Lamentaciones 3:49
+Mis ojos llorarán. Familiar Lenguaje de lamentación (Salmos 6:6; 42:3; Jeremías 9:1; 18).
+
+---
+
+### Lamentaciones 3:50
+hasta que el Señor desde el cielo Mira hacia abajo y ve. Véase Isaías 63:15.
+
+---
+
+### Lamentaciones 3:52
+enemigos sin causa. Véase Sal. 35:19; Juan 15:25.
+
+---
+
+### Lamentaciones 3:53
+en el hoyo. Sal. 28:1; 88:6. Puede que aquí se esté hablando de la vida de Jeremías (Jer. 38:6), aunque la metáfora también es común en el libro de los Salmos.
+
+---
+
+### Lamentaciones 3:55
+Yo llamé... pozo. Véase Sal. 16:10, 11; 30:1; y la experiencia de Jonás (Jon. 2:2–7). El sufrimiento, la muerte y la resurrección de Cristo como el Siervo justo del Señor lleva este tema recurrente del profeta sufriente y su rescate por Dios a su máximo cumplimiento.
+
+---
+
+### Lamentaciones 3:56
+“Escuchaste mi súplica”. El punto de inflexión del lamento llega cuando el poeta recibe la seguridad de que el Señor ha escuchado su oración (Salmo 6:8-10).
+
+---
+
+### Lamentaciones 3:57
+No temáis. Un tema común exhortación en Isaías (p. ej., Is. 41:10; cf. Mc 6:50).
+
+---
+
+### Lamentaciones 3:58
+Esta sección retoma el tema bíblico del sufrimiento inocente y vicario que alcanza su consumación en la muerte de Cristo por aquellos que se lo provocan. 3:58–60 Mi causa... redimió mi vida... mi causa. En Jeremías 50:34, el Señor es el redentor de Judá y aboga por el pueblo. Aquí el Señor aboga contra ellos, porque se han vuelto contra Su profeta.
+
+---
+
+### Lamentaciones 3:64
+La intervención por la que ruega el poeta en Jeremías 12:1, como en Salmos 77:6, 7. Si el Señor es justo, debe actuar en defensa de su siervo.
+
+---
+
+### Lamentaciones 4:2
+L os hijos preciosos... oro fino. La idea del oro se traslada rápidamente a la propia gente, que es más más valiosa que las riquezas del templo. Como “posesión preciada” de Dios (Éxodo 19:5), Antes eran sumamente preciosas; ahora son la arcilla más común, lista ser aplastado (ver Jeremías 19).
+
+---
+
+### Lamentaciones 4:3
+Incluso los chacales. Los chacales son Se les considera carroñeros, pero al menos cuidan de sus crías. Ante el enorme estrés del asedio, los habitantes de Jerusalén no se preocuparon por sus niños. Avestruces. Figuras proverbiales de la insensibilidad de los padres hacia sus hijos. (Job 39:13-17). Esta indiferencia es un tema del capítulo (v. 10), desarrollado A partir de 2:20.
+
+---
+
+### Lamentaciones 4:5
+manjares. La imagen de Alguien rico y de buena familia que cae de repente en la más extrema necesidad y el peligro es Este versículo se repite a menudo en los profetas (Amós 4:1-3; 6:1; Jeremías 6:2). púrpura. Debido a la oferta limitada del tinte, sólo los muy ricos en el poeta El día puede permitirse el lujo de púrpura.
+
+---
+
+### Lamentaciones 4:6
+c . Según el En este contexto, la palabra Hb. puede traducirse como “castigo ” o “iniquidad” porque Las dos ideas están íntimamente ligadas. La conexión es fuerte en este capítulo, donde El intenso sufrimiento de Judá se vincula repetidamente a su pecado antinatural. Sodoma. Los profetas a menudo utilizan a Sodoma como un arquetipo del juicio divino sobre pecado (Deut. 29:23; Is. 1:9, 10; Jer. 23:14; Eze. 16:46; Os. 11:8; Amós 4:11; Lucas 17:28-30). La comparación con Sodoma es válida para los pecados de la ciudad como Bien por el terrible juicio que cayó sobre ella.
+
+---
+
+### Lamentaciones 4:7
+príncipes. Hb. nazir significa “consagrado”; véase nota sobre Núm. 6:1–21. Más blanca... rojiza. Colores que suelen asociarse con el cuerpo humano. La piel clara es un signo de riqueza, ya que los trabajadores trabajan al sol y se broncean con él.
+
+---
+
+### Lamentaciones 4:8
+Ahora bien, en las dificultades que prevalecen, nadie se destaca como especial; todas las distinciones han sido borradas. Aquellos que una vez se enorgullecían de su apariencia son irreconocibles.
+
+---
+
+### Lamentaciones 4:9
+Más feliz ... espada. La miseria del pueblo es desesperada y miserable. La muerte por hambre no es un juicio instantáneo; en su prolongación, expone los horrores del juicio de Dios en un grado terrible (Deut. 28:54-57).
+
+---
+
+### Lamentaciones 4:10
+mujeres... niños. Véase el versículo 3. Uno de los pecados por los cuales Jeremías reprendió repetidamente al pueblo antes de la caída de Jerusalén fue el sacrificio de niños (p. ej., Jer. 7:31); por lo tanto, de una manera terrible, el castigo se ajusta al crimen.
+
+---
+
+### Lamentaciones 4:11
+La ira. El enfoque vuelve a la ira de Dios. El pecado de Judá —y el justo castigo del Señor— proporciona la explicación de los males que sufre el pueblo. Lamentaciones 4:11
+
+---
+
+### Lamentaciones 4:12
+Los reyes de la tierra. Posiblemente se refiere a la supuesta inexpugnabilidad de Sión, reforzada por el dramático fracaso de los asirios en tomar la ciudad después de la conquista del resto de Judá por parte de Senaquerib en el año 701 a. C. (2 R 18:13–19:37).
+
+---
+
+### Lamentaciones 4:13
+profetas... sacerdotes. Véanse las notas sobre 2:20 y Jeremías 5:30, 31; Miqueas 3:9–12.
+
+---
+
+### Lamentaciones 4:14
+vagaba ciego por el desierto. calles. Deuteronomio 28:28, 29. profanado con sangre. Dios, en su ira, ha hecho ritualmente impuros a los sacerdotes y profetas de Sión. Como en otros lugares (Is. 59:3), la frase se refiere a la sangre derramada por los Culpables. Por su complicidad en los pecados de otros, los sacerdotes y profetas se han contaminado.
+
+---
+
+### Lamentaciones 4:15
+Inmundo. Véase Levítico 13:45. Antes el pueblo acogía a los falsos profetas y su mensaje de paz, pero ahora los rechazan como leprosos. fugitivos. Se cumple la maldición de Deuteronomio 28:65, 66.
+
+---
+
+### Lamentaciones 4:17
+una nación. Israel y Judá buscaron ayuda en alianzas políticas en lugar de en el Señor (Is. 7; 30:1–5; Jer. 24). Justo antes del sitio de Jerusalén por parte de Nabucodonosor, sus esperanzas estaban puestas en recibir ayuda de Egipto (Jer. 37:5–10), pero la caída de la ciudad demostró que esas esperanzas estaban infundadas.
+
+---
+
+### Lamentaciones 4:18
+Nuestro fin había llegado. Véase Ezequiel 10:1-12. 7:6.
+
+---
+
+### Lamentaciones 4:19
+águilas. Véase Jeremías 4:13. Cuando el remanente intentó escapar de Jerusalén después de que se abrieron brechas en sus muros, no había ningún lugar seguro adonde correr.
+
+---
+
+### Lamentaciones 4:20
+El aliento de nuestra nariz, el El ungido del Señor. El rey davídico es el centro psicológico del pueblo, la personificación de la antigua promesa del Señor a David (2 Sam. 7). El último rey de Judá, deportado por Nabucodonosor, fue Sedequías (2 R. 25:7). Aunque el Señor declaró el fin del gobierno inmediato de esa línea en los días de Joaquín, el predecesor de Sedequías (Jer. 22:28-30), al mismo tiempo prometió la salvación final a través del vástago justo de David, el Mesías (Jer. 23:5-8).
+
+---
+
+### Lamentaciones 4:21
+¡Oh hija de Edom! Uno de los enemigos históricos de Israel, que ayudó a los babilonios en su asalto a Jerusalén y entregó a los fugitivos (véase Abdías 14). Su enemistad es más escandalosa debido a una antigua afinidad de sangre; Edom es otro nombre para el hermano de Jacob, Esaú (Gén. 25:30). Pero la nación de Edom también caerá a su vez (véase Abdías y Jer. 49:7-22).
+
+---
+
+### Lamentaciones 5:2
+Nuestra herencia. La tierra en su totalidad es la herencia de Israel de parte de Dios (Deut. 4:21; 12:9), mientras que el territorio de Judá se le da específicamente a la tribu de ese nombre (Jos. 15:20–63). extranjeros... extranjeros. Dios le dio la tierra a Israel, e incluso le ordenó que... expulsar a los extranjeros. Ahora la situación se ha invertido.
+
+---
+
+### Lamentaciones 5:3
+huérfanos... viudas. Su posición es precaria y dependiente. La ley mosaica ordena a Israel que se preocupe por ellos porque su condición les niega el acceso normal a los bienes de la tierra (Deut. 14:28, 29). Sin embargo, paradójicamente, el hecho de que la nación se haya convertido en una nación de huérfanos y viudas es una buena noticia, porque el Señor muestra un cuidado especial por estos grupos necesitados (ver Sal. 146:9).
+
+---
+
+### Lamentaciones 5:4
+Debemos pagar por el agua. Esta necesidad es una inversión irónica de lo que se dice en Deuteronomio 6:10, 11 y, especialmente, en Josué 9:21-23.
+
+---
+
+### Lamentaciones 5:5
+No hay descanso. Esta condición es otra Reversión de una bendición prometida en Deuteronomio (Deut. 12:9; Lam. 1:3). VOLVER Lamentaciones 5:5
+
+---
+
+### Lamentaciones 5:6
+Egipto ... Asiria. Esta clase de sumisión no sólo es humillante sino peligrosa (2 R. 18:14). Sigue siendo una tentación incluso después de la caída de Jerusalén. Véase Jer. 41–44.
+
+---
+
+### Lamentaciones 5:7
+Nuestros padres pecaron... nosotros llevamos Sus iniquidades. Una descripción similar de la solidaridad entre generaciones se encuentra en Éxodo 20:5 y en los libros de 1 y 2 Reyes, con sus registros de culpa acumulados a lo largo de las generaciones. Pasajes como Ezequiel 18 (notas; Jeremías 31:29, 30) se dirigen a aquellos que cuestionan la justicia de ser juzgados por pecados que no han cometido. Ezequiel responde que aquellos que comparten el juicio de su padre han compartido los pecados de su padre; cada generación lleva la culpa de sus propios pecados, no solo la culpa de los pecados de las generaciones anteriores.
+
+---
+
+### Lamentaciones 5:8
+Esclavos. Cuando los siervos babilónicos comandan a Israel, irónicamente se distorsiona la verdadera relación entre Dios, Israel y las naciones. Israel es en verdad una nación liberada de la esclavitud (Deut. 15:12-18); pero aquellos que no sirven al Dios verdadero deben estar en cautiverio. Véase 1:1 y nota.
+
+---
+
+### Lamentaciones 5:9
+espada en el desierto. Posiblemente se refiere a ladrones del desierto que se han aprovechado de la comunidad debilitada. Gran parte de la tierra queda despoblada durante el exilio babilónico.
+
+---
+
+### Lamentaciones 5:10
+Caliente como un horno. Una de las consecuencias de la desnutrición.
+
+---
+
+### Lamentaciones 5:11
+Imágenes de vergüenza y anarquía en ausencia de figuras de autoridad. 5:11 mujeres jóvenes. La pérdida de la virginidad fuera del matrimonio trae vergüenza a la mujer y a su familia, y posiblemente consecuencias graves adicionales (Deut. 22:13–21).
+
+---
+
+### Lamentaciones 5:12
+colgado. Una forma de tortura o de ejecución por exposición.
+
+---
+
+### Lamentaciones 5:13
+Moler en el molino. Trabajo degradante para un joven (Jueces 16:21).
+
+---
+
+### Lamentaciones 5:14
+Este versículo transmite algo del estado de vida normal en Judá al describir lo que ha cesado. La “puerta”, El mundo, que tiene funciones legales y sociales, está ahora desierto. Los placeres desenfadados de los “jóvenes” han sido reemplazados por la vida dura descrita en los versículos anteriores.
+
+---
+
+### Lamentaciones 5:15
+Nuestro baile se ha vuelto Al duelo. En esta cultura, el baile es la manifestación externa de la alegría, de la misma manera que el duelo es la manifestación externa del dolor. Lamentaciones 5:15
+
+---
+
+### Lamentaciones 5:16
+La corona. Algunos piensan que se refiere a Jerusalén en particular (1:1; 2:15; 5:18). Probablemente representa la gloria de Israel y Judá entre las naciones (Éx. 19:6). Ay... pecó. Véase nota sobre el v. 7.
+
+---
+
+### Lamentaciones 5:18
+El monte Sión... desolado. El poeta cierra el círculo a partir de 1:1, retomando el tema del escándalo de la ciudad elegida de Dios que se encuentra destruida y abandonada. En la época del poeta, los chacales suelen hurgar en ruinas vacías (véase Jeremías 9:11).
+
+---
+
+### Lamentaciones 5:19
+Tú, oh Señor, reinas para siempre. Aunque la “realeza” del pueblo (v. 16) ya no existe, la del Señor permanece para siempre. Esto es particularmente conmovedor, ya que el reinado del hijo terrenal de David y el del Señor se asocian a menudo en el libro de los Salmos (p. ej., Sal. 45:5, 6).
+
+---
+
+### Lamentaciones 5:20
+¿Por qué? Se vuelve a escuchar la nota de lamento. No hay una salida fácil del dolor que se ha expresado, pero la afirmación de la soberanía de Dios se hace en medio de ese dolor (v. 19). La lógica de los vv. 19 y 20 tiene un paralelo en el Salmo 89, donde los vv. 1–37 alaban la soberanía de Dios y los vv. 38–51 preguntan: “¿Hasta cuándo?” ¿Se ha olvidado para siempre el Señor, que reina por siempre, de su pueblo?
+
+---
+
+### Lamentaciones 5:21
+Restáuranos... restáuranos. Estas dos palabras provienen del mismo verbo hebreo. Su uso es ambiguo, ya que la restauración puede ser un regreso físico de los exiliados a la tierra o un regreso moral y religioso (arrepentimiento). La ambigüedad es necesaria porque los profetas nunca prevén una restauración a la tierra que esté separada del arrepentimiento hacia Dios. Para un paralelo exacto de este pensamiento, véase Jeremías 31:18.
+
+---
+
+### Lamentaciones 5:22
+a menos que... El poeta se niega a terminar el lamento con una nota alta, porque es el Señor, no él, quien es soberano. Sin embargo, la nota final no es de desesperación sino de súplica. Los cinco poemas del libro nos llegan desde el profundo dolor del juicio vivido, pero También señalan la compasión de Dios como fundamento de la esperanza de una futura liberación.
+
+---

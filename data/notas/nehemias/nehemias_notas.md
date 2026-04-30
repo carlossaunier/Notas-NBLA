@@ -1,0 +1,941 @@
+# Notas de Estudio - Nehemías
+
+### Nehemías 1:1
+El enfoque central de estos capítulos es, sin duda, el éxito de Nehemías en la reconstrucción del muro de Jerusalén y en asegurar las defensas de la ciudad. Pero no se trata de un simple proyecto de construcción. Se trata de un acto de fe, sostenido por la oración de Nehemías (1:5–11; 2:4; 4:4, 5; 5:19; 6:9, 14) y también de otros (4:9). Tal oración es necesaria debido a la oposición y el acoso que enfrentan por parte de los pueblos circundantes (2:10, 19; 4:1–14; 6:1–14). También hay dificultades internas dentro de la comunidad (cap. 5) Pero Dios usa las habilidades de liderazgo de Nehemías para asegurar la finalización de la obra. 1:1 Las palabras de. Esta frase introductoria no resuelve la cuestión de si el libro de Nehemías fue originalmente compuesto por separado de Esdras. Puede indicar el comienzo de registros personales o memorias de Nehemías (véase Introducción: Autor). Nehemías. El nombre significa “el SEÑOR ha consolado”. Quisleví. Corresponde a noviembre/diciembre. A diferencia de Esdras, que utiliza números ordinales para designar los meses (por ejemplo, Esdras 7:8, 9; 10:9, 17; pero no Esdras 6:15), Nehemías emplea sus nombres babilónicos. Año veinte. Si la referencia es a los años del reinado de Artajerjes (que corresponderían al 446 a. C.), hay un enigma. Los años de reinado se calculan habitualmente a partir del mes de Nisán, el primer mes del año (marzo/abril). Dado que 2:1 está claramente fechado como marzo del 446 a. C., 1:1 Entonces, el 25 de junio de 1520 se produciría después de 2:1, no antes. Obviamente, Nehemías está usando otra base para su cálculo, tal vez a partir del mes de la sucesión de Artajerjes (julio/agosto). Sin embargo, esta propuesta sigue siendo incierta, ya que no hay ejemplos paralelos de tal datación en otras fuentes. Incluso enmendar el texto es imposible, ya que no hay variantes textuales atestiguadas, y cualquier cambio sería especulativo. En la actualidad, no hay suficiente evidencia para estar seguros de la datación precisa de estos eventos. Sabemos que sucedieron, pero simplemente no podemos identificar exactamente cuándo. Véase Introducción a Esdras: Fecha y ocasión. Susa. Esta ciudad era la residencia de invierno de los reyes persas (Ester 1:2 nota). NEHEMÍAS 1:1
+
+---
+
+### Nehemías 1:2
+Hanani. Forma abreviada de Hananías. significa “el Señor es misericordioso”. En los papiros de Elefantina se menciona a un tal Hananías, que estaba a cargo de los asuntos judíos, y algunos creen que era el hermano de Nehemías (7:2). Es posible que él y sus compañeros hayan sido enviados a Jerusalén como parte de una misión oficial para investigar lo que había sucedido allí.
+
+---
+
+### Nehemías 1:3
+Sus puertas son destruidas por el fuego. Es menos probable que esto se refiera a la destrucción ocurrida 140 años antes, en los días de Nabucodonosor (586 a. C.). La reacción de sorpresa de Nehemías indica que esto es de origen más reciente, muy probablemente el resultado de los eventos registrados en Esdras 4:7: 23.
+
+---
+
+### Nehemías 1:4
+Ayuno y oración. El ayuno se relaciona aquí con el duelo (1 Sam. 31:13) así como con la petición a Dios (nota de Esdras 8:21). Nehemías es un hombre de oración (2:4; 4:4, 9; 5:19; 6:9, 14; 13:14, 22, 29, 31), y aquí lleva ante Dios sus preocupaciones por las desalentadoras noticias que llegan de Jerusalén. el Dios del cielo. Véanse las notas sobre Esdras 1:2; Daniel 4:37.
+
+---
+
+### Nehemías 1
+En su oración, después de dirigirse a Dios como supremo y el Dios del pacto (v. 5), Nehemías ruega por una respuesta a pesar del pecado del pueblo, pasado y presente (vv. 6, 7). En los vv. 8, 9 Nehemías formula su petición sobre la base de la palabra de Dios a Moisés (ver Deut. 7:9) y de la oración de Salomón en el templo (ver 2 Cr. 6:40). Además, menciona la liberación pasada del pueblo por parte de Dios (v. 10) antes de concluir con las necesidades de su situación personal inmediata (v. 11). Desde el comienzo, Nehemías no está preocupado simplemente por un proyecto de construcción. Tiene en mente el avance de los propósitos redentores de Dios. 1:5 Al invocar a Dios, Nehemías capta tanto su trascendencia como su inmanencia. El Dios verdadero no sólo está muy por encima de su pueblo como el Dios del cielo (v. 4 nota); está cerca de su pueblo como el Dios del pacto (Deut. 4:7). El que guarda el pacto y la misericordia. Nehemías basa su petición en la constancia de Dios en su entrega, no en ningún mérito que posea el pueblo. Para “amor constante”, véase la nota sobre Esdras 7:28.
+
+---
+
+### Nehemías 1:6
+día y noche. La oración de un día en particular (v. 11), después de cuatro meses de oración y ayuno (1:4; 2:1 nota). “Día y noche” significa “continuamente” (Jos. 1:8; Sal. 1:2).
+
+---
+
+### Nehemías 1:7
+En su intercesión , Nehemías habla en solidaridad con su pueblo (véase Esdras 9:6-15). El disfrute continuo de las bendiciones del pacto mosaico está condicionado a la obediencia del pueblo a los estatutos del Señor. Si Israel quebranta flagrante e impenitentemente sus mandamientos, el resultado es la imposición de las maldiciones del pacto quebrantado. Nehemías reconoce que la deslealtad de Israel ha llevado a la pérdida del pacto bendiciones, y el resultado ha sido el exilio (nota de Esdras 9:9).
+
+---
+
+### Nehemías 1:8
+Recuerde. Una petición común (Deut. 9:27; Sal. 132:1; Jer. 14:21), particularmente en Nehemías (5:19; 6:14; 13:14, 22, 29, 31). No implica olvido divino, sino que exige la intervención y la acción de Dios en función de su compromiso permanente.
+
+---
+
+### Nehemías 1:9
+Yo los reuniré. El pacto mosaico promete la restauración de un remanente después del exilio (Deut. 30:1–5) sobre la base del pacto hecho con Abraham (Deut. 4:25–31). Tal restauración debe estar acompañada por el arrepentimiento y la confesión tal como lo expresa Nehemías aquí (ver Lev. 26:40–45). Haz que habite allí mi nombre. El nombre de Dios simboliza a Dios mismo, tal como se revela a su pueblo. Un lugar donde habite su nombre es un lugar donde Él puede estar con su pueblo y recibir su adoración (Deuteronomio 12:5). Aunque el lugar no se especifica en Deuteronomio, Nehemías lo reconoce como Jerusalén, de acuerdo con la historia de Israel (véase 2 Crónicas 6:6).
+
+---
+
+### Nehemías 1:10
+redimidos. Una referencia al éxodo (Éxodo 32:11; Miqueas 6:4). El pueblo pertenece al Señor debido a Su intervención pasada en favor de ellos cuando los salvó y los reclamó para Sí. Aunque se han rebelado contra Él, Él en Su gracia y tolerancia no ha abandonado Su derecho sobre ellos, por lo que Su compromiso puede funcionar como base para la petición de Nehemías.
+
+---
+
+### Nehemías 1:11
+que se deleitan en temer tu nombre. El temor del Señor es la respuesta adecuada a la autorrevelación de Dios. Temer a Dios es conocerlo (Prov. 9:10), confiar en Él (Sal. 34:11, 22), obedecerlo (Prov. 8:13) y mostrarle reverencia. El “deleite” muestra que esto está lejos de ser una reacción forzada. Este hombre. Artajerjes I. Copero. Miembro de la corte real cuya responsabilidad es escoger el vino (2:1) y protegerlo del veneno. Como copero, Nehemías tiene la confianza total del rey. Esto, combinado con su acceso constante al rey, le asegura prestigio e influencia en la corte.
+
+---
+
+### Nehemías 2:1
+La fecha es marzo/abril del 445 a. C., cuatro meses después de que Nehemías recibió el informe sobre Jerusalén (nota 1:1). Nehemías ha seguido orando por una oportunidad favorable para acercarse al rey, y con ocasión de alguna festividad (“había vino delante de él”) Artajerjes le da una oportunidad para hablar.
+
+---
+
+### Nehemías 2:2
+¿Por qué está triste tu rostro? Un cortesano con rostro triste o expresión ansiosa bien podría estar implicado en una intriga palaciega. Nehemías no se da cuenta de que su vigilia de oración ha afectado su apariencia. tiene mucho miedo. Teme la ira del rey (Prov. 16:14) ya sea porque está triste en presencia del rey, especialmente en una ocasión festiva, o porque está a punto de pedirle al rey que revierta una decisión anterior (Esd. 4:21). También teme que le nieguen el permiso que solicita.
+
+---
+
+### Nehemías 2:4
+Entonces oré. Una oración breve y espontánea basada en una vida de oración (ver 1:4–11).
+
+---
+
+### Nehemías 2:5
+para reedificarla. La reconstrucción de la ciudad es un aspecto de la reconstrucción de la “casa de Dios” (véase Núm. 12:7), un tema principal en Esdras y Nehemías (véase Introducción a Esdras: Características y temas). Es el enfoque de Nehemías 1:1–7:3. Aunque Nehemías menciona a Judá, con su tacto característico no nombra a Jerusalén, que fue el tema de un decreto anterior, generalmente negativo, de Artajerjes (Esdras 4:21, 22).
+
+---
+
+### Nehemías 2:6
+la reina sentada a su lado. Las opiniones difieren en cuanto a si esto indica que la comida se celebró en privado o si resalta la influencia que la reina podría tener en la respuesta del rey. ¿Cuánto tiempo...? Se le dio un tiempo. Puede parecer dudoso que Nehemías pida La ausencia de doce años que se presume en 5:14, pero su petición de reconstruir su residencia personal (v. 8) indica que se trata de algo más que una breve licencia. No importa cuánto tiempo pida Nehemías específicamente en este punto, la licencia se extiende sin duda a lo largo de los años. Es posible que Nehemías haga visitas breves a la corte real para informar al rey.
+
+---
+
+### Nehemías 2:7
+Y dije: Nehemías ahora hace sus peticiones específicas. Las dos referencias a las cartas en los versículos 7 y 8 son parte de un tema principal en Esdras y Nehemías: la palabra escrita es un instrumento eficaz que Dios utiliza para cumplir su propósito redentor (Introducción a Esdras: Características y temas principales).
+
+---
+
+### Nehemías 2:8
+Madera... para las puertas. El alcance del proyecto de construcción se hace evidente: fortaleza, murallas y residencia del gobernador. El intervalo de cuatro meses ha implicado algo más que oración. Nehemías ha estado comprobando quién está a cargo del bosque del rey, posiblemente ubicado a seis millas (10 km) al sur de Jerusalén. También es posible que la fortaleza esté ubicada al norte del templo para proteger su aspecto más vulnerable. Nehemías tiene una idea clara de lo que será necesario. La buena mano de mi Dios. Nehemías actúa como un agente humano responsable al hacer la petición, pero el éxito se debe al beneplácito soberano de Dios (Esdras 7:6), un tema que expresa el mensaje general de Esdras y Nehemías (Introducción a Esdras: Características y temas).
+
+---
+
+### Nehemías 2:9
+Los gobernadores de la provincia Más allá del río. En la época de Nehemías, los principales administradores persas probablemente se encontraban en Damasco, y Nehemías les presenta sus credenciales cuando viaja a Jerusalén. La escolta militar corresponde a su condición de gobernador de la subprovincia de Judá (véase Esdras 8:22).
+
+---
+
+### Nehemías 2:10
+Sanbalat. Nombre babilónico que significa “El pecado [el dios de la luna] da vida”. Sanbalat y sus descendientes sirvieron durante más de un siglo como gobernadores de Samaria, la zona al norte de Judá. Es posible que haya adorado al Dios de Israel de alguna manera (2 Reyes 17:24–41), ya que los nombres de sus hijos, Delaías y Selemías, terminan con una forma corta de “Yahvé”. “Horonita” puede indicar que provenía de Bet-Horón, a unos 16 kilómetros al noroeste de Jerusalén o, menos probablemente, de Horonaim en Moab. Tobías. Probablemente gobernador de Amón, al este de Judá, donde su familia siguió siendo influyente durante siglos. Su nombre significa “el SEÑOR es bueno”. indicando que él también pudo haber adorado al Dios de Israel (6:17, 18; 13:4). Su hijo Jehohanan (6:17, 18) también tenía un nombre yahvista y estaba casado con la hija de un influyente líder judío (3:4, 30; 6:18). Su religión probablemente era sincrética. oído. Las referencias a que los enemigos habían “oído” marcarán el resto de 1:1– 7:3 como un estribillo (v. 19; 4:1, 7, 15; 6:1, 16). El conflicto se intensifica hasta que se resuelve en 6:16. Les desagradó mucho. La oposición tiene un aspecto político, ya que la presencia de Nehemías reduce su control sobre Judá, pero es religiosa en su raíz (v. 20 nota; Esdras 4:13 nota).
+
+---
+
+### Nehemías 2:11
+Poco después de regresar a Jerusalén, Nehemías realiza una inspección nocturna de los muros y, consciente de la bendición de Dios sobre él, anima a la población de la ciudad a reconstruirlos. 2:11–16 La espera de tres días de Nehemías después de llegar a Jerusalén invita a la comparación con Esdras (Esdras 8:32). Esdras actúa públicamente; Nehemías en secreto (es decir, Nehemías “no se lo dijo a nadie” se enfatiza en el v. 12; véase v. 16).
+
+---
+
+### Nehemías 2:12
+puesto en mi corazón. Un ministerio del Espíritu Santo, similar a “despertado” (Esdras 1:1, 5), excepto que Nehemías reconoce conscientemente el origen divino de la carga que siente y el proyecto que visualiza.
+
+---
+
+### Nehemías 2:14
+No hay lugar... para pasar. Algunos de los daños son de la época de Nabucodonosor. La falta de mantenimiento ha provocado una mayor erosión y deterioro de las terrazas que rodean la ciudad, tal vez en el Millo (1 (Crónicas 11:8 nota) al este de la ciudad. Nehemías tiene que dar marcha atrás en lugar de circunnavegar la ciudad, especialmente de noche.
+
+---
+
+### Nehemías 2:17
+en ruinas. Gran parte de la ciudad ha estado en ruinas durante casi 150 años (nota 1:3). Un intento anterior de reconstruir la muralla fue se detuvo (Esdras 4:7-23). La presencia de Nehemías cambiará todo eso.
+
+---
+
+### Nehemías 2:18
+También de las palabras que el rey había dicho: hablado. El reconocimiento de Nehemías de la soberanía de Dios como la última La fuente de su plan no excluye las acciones providencialmente ordenadas por el rey (v. 8 nota). Levantémonos. La iniciativa de Nehemías cuenta con el apoyo incondicional de los líderes de Judá; a estas alturas, el lector ya sabe que esta respuesta también está regida por el propósito de Dios (nota de Esdras 1:5).
+
+---
+
+### Nehemías 2:19
+Sanbalat y Tobías están bien informados de lo que sucede en Jerusalén (ver 6:17). Gesem el árabe. Este tercer oponente de Nehemías era probablemente un jefe árabe que controlaba una zona importante al sur de Judá, que se extendía hasta Egipto y Arabia. Se describe a Nehemías prácticamente rodeado de enemigos: Sanbalat al norte, Tobías al este y Gesem al sur (nota 4:7, 8). La primera táctica que emplearon fue desmoralizar al pueblo ridiculizando sus propuestas e insinuando que estaban en rebelión. Tales acusaciones habían funcionado unos años antes (véase Esdras 4:12, 13). NEHEMÍAS 2:19 2:20 Dios del cielo. Véase nota sobre 1:4. Prosperar. Nehemías pidió a Dios éxito (1:11). Se asoció con el pueblo y expresó su confianza en que el Dios soberano prosperará sus esfuerzos. No tenéis parte. Sobre esta exclusividad religiosa, véase la nota sobre Esdras 4:3. A pesar de sus posibles afirmaciones en contrario, Nehemías sostiene que su religión comprometida les impide cualquier derecho a participar en los asuntos de Jerusalén.
+
+---
+
+### Nehemías 3
+El material de este capítulo probablemente existía de manera independiente, tal vez como un informe oficial, antes de que Nehemías lo incorporara a sus memorias. El capítulo subraya un tema importante de Esdras y Nehemías: el pueblo de Dios en su conjunto y no solo los grandes líderes son vitales para lograr el propósito redentor de Dios. Todo el pueblo de Dios trabajó en conjunto para reconstruir el muro: clérigos y laicos, artesanos y comerciantes, por ciudad y por familia, cada uno contribuyendo a la finalización del conjunto (véase Efesios 4:16). 3:1 Eliasib. Nieto de Jesúa, el sumo sacerdote durante los días de Zorobabel. Puerta de las Ovejas. La puerta en la esquina noreste de la ciudad (ver Juan 5:2) solía traer animales para sacrificios a la ciudad. Esa bien puede ser la razón por la que esta puerta es “consagrada”. La descripción en los versículos siguientes se mueve en sentido contrario a las agujas del reloj hasta que se vuelve a mencionar la Puerta de las Ovejas en el versículo 32. Torre de los Cien. Está situada en algún lugar del lado norte, la zona con las defensas naturales más pobres. Torre de Hananeel. Una torre en el lado norte.
+
+---
+
+### Nehemías 3:2
+Junto a él. En esta descripción aparece repetidamente la palabra “junto”, lo que enfatiza que la asignación de áreas de trabajo de Nehemías se había planificado cuidadosamente para evitar espacios vacíos. Los hombres de Jericó. Se encuentran grupos similares en los versículos 5, 7 y 27. Aunque sus hogares están en otros lugares, reconocen la importancia de la obra que se está realizando en Jerusalén. Tal vez se les asignen secciones del muro donde hay pocas casas.
+
+---
+
+### Nehemías 3:3
+Puerta del Pescado. Puerta principal en el lado norte (2 Crónicas 33:14; Sofonías 1:10), probablemente la puerta que usaban los mercaderes (véase 13:16).
+
+---
+
+### Nehemías 3:4
+reparó. Lit. “hizo fuerte”. Es posible que secciones del muro permanezcan en pie aquí y solo necesiten ser reparadas. restaurado. En otros lugares se trata de reconstruir desde cero.
+
+---
+
+### Nehemías 3:5
+Sus nobles no quisieron. Aunque el texto presenta una imagen asombrosa de unanimidad, señala de manera realista que no todo el pueblo de Dios está en armonía con lo que el Señor está haciendo a través de Nehemías.
+
+---
+
+### Nehemías 3:6
+Puerta de Yeshaná. Tradicionalmente traducida como “la Puerta Vieja”, se encuentra en la esquina noroeste de la ciudad. Es posible que se la identifique con la Puerta de Efraín (8:16; 12:39), que no se menciona aquí.
+
+---
+
+### Nehemías 3:8
+Muralla ancha. En el lado oeste de la mitad norte de la ciudad. Probablemente se extiende desde la muralla que se está construyendo. Reparado.
+
+---
+
+### Nehemías 3:10
+frente a su casa. Probablemente otros También, como Jedaías, trabajan en las secciones cercanas a sus hogares.
+
+---
+
+### Nehemías 3:11
+Torre de los Hornos. En el lado oeste de la ciudad, tal vez en el punto medio.
+
+---
+
+### Nehemías 3:12
+él y sus hijas. Un testimonio extraordinario de la dedicación de toda la comunidad a la tarea de reconstrucción (nota 5:1; nota 12:43).
+
+---
+
+### Nehemías 3:13
+Puerta del Valle. En el lado oeste de la ciudad, frente al valle del Tirol. Mil codos. Aproximadamente quinientas yardas (457 m). Una longitud considerable de muralla, tal vez menos dañada o reparada anteriormente. Puerta del Muladar. En la esquina suroeste de la ciudad, frente al valle de Hinom.
+
+---
+
+### Nehemías 3:15
+Puerta de la Fuente. En la esquina sureste de la ciudad, frente al valle de Cedrón. Ciudad de David. Aunque en mal estado, sigue siendo la ciudad que David estableció para que fuera la capital política y religiosa de la teocracia. Hay continuidad entre las generaciones pasadas y presentes (Esdras 2:1–70 nota).
+
+---
+
+### Nehemías 3:20
+A ambos lados de la casa del sumo sacerdote el trabajo lo realizan los levitas (vv. 17-19) y los sacerdotes (vv. 20-22). Meremot (v. 21) es mencionado en la lista de sacerdotes en 10:5, al igual que Baruc (v. 20) en 10:6.
+
+---
+
+### Nehemías 3:23
+junto a su propia casa. Nehemías encarga a cada individuo que repare la sección del muro en la que esa persona y su familia tienen más interés. Esto fomenta la motivación personal que ayudará a realizar el trabajo (véase 3:28– 30).
+
+---
+
+### Nehemías 3:26
+Ofel. Generalmente se encuentra al sur del monte del templo, pero es más probable que también incluya la parte sur de la ciudad, debajo de la Puerta de las Aguas. Puerta del Agua. A mitad de camino hacia el lado este de la ciudad, esta puerta mira hacia el El valle de Cedrón y la principal fuente de agua, el manantial de Gihón.
+
+---
+
+### Nehemías 3:28
+Puerta de los Caballos. En el lado noreste de la ciudad.
+
+---
+
+### Nehemías 3:29
+Puerta del Este. Justo al norte de la Puerta de los Caballos.
+
+---
+
+### Nehemías 3:31
+Puerta de la Reunión. Entre la Puerta del Oriente y la Puerta de las Ovejas.
+
+---
+
+### Nehemías 3:32
+Puerta de las Ovejas. La descripción en sentido contrario a las agujas del reloj ha dado un giro completo (nota del v. 1).
+
+---
+
+### Nehemías 4:1
+El programa integral de trabajo de Nehemías en el capítulo 3 transmite una sensación de progreso ordenado. La realidad es otra. Cuanto antes se inicie la obra, más se intensifica la oposición a ella.
+
+---
+
+### Nehemías 4:2
+Sanbalat es evidentemente la figura principal en el enfrentamiento. “Sus hermanos” son sus aliados. Su serie de preguntas afirma que los judíos han subestimado lo que pueden hacer y han comenzado algo que no podrán completar. Al mismo tiempo, él sabe que su burla Se informará en Jerusalén y erosionará la confianza en el proyecto. VOLVER NEHEMÍAS 4:2
+
+---
+
+### Nehemías 4:3
+Tobías. Aparece en un papel subordinado, haciendo eco de Sanbalat. Un zorro pesa solo unos pocos kilos, pero Tobías alega que su peso suficiente para derribar cualquier muro que los judíos se propongan construir.
+
+---
+
+### Nehemías 4:4
+Esta es la primera de tres oraciones imprecativas pronunciadas por Nehemías (6:14; 13:29). Una oración imprecativa es aquella que pide que el enemigo experimente la maldición de Dios (p. ej., Sal. 79:12; 94:1– 3; 137:7–9). Véase Introducción a Salmos: Asuntos especiales. En realidad, estas personas se oponen a la obra de Dios, y es de Él a quien Nehemías busca reparación. Al mismo tiempo, ni él ni el pueblo abandonan su trabajo de reconstrucción del muro.
+
+---
+
+### Nehemías 4:7
+cuando Sanbalat... oyó. Un grupo más, los asdoditas, se agrega a la lista de enemigos. Nehemías ahora está completamente rodeado por el enemigo. Asdod, una ciudad en la llanura filistea hacia su oeste (nota 2:19), es también el nombre de una subprovincia persa correspondiente al territorio filisteo.
+
+---
+
+### Nehemías 4:9
+Oramos. El pueblo responde como lo hizo Nehemías. La oración colectiva va acompañada de precauciones de sentido común: “poner una guardia”.
+
+---
+
+### Nehemías 4:10
+En Judá se dijo. Se utiliza un término colectivo que enfatiza que el desánimo está muy extendido. La fuerza... el muro. Tal vez este verso poético lo cante el pueblo. Parte de la razón por la que se sienten desanimados es simplemente que el trabajo es duro. NEHEMÍAS 4:10
+
+---
+
+### Nehemías 4:11
+Nuestros enemigos dijeron: Sus adversarios planean lanzar un ataque inesperado contra Jerusalén, pero lo abandonan (v. 15), aparentemente porque se filtra información al respecto y se pierde el elemento sorpresa.
+
+---
+
+### Nehemías 4:12
+Se nos dice diez veces. Diez es un número simbólico de completitud. El temor a la violencia está creciendo en la mente de la gente. Parece que los judíos que viven cerca de Israel y Amón se han dado cuenta de la intención de atacar Jerusalén. Sin embargo, aumentan la tensión en la ciudad al instar repetidamente a los que trabajan allí a que abandonen la capital y se dispersen por toda Judea.
+
+---
+
+### Nehemías 4:13
+Yo puse al pueblo en posición defensiva. Nehemías no piensa en huir ante un ataque inminente. Su primera acción es colocar guardias adicionales en los puntos más vulnerables. La tensión sigue aumentando a medida que el pueblo de Judá toma las armas por primera vez.
+
+---
+
+### Nehemías 4:14
+grande y temible. Véase la nota teológica “La incomprensibilidad de Dios” en la pág. 630. Nehemías no solo arma físicamente al pueblo, sino que también lo fortalece espiritualmente al recordarles la Señor (“Adonai”, el Señor soberano) que los apoya.
+
+---
+
+### Nehemías 4:15
+Dios había frustrado su plan. En Esdras 4:5, 24 el enemigo frustró el plan de construir el templo; aquí Dios Responde de la misma manera frustrando el plan de detener la construcción del muro. Ya no es posible una invasión sorpresa y cualquier ataque será resistido con firmeza. Todos regresamos al muro. Nehemías responde con éxito a la marea de desaliento añadiendo guardias y exhortando al pueblo.
+
+---
+
+### Nehemías 4:16
+lanzas... cotas de malla. Las armas mencionadas por primera vez en el versículo 13 se complementan aquí con escudo y armadura (una coraza de metal). La amenaza inmediata ha disminuido, pero Nehemías mantiene sabiamente un estado de preparación.
+
+---
+
+### Nehemías 4:17
+Los que llevaban... sujetaban su arma. Los porteadores tienen una mano libre para sostener un arma, que puede ser simplemente una piedra para arrojar.
+
+---
+
+### Nehemías 4:18
+cada uno de los constructores tenía su espada. Los constructores necesitan dos manos para trabajar, por eso llevan espadas a sus costados. La trompeta. La trompeta, o shofar , tiene numerosas funciones en el Antiguo Testamento. Aquí, como en Jueces 3:27, reúne a las tropas.
+
+---
+
+### Nehemías 4:20
+Nuestro Dios peleará por nosotros. El Señor ha intervenido a favor de Su pueblo que está actuando de acuerdo con Sus deseos (ver Éxodo 14:14; Josué 10:14).
+
+---
+
+### Nehemías 4:21
+hasta que salieron las estrellas. Muestra cómo Su dedicación es fuerte, ya que el trabajo suele terminar al anochecer en esta época. NEHEMÍAS 4:21
+
+---
+
+### Nehemías 4:23
+Una imagen de la disposición constante para responder a cualquier ataque.
+
+---
+
+### Nehemías 5:1
+Esta sección deja el tema principal de la oposición de los forasteros para considerar las dificultades que han surgido desde adentro. Las causas probables de la tensión económica mencionada son que Judá ha sido aislada del comercio con los vecinos; los agricultores están lejos de sus campos porque se han quedado en Jerusalén (4:22); hay una hambruna (v. 3); y los administradores anteriores han agobiado al pueblo (v. 15). Los tiempos son tan malos que los niños están siendo vendidos como esclavos, las casas y los viñedos están siendo hipotecados, y se está pidiendo dinero prestado con interés. La terrible realidad para Nehemías es que es el propio pueblo de Dios el que está imponiendo estas medidas intolerables a los demás, no los extranjeros. Es improbable que estas condiciones se hayan originado en los cincuenta y dos días que ha llevado reconstruir el muro. Sin embargo, ese proyecto ha intensificado la tensión y la ha puesto de manifiesto. Es una grave amenaza para la finalización de la obra. 5:1 Sus esposas. Dado que las mujeres desempeñan un papel menor en Esdras y Nehemías, mencionarlas aquí enfatiza la gravedad de la crisis (nota 3:12; 12:43). nota)
+
+---
+
+### Nehemías 5:3
+El hambre. Las hambrunas son a menudo señales del juicio de Dios (Deut. 11:16, 17; 1 Cr. 21:12; Hag. 1:7-11). El hambre es el juicio de Dios por el fracaso de los líderes en hacer lo correcto. NEHEMÍAS 5:3
+
+---
+
+### Nehemías 5:4
+el impuesto del rey. Un impuesto sobre la propiedad que ellos no pueden pagar excepto hipotecando su propiedad para recaudar fondos.
+
+---
+
+### Nehemías 5:5
+Esclavizados. Según Levítico 25:39-43, un hombre de la comunidad del antiguo pacto que se empobrece puede venderse a sí mismo, junto con su familia, a un compatriota israelita para recuperarse económicamente; debe ser tratado como un trabajador asalariado, no como un esclavo. El error en los días de Nehemías parece ser doble: (a) solo se vende a los niños, lo que resulta en la ruptura de las unidades familiares; (b) se trata a los niños como esclavos, no como trabajadores asalariados.
+
+---
+
+### Nehemías 5:7
+Me puse a consultar conmigo mismo. A pesar de su indignación por lo que está sucediendo, Nehemías no actúa precipitadamente, sino que piensa en una reacción apropiada. Nehemías presentó cargos contra él. Un paso audaz por parte de Nehemías. Exigir intereses. La ley prohíbe no sólo la usura sino también los intereses de cualquier clase (Ex. 22:25–27; Lev. 25:35–37; Deut. 23:20).
+
+---
+
+### Nehemías 5:8
+Anteriormente, la administración de Nehemías estaba rescatando a judíos que habían sido esclavizados en las naciones vecinas, algunos quizás desde los días de Nabucodonosor. Sin embargo, más recientemente, han estado rescatando a judíos que habían sido vendidos como esclavos por sus compatriotas debido a su incapacidad para pagar sus deudas.
+
+---
+
+### Nehemías 5:9
+El temor de nuestro Dios. Su conducta pública debía realzar la religión que profesaban.
+
+---
+
+### Nehemías 5:10
+Mis hermanos y yo. Hay diferentes opiniones en cuanto a lo que dice Nehemías sobre su propia conducta. Él, junto con su familia, puede estar haciendo préstamos con intereses para alentar al pueblo a arrepentirse y cambiar su conducta. A la luz de su reacción en el versículo 6, es más probable que esté extendiendo préstamos sin intereses de dinero y grano, y exhortando a otros a seguir su ejemplo personal.
+
+---
+
+### Nehemías 5:11
+el porcentaje del dinero. Aunque algunos consideran que la tasa de interés cobrada es del uno por ciento mensual, eso sería excepcionalmente bajo para el Imperio persa, donde era común un interés anual del cuarenta o cincuenta por ciento. Aquí la expresión no especifica la tasa. grano, vino y aceite. Esta tríada familiar está en el orden de la agricultura. Cosechas: primero el cereal, luego la uva y finalmente la aceituna madura.
+
+---
+
+### Nehemías 5:12
+les hizo jurar. Nehemías, como es característico de él, toma medidas inmediatas, lo que astutamente limita cualquier tendencia a olvidar el acuerdo que se ha hecho. Este juramento es una renovación de su compromiso de cumplir la ley de Moisés sobre préstamos y esclavitud por deudas. Nota teológica “Juramentos y votos” en la página anterior.
+
+---
+
+### Nehemías 5:13
+sacudió el redil. En esta renovación del pacto, Nehemías dramatiza las maldiciones por no cumplir el juramento (ver Jer. 34:8–22). Cualquiera que no cumpla con su compromiso será despojado de su propiedad tan fácilmente como pudo enderezarse el pliegue del manto de Nehemías.
+
+---
+
+### Nehemías 5:14
+Esta reflexión retrospectiva sobre su gobierno probablemente fue compuesta por Nehemías e insertada por él en una fecha posterior porque aclara la naturaleza de su conducta personal mientras estuvo en el cargo. 5:14 año veinte... año treinta y dos. Este período de doce años (445 a. C. a 433 a. C.) es el primer mandato de Nehemías como gobernador; después es llamado a la corte persa (13:6, 7), pero posteriormente regresa a Jerusalén para un segundo mandato de duración desconocida. la asignación de alimentos del gobernador. Un gobernador tiene derecho a recaudar impuestos Nehemías renuncia a este derecho en beneficio del pueblo (v. 18; véase 1 Cor. 9:4, 12; 2 Tes. 3:8, 9).
+
+---
+
+### Nehemías 5:15
+Los gobernadores anteriores... pusieron gran énfasis Cargas. Sesbasar (Esdras 5:14) y Zorobabel (Hag. 1:1) fueron gobernadores anteriores, pero sus mandatos se remontaban a casi cien años antes. Los gobernadores opresores fueron los predecesores más inmediatos de Nehemías, cuyas políticas fueron perjudiciales para el pueblo (nota 5:1–13). Temor de Dios. Véanse las notas sobre 1:11 y v. 9, donde vemos cómo Nehemías instó a otros a actuar con el mismo motivo.
+
+---
+
+### Nehemías 5:16
+La razón de Nehemías para ser gobernador es el servicio, no el progreso personal, lo que corresponde a su razón de ir a Judá en primer lugar (2:5). No utiliza la desgracia del pueblo para adquirir tierras y amasar una fortuna para sí mismo.
+
+---
+
+### Nehemías 5:17
+en mi mesa. Según la costumbre persa, Nehemías, como gobernador, tenía que entretener a los funcionarios bajo su autoridad, así como a los dignatarios visitantes de otros países.
+
+---
+
+### Nehemías 5:18
+para cada día. Los alimentos enumerados pueden alimentar a cientos de personas. Nehemías es tan generoso como rico. Al no exigir todo lo que podría exigir con justicia, revela que está actuando por compasión hacia el pueblo que está sufriendo una gran carga.
+
+---
+
+### Nehemías 5:19
+Recuerda. El segundo uso de “Recordar” en una oración (nota 1:8) y la primera de cuatro oraciones pidiendo a Dios que “Acuérdate de mí” (13:14, 22, 31). Esto no es una reivindicación de mérito ante Dios, sino evidencia de su fe, que se basa en las promesas de Dios.
+
+---
+
+### Nehemías 6:1
+Después de la digresión en el capítulo 5 del tema principal de la reconstrucción del muro, la narración principal continúa. El conflicto que había ido aumentando de manera constante llega a su clímax, cuando el muro estaba prácticamente terminado. Este intento final de detener la obra tenía tres propósitos: dañar (vv. 2–4), asustar (vv. 5–9) y desacreditar (vv. 10–13) a Nehemías. 6:1 Cuando Sanbalat... oyó. La frase continúa la serie de frases similares (nota 2:10) y lleva al lector de regreso al tema principal de Nehemías 1:1–7:3. VOLVER NEHEMÍAS 6:1
+
+---
+
+### Nehemías 6:2
+Ono. En el extremo noroeste de Judá, lo más lejos posible de la seguridad de Jerusalén sin salir del país. Para hacerme daño. Una frase vaga, que tal vez se refiere a un asesinato (v. 10) o a una acusación posterior de que el viaje de Nehemías a Ono es para alistar a otros en la revuelta contra Persia (v. 6).
+
+---
+
+### Nehemías 6:3
+¿Por qué se debe detener la obra? Nehemías ve que el propósito básico del complot es detener la obra en el muro. La respuesta, expresada con diplomacia, encarna un rechazo decidido.
+
+---
+
+### Nehemías 6:4
+cuatro veces. Ambos bandos son persistentes a medida que el conflicto llega a su clímax. Los oponentes de Nehemías están obviamente desesperados.
+
+---
+
+### Nehemías 6:6
+La acusación es plausible: se está reconstruyendo el muro, Judá tiene antecedentes de rebelión contra sus señores y Nehemías es un líder hábil y apasionado por su patria. Las “naciones” son las provincias circundantes del Imperio persa.
+
+---
+
+### Nehemías 6:8
+Nehemías refuta con firmeza las acusaciones.
+
+---
+
+### Nehemías 6:9
+Sus manos desfallecerán. Figura que denota desánimo (véase Esdras 4:4), en este caso como resultado de la campaña de acoso psicológico. Ahora, pues, fortalece mis manos. Otra de las breves oraciones tan características de Nehemías (nota 1:4).
+
+---
+
+### Nehemías 6:10
+Semaías. No se sabe de qué se trata. Además de profeta (v. 12), también puede ser sacerdote, lo que le da acceso al templo. Semaías se encontraba confinado en su casa, tal vez con el pretexto de estar enfermo o como una acción simbólica que denotaba la necesidad de buscar un refugio seguro. Hasta este punto, Nehemías no parece tener sospechas respecto a Semaías. En la casa de Dios. Ahora se desarrolla la estratagema final. Nehemías podría buscar asilo en el patio del templo (Éxodo 21:12-14), pero no se le permite entrar al templo mismo porque no es sacerdote (Números 18:7).
+
+---
+
+### Nehemías 6:11
+El coraje de Nehemías se manifiesta nuevamente (nota de 5:7).
+
+---
+
+### Nehemías 6:12
+Dios no lo había enviado. Dado que la acción que propone Semaías es contraria a la Palabra de Dios, esto lo expone como un falso profeta (ver Deut. 13:1–5; Is. 8:19, 20).
+
+---
+
+### Nehemías 6:13
+Debería tener miedo... burlarse de mí. La idea es hacer que Nehemías se comporte como un cobarde y un transgresor de la ley, para que su Su reputación quedará arruinada y le faltará apoyo para terminar el muro.
+
+---
+
+### Nehemías 6:14
+Recuerde. El tercer uso de “Recordar” en una oración (nota 1:8) y la segunda oración imprecatoria (4:4, 5). nota), ya que el “recordar” aquí es para juicio. Noadías y el resto de los profetas. Las profecías falsas eran comunes en Jerusalén antes del exilio (véase Jeremías 23:9-32; Ezequiel 13). Es evidente que en la ciudad hay personajes influyentes que están en connivencia con los oponentes de Nehemías.
+
+---
+
+### Nehemías 6:15
+Aunque la oposición a la reconstrucción de los muros cesa cuando se terminan (v. 16), los intentos de intimidar a Nehemías continúan (6:17–19). Nehemías toma medidas para asegurar las puertas de la ciudad contra una posible agresión continua por parte de los enemigos de Israel (7:1–3). 6:15 Así quedó terminada la obra. Versículo de transición que concluye la sección que comenzó en el v. 1 y abre el episodio final de Nehemías 1:1–7:3. El último de los seis intentos de detener la obra fracasó. el vigésimo quinto día de ... Elul. 2 de octubre de 445 a. C., aunque a veces se discute que es demasiado tarde, ya que Elul normalmente ocurre en agosto/septiembre. cincuenta y dos días. Un resultado rápido, fruto de un liderazgo eficaz. Con base en la fecha de finalización antes mencionada, octubre, la obra debió haber comenzado el 1 de octubre. 12 de agosto. VOLVAMOS A NEHEMÍAS 6:15
+
+---
+
+### Nehemías 6:16
+Los pueblos que rodean a Judá ya no podrán dominar ni explotar a la comunidad como lo han estado haciendo. con la ayuda de nuestro Dios. Nehemías niega cualquier felicitación personal en el asunto y señala el factor decisivo para su consecución.
+
+---
+
+### Nehemías 6
+La relación matrimonial de Tobías con los que trabajaban en el muro proporciona un canal natural para la transferencia de información acerca de las circunstancias de Jerusalén a los oponentes de Nehemías. Los nobles de Judá. Evidentemente simpatizan con Tobías y constituyen una influyente fuente de oposición a Nehemías.
+
+---
+
+### Nehemías 6:18
+Obligados por juramento. Puede referirse a acuerdos comerciales en lugar de conexiones por matrimonio.
+
+---
+
+### Nehemías 7:1
+colocó las puertas. Esto demuestra que el muro ahora está completo (6:1). Los porteros, los cantores y los levitas. Estos funcionarios del templo parecen ser mencionados en relación con la seguridad de la muralla, presumiblemente porque es clave para la seguridad del templo mismo.
+
+---
+
+### Nehemías 7:2
+dio... encargo. Se nombran líderes para supervisar la seguridad de la ciudad. Hananías. Véase nota sobre 1:2. Temeroso de Dios. Véase la nota sobre 1:11. El fiel cumplimiento de sus deberes por parte de Hananías se basa en su profundo compromiso espiritual.
+
+---
+
+### Nehemías 7:3
+hasta que el sol caliente. Se designan guardias para asegurar las puertas durante la noche. Las puertas generalmente se abren al amanecer; esperar hasta más tarde (cuando el sol haya salido lo suficiente para que la ciudad se caliente de verdad) es una medida de seguridad para la ciudad.
+
+---
+
+### Nehemías 7:4
+La segunda sección principal del libro (7:4– 13:30) comienza con un registro de cómo Nehemías se prepara para satisfacer la necesidad de repoblar Jerusalén (vv. 4, 5) consultando un registro genealógico exiliados que regresaron antes (vv. 5–73). Esto es sustancialmente similar a Esdras 2:3– 60. 7:4 No se habían reconstruido casas. Es más probable que “estaban siendo reconstruidas”. En esa época había casas ocupadas en Jerusalén (véase 3:10, 20, 23, 24, 29). El problema es la escasa población y la falta de entusiasmo por vivir en la ciudad. La gente se contenta con vivir en el interior agrícola. NEHEMÍAS 7:4
+
+---
+
+### Nehemías 7:5
+Mi Dios lo puso en mi corazón. Véase la nota sobre 2:8. Nehemías es consciente de la dirección divina en este asunto (2:12). Inscritos por genealogía. El propósito de este registro es ayudar a repoblar Jerusalén, como quedará claro cuando se retome este tema en 11:1, 2. Nehemías quiere que la ciudad esté poblada por personas de ascendencia judía demostrable, un remanente fiel del pueblo del pacto. Libro de la genealogía... al principio. Sobre el significado teológico de esta lista, véase la nota sobre Esdras 2:1–70. La repetición de la lista subraya la continuidad de la generación de Nehemías con los primeros que regresaron.
+
+---
+
+### Nehemías 7:65
+un sacerdote con Urim y Tumim. Un método reconocido para discernir la voluntad de Dios (ver Esdras 2:63).
+
+---
+
+### Nehemías 7:73
+La comunidad del pacto se reconstruye cuando Israel renueva su pacto con Dios (7:73–10:39), dedica los muros de la ciudad (caps. 11; 12) y obedece otros aspectos de la ley (cap. 13). 7:73–10:39 Esta sección a menudo se considera intrusiva en el flujo de la narración. ¿Por qué no pasar directamente de la finalización de las murallas de la ciudad (6:15) a su dedicación (caps. 11; 12)? La respuesta probable es que no es apropiado dedicar las murallas antes de que haya suficientes habitantes en Jerusalén para constituir una ciudad funcional. 7:73 cuando llegó el séptimo mes. Como Nehemías nombra un mes de manera característica (véase la nota 1:1), esta designación numérica (véase 8:2) indica que esta sección se extrajo de otra fuente, al igual que el estilo impersonal en tercera persona. A menudo se argumenta que se ha tomado de las memorias de Esdras. La fecha corresponde al 8 de octubre de 445 a. C., solo seis días después de la finalización del muro (6:15).
+
+---
+
+### Nehemías 8:1
+la plaza delante de la Puerta de las Aguas. Ubicada en el lado este de Jerusalén, con frecuencia había plazas abiertas dentro de los muros a la entrada de las ciudades antiguas. Se lo dijeron a Esdras. El ministerio de Esdras había comenzado trece años antes. Algunos de sus frutos son evidentes ahora en que el pueblo, que se ha reunido con un propósito común, pide el Libro de la Ley para aprender más de él. No se sabe dónde ha estado Esdras en el período intermedio. Es posible que sus deberes oficiales exigieran que regresara a la corte real y que sólo viajara de regreso a Jerusalén con Nehemías. Otra posibilidad es que se haya quedado en Jerusalén en calidad de particular mientras continuaba con su ministerio de enseñanza.
+
+---
+
+### Nehemías 8:2
+ante la asamblea. Los participantes, incluidas las mujeres y los niños capaces de entender lo que está sucediendo (repetido en el v. 3), están en consonancia con los que debían estar presentes en la lectura de la ley prescrita para la Fiesta de las Cabañas en Deuteronomio 31:10-13. primer día del séptimo mes. Este es el comienzo del año civil y el tiempo para celebrar la Fiesta de las Trompetas (Núm. 29:1–6).
+
+---
+
+### Nehemías 8:3
+leyó de ella mirando hacia la plaza. Para la lectura pública de la ley en el contexto de la ratificación o renovación del pacto, véase Éxodo 24:7; Josué 8:30–35; 2 Reyes 23:1–3. La lectura (junto con la exposición, vv. 7, 8) lleva cinco o seis horas.
+
+---
+
+### Nehemías 8:6
+Amén, amén. El pueblo concuerda con la alabanza que ofrece Esdras; la repetición expresa el grado enfático de asentimiento. Levantar las manos. Levantar las manos suele acompañar la oración y la alabanza a Dios en esta época (Salmos 28:2; 63:4; 134:2; 1 Timoteo 2:8).
+
+---
+
+### Nehemías 8:8
+dio el sentido. La ley no es sólo No sólo se leyó sino que también se explicó para asegurar que la gente comprendiera el significado. También pudo haber habido traducción del hebreo al arameo. La doctrina de la perspicuidad (claridad) de las Escrituras es que las cosas necesarias para la salvación se pueden entender a partir de la Biblia sin técnicas especiales ni educación superior. Esta verdad no elimina la necesidad de una exposición fiel de las Escrituras por parte de personas capacitadas (Esdras 7:6-10).
+
+---
+
+### Nehemías 8:9
+Nehemías... Esdras... Levitas. Hay unidad entre todos los líderes en esta ocasión. Contrariamente a algunos estudios, el texto afirma claramente que Nehemías y Esdras son contemporáneos. Este día es santo... no lloréis. La santidad y el llanto no son mutuamente excluyentes (Lev. 23:26–32; Is. 6:3–5), pero en esta ocasión el dolor es inapropiado. Después de que el pueblo renueve su comprensión del mensaje de la verdad (v. 8), se ven afectados emocionalmente y lloran porque están llenos de remordimiento por el pecado pasado, lo que luego los lleva a una renovada obediencia a la verdad (vv. 13-18).
+
+---
+
+### Nehemías 8:10
+El que no tiene nada, debe compartir con el que no tiene nada (ver Sal. 22:26). Este incidente nos sirve de ilustración para entender el pecado de 1 Cor. 11:17–34. El gozo del Señor . El pueblo se regocija en la salvación y la bendición que el Señor les ha extendido. El continuo y alegre reconocimiento de su dependencia de Él será una fuente constante de fortaleza para la comunidad mientras el Señor bendice su compromiso.
+
+---
+
+### Nehemías 8:12
+ellos habían entendido las palabras. “Entendimiento” (ver vv. 7, 8) es un tema principal en el pasaje, como lo es el participación del “pueblo” (el término aparece trece veces en los vv. 1–12). NEHEMÍAS 8:12
+
+---
+
+### Nehemías 8:13
+vinieron... a estudiar. El grupo más pequeño tiene la responsabilidad de dirigir a los demás. Reconociendo su necesidad de tener una base sólida en la verdad, buscan una mayor educación, mientras que la mayoría de la gente regresa a casa.
+
+---
+
+### Nehemías 8:14
+Habitar en cabañas. Esta forma de vida temporal es un recordatorio de la vida en el desierto después de la redención de Egipto y antes de entrar en la Tierra Prometida (Levítico 23:42, 43). Es una fiesta que involucra a toda la familia. la fiesta del séptimo mes. La fiesta de los Tabernáculos (Levítico 23:34-40), se celebra durante siete días desde el día quince hasta el día veintiuno del mes, seguido de un octavo día de asamblea solemne el día veintidós del mes. mes (22-28 de octubre de 445 a. C., más el 29 de octubre). Como la reunión para el estudio de las Escrituras ocurre el segundo día del mes, hay tiempo suficiente para preparativos que deben hacerse.
+
+---
+
+### Nehemías 8:16
+la puerta de Efraín m. En la al noroeste de la ciudad (véase 3:6) pero, como la Puerta del Agua, cerca del templo Recintos.
+
+---
+
+### Nehemías 8:17
+Aunque la Fiesta de las Cabañas era celebrado anteriormente (ver Esdras 3:4), el pueblo no cumplió con el requisito de campamento, un memorial del tiempo pasado en el desierto del Sinaí (cf. Lev. 23:42, 43) A través del estudio de las Escrituras, el descuido de este elemento se remedia de alguna manera. Esto no ha ocurrido desde los días de Josué.
+
+---
+
+### Nehemías 8:18
+Durante toda la fiesta, la lectura de Al Pentateuco se le asigna un papel importante.
+
+---
+
+### Nehemías 9:1
+el día veinticuatro de este mes. 31 de octubre de 445 a. C. Hay un intervalo de solo un día antes de este nuevo Asamblea solemne. Los actos de humillación y ayuno se reanudan después de un período de aplazamiento (8:9–18) porque no ha habido oportunidad de expresar tal arrepentimiento corporativo. se reunieron. En 8:1 el pueblo se reunió para escuchar la ley; aquí se reúnen para Confesar sus pecados en respuesta a ello (v. 3).
+
+---
+
+### Nehemías 9:2
+sus pecados... sus padres . Pacto La transgresión sólo puede ser confesada por el pueblo del pacto. Véase la nota sobre Esdras. 9:7.
+
+---
+
+### Nehemías 9:3
+Ley del SEÑOR . Se lee aproximadamente tres horas, y luego se dedican otras tres horas a responder de manera apropiada En la confesión y la adoración.
+
+---
+
+### Nehemías 9:4
+las escaleras de los levitas. Estos pueden dar acceso a la plataforma (8:4), o pueden conducir hasta el templo.
+
+---
+
+### Nehemías 9:5
+En esta oración de alabanza, los levitas (vv. 4, 5) dirigirse a Dios en nombre del pueblo, ensalzándolo como creador (v. 6) y redentor (vv. 7–12), legislador y disciplinador, salvador y juez ( vv. 13–14). 31) Sobre la base de su carácter y pacto, piden a Dios que tome nota. de su angustia (vv. 32–37) en preparación para la renovación de su pacto (9:38– 10:39 y nota). La secuencia de 9:5–10:39 se asemeja a la forma del antiguo pactos: preámbulo que identifica al señor supremo (vv. 5, 6), prólogo histórico (vv. 7–37), la aceptación del pacto (9:38–10:29) y las estipulaciones del pacto (10:30–39)
+
+---
+
+### Nehemías 9:6
+La Septuaginta inserta “Y Esdras dijo” (nota de texto). Ya sea que la oración sea pronunciada colectivamente por los levitas o por Esdras, Su teología refleja su instrucción durante la década anterior.
+
+---
+
+### Nehemías 9:7
+El pueblo alaba a Dios por elegir Abraham y le entregó el pacto de la promesa (Gén. 12–22).
+
+---
+
+### Nehemías 9:9
+Dios es alabado por redimir a Israel de Egipto (Éxodo 1–19).
+
+---
+
+### Nehemías 9:13
+La alabanza de Dios continúa con Un relato de la entrega de la ley en el Monte Sinaí y las bondadosas provisiones de Dios En el desierto. 9:13 Monte Sinaí. Véase Éxodo 20. reglas correctas... buenos estatutos. La ley se percibe no como una carga sino como un Deleite (Sal. 119:5–16; Rom. 7:12).
+
+---
+
+### Nehemías 9:14
+El sábado. El sábado es un día clave Símbolo en la ley (Is. 56:2, 4, 6; Eze. 20:13, 16, 21, 24; 22:8; 23:38). VOLVER NEHEMÍAS 9:14
+
+---
+
+### Nehemías 9:15
+Juramento. Una referencia al juramento de Dios a Abraham (Éxodo 6:8).
+
+---
+
+### Nehemías 9:16
+La primera confesión de pecado. endurecieron su cerviz (también en el v. 29). Una metáfora extraída de un animal testarudo que se niega a bajar la cerviz para recibir un yugo. Esta metáfora muestra que el La gente actuó con desafío hacia Dios y sus compromisos del pacto. NEHEMÍAS 9:16 9:17 designó un líder. Véase Núm. 14:1–4. En contraste con la infidelidad de Israel está la fidelidad de Dios a su juramento a Abraham (vv. 8, 15; Esdras 9:13). nota)
+
+---
+
+### Nehemías 9:18
+Aun cuando la gracia de Dios brille en todo el mundo . Tanto más brillante cuando se compara con el pecado de Israel (Rom. 9:22-24). NEHEMÍAS 9:18
+
+---
+
+### Nehemías 9:19
+El cuidado continuo de Dios en el desierto no se debió a la obediencia de Israel, sino a su compasión, que surgió de su promesa a Abraham (vv. 7, 8).
+
+---
+
+### Nehemías 9
+Dios capacitó a los israelitas para conquistar la tierra de Canaán conforme a su promesa a Abraham (vv. 7, 8).
+
+---
+
+### Nehemías 9:25
+Cisternas ya excavadas. Cavidades en la roca que se usaban para almacenar agua de la temporada de lluvias.
+
+---
+
+### Nehemías 9:26
+Israel respondió a la fidelidad de Dios con una rebelión desobediente durante los días de los jueces. Para conocer el patrón de rebelión, opresión, petición y salvación, véase Jueces 2:10–19.
+
+---
+
+### Nehemías 9:28
+muchas veces... vuestras misericordias. Donde El pecado abundó, y sobreabundó la gracia (Rom. 5:20).
+
+---
+
+### Nehemías 9:29
+La alabanza a Dios continúa con la mención de Su paciencia durante la monarquía. 9:29 Vivirá por ellos. El pacto mosaico ofrecía vida por obediencia. (Lev. 18:5; Rom. 10:5). El fracaso de Israel en merecer la vida en la tierra da testimonio de la necesidad universal de un sustituto por medio del cual se cumplan plenamente los justos requisitos de la ley (Rom. 8:3, 4).
+
+---
+
+### Nehemías 9:31
+vosotros. En el texto hebreo, esta palabra aparece al final del versículo; también aparece al principio de la oración del versículo 6, marcando los versículos 1 y 2. 6–31 como unidad. En este punto de la oración, la celebración de la fidelidad de Dios en La historia da paso a una petición de una acción divina similar en el presente.
+
+---
+
+### Nehemías 9:32
+Las dificultades parecen pequeñas. La petición es que Dios vuelva a hacer lo que hizo en el pasado: ver la aflicción de su pueblo y acudir en su ayuda. Reyes de Asiria. Se trata de los reyes neoasirios cuya presencia se hizo sentir en Siria- Palestina desde alrededor del año 850 a. C., culminando con el ataque de Tiglat-pileser III (Pul) a Israel (2 R. 15:19), que condujo al derrocamiento del reino del norte. Después vinieron los reyes neobabilónicos a finales del siglo VII. y luego los reyes persas a mediados del siglo VI.
+
+---
+
+### Nehemías 9:33
+“Habéis sido justos”. La ejecución de las maldiciones del pacto a lo largo de la historia de Israel estuvo en perfecta armonía con el principio de justicia divina, que se encontraba en el fundamento del pacto mosaico (nota de Esdras 9:9).
+
+---
+
+### Nehemías 9:34
+Se señala a los líderes como particularmente responsables.
+
+---
+
+### Nehemías 9:36
+esclavos. Véase la nota sobre Esdras 9:9. Ni Esdras ni Nehemías, como representantes del régimen persa, buscan incitar a la rebelión. Sin embargo, el estado actual del pueblo no puede ser el previsto en las promesas del pacto original.
+
+---
+
+### Nehemías 9:37
+Estamos en gran angustia. En esta declaración está implícita una petición de ayuda (nota del versículo 32).
+
+---
+
+### Nehemías 10:39
+El pueblo no solo oró pidiendo ayuda, sino que también renovó sus obligaciones bajo el pacto mosaico. Desde el principio, el pacto mosaico tuvo que renovarse después de períodos de violación del pacto (Éx. 34; 1 S. 12; 2 R. 23). 9:38 Un pacto firme por escrito. No es la palabra usual para pacto, pero sí enfatiza el aspecto obligatorio de un acuerdo solemne. Cuando la ley se escribe y se sella, puede convertirse en un instrumento eficaz para los propósitos redentores de Dios (ver Introducción a Esdras: Características y temas principales). No descuidéis la casa de nuestro Dios. La promesa de mantener el templo y sus servicios como se especifica en los versículos anteriores es un índice del renovado compromiso espiritual del pueblo. La reconstrucción de la casa de Dios es un tema principal en Esdras y Nehemías (ver Introducción a Esdras: Características y temas principales).
+
+---
+
+### Nehemías 10
+Se enumeran los líderes que renovaron el pacto. Sorprendentemente, Esdras no está presente, ya que se lo trata como un miembro de la familia sacerdotal de Serías (10:2; véase Esdras 7:1). Esdras desempeñó un papel importante en el capítulo 8, pero ahora ha desaparecido silenciosamente de la escena. Su trabajo se completó con éxito cuando el pueblo pudo leer la ley y comprenderla por sí mismo. 10:1 En los sellos están los nombres. Esta lista de ochenta y cuatro nombres, de los cuales aproximadamente la mitad no se mencionan en ninguna otra parte, refuerza uno de los temas principales de Esdras y Nehemías: el pueblo de Dios en su conjunto, no sólo los grandes líderes, son vitales para el cumplimiento del plan redentor de Dios (véase Introducción a Esdras: Características y temas). Nehemías y Sedequías están unidos como representantes del poder civil. Muchos de los nombres sacerdotales son los de familias más que los de individuos. Toda la comunidad (vv. 28, 29) promete fidelidad a los términos del pacto, identificando y aplicando específicamente aquellas partes de las ordenanzas mosaicas que están bajo la presión más severa en sus circunstancias contemporáneas (vv. 30-39). 10:28 Todos los que se han separado. Véase Esdras 6:21. Esta renuncia a las prácticas paganas puede apuntar además, en este contexto, a quienes actuaron en relación con el tema de los matrimonios mixtos (Esdras 9; 10). Se detallan promesas particulares de obediencia: (1) Evitar los matrimonios mixtos (v. 30; véase Esdras 9:2). (2) Guardar el sábado y el año sabático (v. 31; Éx. 20:8–11; Lv. 25:1–7). (3) El sustento para el servicio del templo (vv. 32, 33). En Éxodo 30:11-16 el impuesto es de medio siclo, pero allí parece ser un impuesto particular, no anual. Alternativamente, la diferencia podría deberse al uso de un nuevo sistema monetario bajo los persas, o podría ser una concesión a los tiempos económicos difíciles. (4) Provisión de leña para el fuego del altar (v. 34), no requerida específicamente anteriormente. (5) Donación de las primicias (vv. 35–37; Núm. 18:12, 13; Deut. 26:1–11). (6) Pago de los diezmos (vv. 37, 38; véase Lev. 27:30; Núm. 18:21–24). (7) Los levitas diezman además los diezmos que reciben por el servicio del templo (vv. 38, 39).
+
+---
+
+### Nehemías 10:29
+hacer juramento. El juramento que hace el pueblo (9:15; Esdras 10:5 nota) enfatiza la naturaleza distintivamente legal del pacto mosaico en comparación con el pacto abrahámico en el que el juramento lo hace solo Dios (Gén. 12:1–3; 15; Heb. 6:13–18). Como revela más tarde el apóstol Pablo, la ley mosaica era una especie de “guardián” que no anuló el pacto de la promesa ya hecha con Abraham (Gal. 3:17, 24). A lo largo de la historia de la redención, todos los dones de Dios Los acuerdos del pacto exigen obediencia que surge de la fe en Dios y de la voluntad de observar los términos del pacto. Esto es cierto incluso en el caso del pacto abrahámico, en el que la recepción de sus bendiciones requería una fe que diera fruto en obediencia. Sin embargo, en ninguno de los pactos de Dios con Noé, Abraham, Moisés, David y la iglesia del nuevo pacto las personas se salvan por sus obras de obediencia. La justificación es siempre y únicamente por la fe en las promesas del Señor (Rom. 4:1–12). Una maldición. La ratificación del pacto implica una ceremonia de automaldición en la que los firmantes reconocen las sanciones que se impondrán a cualquiera que viole los términos del pacto e invocan dichas sanciones sobre sí mismos si actúan de manera infiel (véase Deuteronomio 28:15-68; Jeremías 34:18).
+
+---
+
+### Nehemías 11:1
+Aparte de los hombres principales de la nación y el personal del templo, pocas personas se establecieron en Jerusalén al terminarse la reparación de la muralla porque el estado de ruinas de Jerusalén desalentaba el asentamiento allí (7:4). Sin embargo, una comunidad equilibrada requiere una distribución más amplia de la población. de población, y la reparación de la muralla y las puertas ha hecho que sea menos difícil vivir allí. Recién renovado el pacto, el pueblo decide “diezmar” de entre ellos como un don santo para asegurar el funcionamiento de la “ciudad santa” (vv. 1, 18). 11:1 Echaron suertes. Esta frase vincula esta lista con las promesas de 10:30–39 (véase 10:34) y muestra la rápida implementación de esas promesas. Uno de cada diez. Poblar la ciudad con la décima parte del pueblo es el primer paso para no descuidar la casa de Dios, como se promete en 10:39. la ciudad santa. Frase poco frecuente, usada en otros lugares sólo en el v. 18; Is. 48:2; 52:1. La santidad se ha ido expandiendo: desde los vasos sagrados (Esdras 1:7; véase 8:28), hasta los sacerdotes (Esdras 8:28), hasta el pueblo (Esdras 9:2), hasta el lugar santo (Esdras 9:8), hasta las puertas (3:1) y hasta los sábados (9:14). Ahora toda la ciudad es santa, dedicada al servicio del Señor.
+
+---
+
+### Nehemías 11:2
+quienes voluntariamente ofrecieron. No se sabe con certeza si se refiere a un segundo grupo además del décimo elegido por sorteo o a El espíritu de buena voluntad que mostraron los que fueron escogidos.
+
+---
+
+### Nehemías 11
+Hay un paralelo en 1 Crónicas 9:2–22, donde también se mencionan representantes de tribus distintas de Judá, Benjamín y Leví. Sacerdotes (vv. 10–14), Levitas (vv. 15–18) y los porteros (v. 19) residen todos en Jerusalén después de que se repara el muro. En 1 Cr. 9:10–13 se hace referencia a las mismas líneas sacerdotales, con algunos nombres escritos de forma diferente. El total de 1.192 sacerdotes en Nehemías difiere de los 1.760 de 1 Cr. 9:13, pero las razones para esto no están claras. También hay diferencias inexplicables con respecto a los líderes de la familia levita en comparación con 1 Cr. Esquema del documento • Nehemías Ester Introducción a la poesía hebrea Trabajo 9:14–16 y respecto a los porteros (1 Cr. 9:17–22).
+
+---
+
+### Nehemías 11:4
+Judá... Benjamín. Véase la nota sobre Esdras 1:5.
+
+---
+
+### Nehemías 11:9
+segundo sobre la ciudad. Debido a que es difícil relacionar este nombramiento con los de 3:9, 12 o 7:2, algunos han supuesto que “segundo” se relaciona con el Segundo Barrio de la ciudad (véase 2 R. 22:14), una zona residencial en la colina occidental; sin embargo, los arqueólogos están No se sabe con certeza si esa zona estaba ocupada en ese momento.
+
+---
+
+### Nehemías 11:21
+sobre Ofel. La loma al sur del templo.
+
+---
+
+### Nehemías 11:23
+una orden del rey. La referencia puede ser a David (12:24; 1 Cr. 25) o al rey Artajerjes (Esd. 7:21–24), siendo más probable este último debido a la información que se da en el v. 24.
+
+---
+
+### Nehemías 11:25
+Una lista de quienes se asentaron nuevamente en la zona que rodea a Jerusalén. Se relaciona con Esdras 2:21–35, uniendo a Esdras y Nehemías en un todo. La lista no es exhaustiva, pero señala el alcance del asentamiento en Judá. Cf. Jos. 15.
+
+---
+
+### Nehemías 12:1
+Estas listas de sacerdotes y levitas que sirvieron en el templo de Jerusalén durante el período persa pueden resultar una lectura difícil, pero son una parte importante del panorama que se presenta: legitimidad a través de la continuidad. Los cargos sacerdotales son hereditarios, y las listas genealógicas establecen la validez de los titulares contemporáneos en el período posterior al exilio. La comunidad restaurada quiere asegurarse de que cada aspecto de su adoración corresponda a lo que Dios desea. 12:1–9 Esta lista de sacerdotes (vv. 1–7) y levitas (vv. 8, 9) que regresaron bajo Zorobabel conecta el final de Nehemías con el comienzo de Esdras, unificando toda la obra. En total se enumeran veintidós jefes (líderes) de los sacerdotes, mientras que David nombró veinticuatro divisiones sacerdotales (1 Cr. 24:7–19). Es posible que dos líneas se extinguieran durante el exilio. 12:1 Zorobabel... Jesúa. Ver nota sobre Esdras 2:2. Esdras. No es el mismo Esdras que la figura principal de Esdras y Nehemías. Ese Esdras Regresó ochenta años después de Zorobabel (nota de Esdras 7:6).
+
+---
+
+### Nehemías 12:9
+frente a ellos. Para el canto antífono, véase el versículo 24.
+
+---
+
+### Nehemías 12
+Da la línea del sumo sacerdote. Eliasib es el sumo sacerdote en los días de Nehemías (véase 3:1). Los eruditos discuten si el La línea continúa hasta el tiempo de Darío II o Darío III (véase v. 22). Una lista de jefes de familias levíticas. 12:22 Darío el Persa. Puede ser Darío II (423–404 a. C.) o Darío III (336–340 a. C.) 331). Según el historiador del primer siglo Josefo, Jaddua era sumo sacerdote en la época de Alejandro Magno (alrededor del 330 a. C.), lo que apoyaría la última identificación. Sin embargo, el Jaddua mencionado por Josefo no necesariamente es el que se menciona aquí. Además, Josefo a menudo resulta poco confiable en su análisis del período persa. El templo mismo fue dedicado anteriormente (Esdras 6:16). Esta ceremonia es para completar el muro que rodea la “casa” de Dios (el templo como tal y la comunidad). En esta sección, Nehemías escribe en primera persona (vv. 31, 38, 40). Aparte de 12:44–47, donde se repiten referencias a Nehemías en tercera persona, el resto del libro se basa en sus memorias. 12:27 buscó a los levitas. La dedicación no podía llevarse a cabo sin la ayuda de los levitas, quienes están incluidos en las listas anteriores (vv. 1–26) y ahora viven fuera de Jerusalén. La importancia del evento es obvia para quienes hicieron los preparativos cuidadosos para ello. Estos versículos muestran que el pueblo honró su promesa (10:39) y no descuidó la casa de Dios después de que terminó la emoción del día de celebración. Posiblemente “los días de Nehemías”. (v. 47) indica que esto se añadió más tarde a las memorias de Nehemías. 12:44 almacenes. Se encuentran junto al edificio principal del templo por el norte y el sur.
+
+---
+
+### Nehemías 12:12
+Esta lista se repite con ciertas variaciones de los versículos 1 al 7. Se omite el nombre Hattus (v. 2) y hay varias diferencias de ortografía.
+
+---
+
+### Nehemías 12:23
+Libro de las Crónicas. Probablemente un registro oficial del templo (véase Esdras 4:15).
+
+---
+
+### Nehemías 12:24
+David, el hombre de Dios. Deja en claro que los arreglos están sancionados divinamente. Los reyes persas estaban interesados en ordenar los asuntos de los templos de acuerdo con las costumbres locales. VOLVER NEHEMÍAS 12:24
+
+---
+
+### Nehemías 12:28
+Los cantores se reunieron. De ahí la lista en 11:22, 23.
+
+---
+
+### Nehemías 12:30
+purificado. La purificación ritual es una representación o símbolo de la pureza moral (Lev. 16:30). 12:31–39 Se lleva a cabo una gran procesión, que aparentemente comienza en la Puerta del Valle, en el muro occidental (3:13). Parte de la procesión, encabezada por Esdras (v. 36), avanza en sentido contrario a las agujas del reloj (v. 31), pasando por la Puerta del Muladar, la Puerta de la Fuente y la Puerta del Agua antes de dirigirse al templo. La otra parte de la procesión, acompañada por Nehemías (v. 38), avanza en el sentido de las agujas del reloj (v. 38), pasando por las puertas del lado norte de la ciudad antes de dirigirse al templo. Para conocer las ubicaciones, véase el cap. 3. y notas.
+
+---
+
+### Nehemías 12:31
+en el muro. Una demostración visible de lo que se ha logrado y evidencia de que los muros están construidos de manera sólida. Estos grupos pesan mucho más que un zorro (ver 4:3).
+
+---
+
+### Nehemías 12:36
+Y el escriba Esdras iba delante de ellos. Por su ascendencia sacerdotal, Esdras está calificado para dirigir el coro, mientras que Nehemías, como funcionario laico, lo sigue (v. 38).
+
+---
+
+### Nehemías 12:43
+Dios los había hecho regocijarse. El pueblo se regocija porque Dios les ha dado motivo para hacerlo mediante Su obra soberana a través de agentes humanos (véase Introducción a Esdras: Características y temas principales). Es un eco del gozo experimentado noventa años antes cuando se colocaron los cimientos del templo (Esdras 3:13). Esta vez, sin embargo, no hay llanto. Las mujeres y los niños. La inclusión de mujeres y niños subraya el gran tamaño de la celebración (nota 3:12; nota 5:1).
+
+---
+
+### Nehemías 12:45
+mandato de David y su hijo Salomón. Véase 1 Crónicas 25; 2 Crónicas 8:14.
+
+---
+
+### Nehemías 12:47
+todo Israel. El pueblo de Dios en su conjunto, no solo los grandes líderes, son vitales para lograr la obra redentora de Dios. Plan.
+
+---
+
+### Nehemías 13
+Estos extractos adicionales de las memorias de Nehemías se relacionan con su segundo período como gobernador (véase v. 6). Fue llamado nuevamente a la corte persa en 433 a. C. (nota 5:14). Su regreso puede fecharse razonablemente después de 430 a. C. y ciertamente antes de la muerte de Artajerjes en 424 a. C. Se desconoce cuánto tiempo permaneció como gobernador. Se sabe que otro individuo llegó a ser gobernador de la subprovincia persa de Yehud (Judá) antes de 407 a. C. A su regreso, Nehemías se da cuenta rápidamente de que en su ausencia relativamente breve, la conducta del pueblo se ha deteriorado considerablemente y que debe tomar medidas severas para mantener la fortaleza espiritual de la comunidad. 13:1–3 La promesa de obediencia general a la ley de Moisés (10:28, 29) incluye la separación de los pueblos vecinos (10:28). Deuteronomio 23:3–6 requiere la exclusión de cualquier amonita o moabita de una asamblea del pueblo para adorar al Señor. Sin embargo, el pueblo no se ha conformado a este aspecto de la ley a pesar de que la exclusión de “los de descendencia extranjera” está en consonancia con la promesa en 10:28, 29. En vista hay una separación religiosa, no racial o política (nota de Esdras 4:3). Probablemente no incluye a aquellos que han profesado lealtad al Señor. Los miembros de las naciones excluidas de la asamblea de Israel podrían ser incluidos si ponen su fe en Yahvé, el Señor del pacto de Israel y el único Dios verdadero. Rut la moabita, antepasada tanto de David como de Cristo, es un ejemplo destacado de esta realidad (Rut 1:1–18; 4; Mateo 13:1–20). 1:1–17). 13:1 En aquel día. La referencia bien puede ser a una celebración de la Fiesta de los Tabernáculos en un año sabático cuando se lee la ley a todo el pueblo (Deut. 31:9–13). Las referencias cronológicas en los vv. 4, 6 dejan en claro que es después del primer mandato de Nehemías como gobernador, pero no está claro cómo se relaciona el incidente con su segundo mandato. Esdras abordó el problema perenne de los matrimonios mixtos en el año 457 a. C. (nota de Esdras 9:1), y en el año 445 a. C. el pueblo se comprometió solemnemente a hacerlo (10:30). Es difícil ver cómo pudo surgir este problema si Esdras hubiera estado vivo en la década anterior. 13:23 Asdod. La provincia persa entre Yehud (Judá) y el Mediterráneo; la zona de asentamientos filisteos. Véase la nota sobre 4:7, 8. Su idioma puede ser una variante del arameo.
+
+---
+
+### Nehemías 13:2
+Contrató a Balaam. La historia de Balaam se encuentra en Números 22-24.
+
+---
+
+### Nehemías 13:3
+escuchó la ley. Aunque Esdras no está en la escena, su trabajo todavía está dando fruto (nota de 10:1–27). Una vez más (ver 8:13–18), escuchar la Palabra de Dios conduce a una obediencia renovada, la obediencia de separación.
+
+---
+
+### Nehemías 13:4
+El compromiso final de no descuidar la casa de Dios (10:39) fue violado durante la ausencia de Nehemías (v. 11), como lo fueron los mandamientos que regían tanto las prendas para el alfolí como los diezmos (10:37–39). Es necesaria una reforma tras el regreso de Nehemías. 13:4 Eliasib. Aunque es posible que este Eliasib sea el sumo sacerdote (nota 3:1), es más probable que se refiera a otro sacerdote con el mismo nombre, ya que no es probable que el sumo sacerdote esté a cargo del almacén. Tobías. Véase la nota sobre 2:10. Está muy relacionado con las clases altas de Jerusalén, pues se casó con una de ellas, mientras que su hijo se casó con otra. Es un personaje audaz y persistente que atrae a muchos partidarios.
+
+---
+
+### Nehemías 13:5
+que habían puesto previamente. Es por falta de tributo al templo que la habitación está vacía y puede estar disponible para el uso de Tobías.
+
+---
+
+### Nehemías 13:6
+No estaba en Jerusalén. Véase la nota sobre 5:14. Nehemías regresó a la corte persa en el año 432 a. C. Rey de Babilonia. Algunos reyes persas usaron este título después de la conquista del Imperio babilónico (Esdras 5:13), pero era menos común en la época de Nehemías. Su uso aquí puede indicar que el rey de Persia residía entonces en Babilonia. Pedí permiso al rey. Esta expresión no implica necesariamente un nuevo nombramiento como gobernador, pero las acciones que Nehemías toma posteriormente hacen que sea prácticamente seguro que ha recuperado su anterior condición.
+
+---
+
+### Nehemías 13:8
+Cf. Mateo 21:12, 13. Nehemías no permite concesiones y toma medidas correctivas de inmediato. Lo que se ha consagrado al Señor no debe usarse para beneficio personal y, ciertamente, no para beneficiar a quienes son antagonistas de Su causa.
+
+---
+
+### Nehemías 13:10
+Mientras sacaba las posesiones de Tobías del templo, Nehemías probablemente pregunta por qué un almacén tan grande estaba vacío en primer lugar. Es evidente que el pueblo había descuidado sus donaciones para mantener el ministerio del templo. 13:10 porciones de los levitas. Vincula esta sección con la promesa en 10:37. Los levitas no poseen tierra (Núm. 18:20–24; Deut. 14:29; 18:1), aunque algunos pueden Los levitas tenían ingresos propios (Deut. 18:8). La dependencia de los levitas del apoyo del pueblo puede explicar la renuencia de muchos levitas a abandonar Babilonia (Esd. 8:15-20). La falta de apoyo del pueblo significa que los levitas y los cantores se ven obligados a abandonar el templo y mantenerse trabajando en otro lugar.
+
+---
+
+### Nehemías 13:11
+Así que me enfrenté. Véase la nota sobre 5:7. La acción directa de Nehemías desafía a los responsables, no a los levitas que se fueron, sino a los funcionarios del templo que permitieron que surgiera tal situación. Desamparados. La promesa de no descuidar la casa de Dios (10:39) fue violada en ausencia de Nehemías.
+
+---
+
+### Nehemías 13:12
+trajeron el diezmo. Lo hicieron de acuerdo con la promesa de 10:37.
+
+---
+
+### Nehemías 13:13
+confiable. Véase Hechos 6:1–5; 2 Cor. 8:16–21. Un grupo cuidadosamente equilibrado de representantes: un sacerdote, un escriba, un levita y un laico. Sadoc es una forma corta del nombre Sedequías, probablemente una referencia al individuo mencionado en 10:1.
+
+---
+
+### Nehemías 13:14
+Acuérdate de mí. El cuarto uso de “Acuérdate” en una oración (nota 1:8) y la segunda de cuatro oraciones de Nehemías con el tema “Acuérdate de mí” (nota 5:19). Mis buenas obras. No es una expresión jactanciosa, sino “mis actos de lealtad al pacto”. Nehemías no está motivado por el beneficio personal, sino por el celo por la causa de Dios y todo lo que le pertenece.
+
+---
+
+### Nehemías 13:15
+La observancia del sábado era un problema en tiempos preexílicos (ver Jeremías 17:19–27; Amós 8:5). Hizo que las exigencias del Señor sobre el tiempo de Su pueblo entraran en conflicto con la percepción que ellos tenían de sus mejores intereses económicos. El problema parece haberse vuelto frecuente durante la ausencia de Nehemías. 13:15 Sábado... trayendo... vendieron. Tres vínculos con la promesa de 10:31 que fue violada. La gente del campo estaba trabajando en sábado para aprovechar al máximo la cosecha de uvas (finales de julio/septiembre), y también estaban trayendo productos a Jerusalén en sábado. No se dice que estuvieran vendiendo los productos en el día santo; de hecho, “el día en que vendían alimentos” sugiere que la amonestación de Nehemías se refiere a un día que no era sábado.
+
+---
+
+### Nehemías 13:16
+Tirios. Estos hombres son uno de los “pueblos de la tierra” en 10:31. El pescado es un elemento importante en la dieta en esa época. Se conserva secándolo o salándolo. La comunidad tiria en Jerusalén vende a los judíos en sábado.
+
+---
+
+### Nehemías 13:17
+Luego confronté. Nuevamente, un acercamiento directo a los responsables de permitir las violaciones del pacto, recordándoles lo que sucedió en el pasado (ver Jer. 17:19–27).
+
+---
+
+### Nehemías 13:19
+Empezó a oscurecer. Los israelitas solían contar los días de puesta del sol a puesta del sol (Levítico 23:32; Ester 4:16; Daniel 8:14). Nota del texto: La acción directa de Nehemías se extiende al cierre de las entradas a la ciudad a los comerciantes a partir del viernes por la tarde. Cuando no reciben el mensaje, él explica las consecuencias de otros intentos de sortear la situación, posiblemente mediante la creación de un mercado fuera de la muralla de la ciudad.
+
+---
+
+### Nehemías 13:22
+Entonces ordené a los levitas. Aunque primero utilizó a miembros de su séquito para hacer cumplir las regulaciones, Nehemías ahora entrega el asunto a los custodios apropiados de este aspecto de la ley de Dios para su implementación permanente. 13:22 Acuérdate. Véase la nota sobre el v. 14.
+
+---
+
+### Nehemías 13:24
+No es sólo la afrenta a Dios que implican esos matrimonios lo que enfurece a Nehemías, sino el efecto corrosivo que tienen sobre las generaciones futuras. El problema no es fundamentalmente lingüístico, sino que se refiere a la capacidad de la próxima generación para escuchar y aprender de las Escrituras hebreas. La familia, que debería ser el elemento fundamental de la comunidad del pacto, está siendo socavada. Es interesante comparar la afirmación de Malaquías de este período de que Dios busca descendencia piadosa de los matrimonios de la comunidad del pacto (Mal. 2:15).
+
+---
+
+### Nehemías 13:25
+Se arrancaron los cabellos. La acción de Nehemías se puede contrastar con la de Esdras (Esdras 9:3). No darán. Esdras en realidad disuelve las uniones ilegítimas (nota de Esdras 10:3), mientras que Nehemías solo intenta evitar tales uniones en el futuro mediante la adhesión a los términos de su compromiso anterior (10:30) y añadiendo las palabras “o por vosotros mismos”.
+
+---
+
+### Nehemías 13:26
+El argumento va de mayor a menor: “Si Salomón no fue perdonado, ¡cuánto menos seremos perdonados nosotros!”. La referencia “ pecar ” se refiere a la participación de Salomón en cultos paganos traídos a Jerusalén por algunas de sus muchas esposas. El problema no es con las mujeres extranjeras que renuncian a sus dioses y prometen fidelidad al Señor, como Rut la moabita (véase Rut 1:16). Lo que hay que evitar es la influencia insidiosa de una madre comprometida con la adoración de los dioses paganos.
+
+---
+
+### Nehemías 13:28
+erno. Su matrimonio es doblemente penoso, primero, porque un sumo sacerdote en particular no debe casarse con una extranjera (Lev. 21:14), y segundo, porque Sanbalat es un enemigo (2:19; 4:1; 6:1). VOLVER NEHEMÍAS 13:28
+
+---
+
+### Nehemías 13:29
+Acordaos de ellos. El sexto uso de “recordar” en una oración (nota 1:8) y la tercera oración imprecativa (nota 4:4, 5). Cualquier corrupción de las normas de conducta que deben prevalecer en la comunidad del pacto es grave, pero cuando la traición emana de los responsables de promulgar y mantener esas normas, la situación es doblemente vergonzosa y peligrosa.
+
+---
+
+### Nehemías 13:31
+La madera. Las contribuciones de madera se hacen de acuerdo con la promesa de 10:34, 35. Acuérdate de mí. Véase la nota sobre el v. 14. El libro no termina con la nota alta de 12:27–47, sino con la nota del fracaso en el cumplimiento de las promesas de 10:30–39 y la necesidad continua de reforma. El pueblo de Dios no ha llegado a un lugar de descanso. Esdras y Nehemías muestran la devoción de los fieles al templo de Dios y a la comunidad que lo rodea, una devoción que llega a la madurez en Cristo y su iglesia (1 Cor. 3:5–17; Efe. 2:21, 22; 4:16; Heb. 3:1–6). NEHEMÍAS 13:31 NOTAS AL PIE DE NEHEMÍAS 2 1 O memorial NOTAS AL PIE DE PÁGINA DE NEHEMÍAS 3 2 Hebreo él 1 O señores 2 O de la ciudad vieja 3 O capataz de la mitad de la porción asignado a ; también versículos 12, 14, 15, 16, 17, 18 4 Un codo era aproximadamente 18 pulgadas o 45 centímetros 1 O esquina ; también versículos 20, 24, 25 2 O Puerta de Hammiphkad NOTAS AL PIE DE PÁGINA PARA NEHEMÍAS 4 3 Cr 3:33 en Hebreo 4 ¿O se encomendarán a Dios? 5 Cr 4:1 en hebreo 1 Judá en hebreo dijo 2 El significado del hebreo es incierto 3 Lectura probable; hebreo cada uno su arma el agua NOTAS AL PIE PARA NEHEMÍAS 5 1 seno hebreo 2 Comparar Vulgata; Hebreo les quitó con comida y vino después 3 Un siclo era aproximadamente 2/5 onza u 11 gramos 4 O preparado para NOTAS AL PIE DE NEHEMÍAS 6 1 Hebreo Gashmu 2 Hebreo falta Oh Dios 3 ¿O entraría en el templo para salvar? Su vida NOTAS AL PIE DE PÁGINA DE NEHEMÍAS 7 1 Compare Esdras 2:66 y los márgenes de algunos manuscritos hebreos; en hebreo falta Sus caballos... 245 2 Un dárico era una moneda que pesaba aproximadamente 1/4 de onza u 8,5 gramos 3 Una mina equivalía a aproximadamente 1 1/4 libras o 0,6 kilogramos 4 Lectura probable; en hebreo faltan minas de plata NOTAS AL PIE DE PÁGINA PARA NEHEMÍAS 8 1 Vulgata; Hebreos y los levitas 2 O con interpretación , o párrafo por párrafo 3 O refugios temporales NOTAS AL PIE DE NEHEMÍAS 9 1 Hebreo la descendencia de Israel 2 La Septuaginta añade Y Esdras dijo 1 metal hebreo 1 Cr 10:1 en hebreo 2 En hebreo faltan los nombres de NOTAS AL PIE PARA NEHEMÍAS 10 3 Cr 10:2 en hebreo 4 En hebreo faltan los nombres de 1 siclo equivalía aproximadamente a 2/5 onza u 11 gramos NOTAS AL PIE DE NEHEMÍAS 11 1 Hebreo nueve manos 2 Comparar Septuaginta; hebreo Jeshaiah, y después de él Gabbai, Salai, 928 3 Comparar Septuaginta, Vulgata; comienzo hebreo 1 Mano hebrea NOTAS AL PIE DE NEHEMÍAS 12 1 O de la ciudad vieja 1 O líderes NOTAS AL PIE DE NEHEMÍAS 13 1 La palabra hebrea puede significar mal , daño o desastre , dependiendo del contexto. El LIBRO de Ester TÍTULO El libro, que lleva el nombre de su personaje principal, siempre se ha conocido como “Ester”. Ester, una comunidad diásporica que vivía en la capital persa de Susa, alrededor del año 480 a. C., se vio arrastrada por acontecimientos que escapaban a su control y se convirtió en la esposa del emperador. Su estatus real le permitió, bajo la dirección de Dios, intervenir y revertir la amenaza de aniquilación de su pueblo. El libro no se menciona ni se cita explícitamente en el Nuevo Testamento, pero en la tradición rabínica, no es sorprendente que se leyera en la fiesta de Purim (véase Fecha y ocasión). AUTOR Aunque se desconoce el autor del libro de Ester, su interés por el origen y la observancia de la fiesta de Purim, su intenso nacionalismo y su íntimo conocimiento de la corte persa, las costumbres y la geografía sugieren que era un judío persa que vivía en Susa. Se ha sugerido a Mardoqueo como el autor, pero no se puede confirmar. Las sugerencias modernas de una mujer La autoría está en desacuerdo con las prácticas normales de la cultura de la que proviene el libro. FECHA Y OCASIÓN La fecha más temprana posible para el libro es poco después de los acontecimientos descritos en él, es decir, mediados del siglo V a.C. La última fecha posible es durante el siglo I a.C. Los eruditos prefieren en general una datación de finales del siglo V o IV, y señalan la evidencia lingüística, así como la actitud favorable del autor hacia el rey persa y los gentiles en general, como evidencia de una fecha temprana. El autor de Ester escribió su libro para explicar el origen de la celebración de Purim, para establecer Purim como una festividad celebrada por cada nueva generación de judíos y para regular su observancia (9:20-32). También transmitió el mensaje de que era posible que los judíos trabajaran dentro de las estructuras gubernamentales de un imperio pagano de tal manera que el antagonismo de sus enemigos pudiera, con la ayuda divina, ser frustrado. Además, transmitió que Dios es capaz de liberar y proteger a Su pueblo mediante el ordenamiento providencial de las circunstancias, no solo mediante milagros dramáticos. GÉNERO ¿Se trata de una narración histórica, hábilmente escrita para sacar a la luz ciertas verdades? ¿O es una ficción piadosa, destinada a poner en evidencia ¿Las mismas verdades? La gran mayoría de los eruditos modernos se inclinan por la segunda opción, aunque el libro no contenga ninguna intervención obviamente sobrenatural, como milagros, que tan a menudo se utilizan para calificar una obra de fantasiosa. Sin embargo, hay características significativas que apuntan a la exactitud histórica de la narración. Por ejemplo, el banquete en el tercer año de Asuero (Jerjes) (1:3) corresponde con el gran concilio de 483 a. C. para planificar la invasión de Grecia, como lo relata el historiador griego Heródoto. El intervalo de cuatro años entre el banquete de 1:3 y el séptimo año del reinado de Asuero, cuando Ester fue llevada ante la presencia real (2:16), corresponde al tiempo en que Asuero estuvo fuera luchando contra los griegos (véase la nota de 2:1). El autor también revela un conocimiento impresionante de la disposición de Susa y especialmente del palacio. En el libro se encuentran muchos términos persas para objetos y nombres persas, y casi todos los nombres persas son nombres persas. Algunos de ellos también están atestiguados en antiguos textos persas. Las dificultades sobre cuestiones como el número de provincias del Imperio persa (1:1) y la falta de testimonio externo de la existencia de Vasti (1:9), Ester y Mardoqueo (2:5) no son tan significativas o insuperables como parecen a algunos eruditos. CARACTERÍSTICAS LITERARIAS El libro de Ester es famoso por la alta calidad de su arte literario, que funciona como el principal vehículo para su significado religioso. El autor utiliza hábilmente las tensiones narrativas creadas por reversiones o agudos contrastes de fortunas y expectativas, así como por roles que a menudo son de naturaleza altamente irónica. Observe las dos descripciones de banquetes ofrecidos por Asuero y su esposa, la primera descrita con todo detalle y la segunda presentada concisamente (1:1-9); el sorprendente contraste entre el retrato inicial del rey como poderoso y pomposo (1:1-8) y la posterior revelación de su incompetencia y debilidad; el efectivo contraste entre la respuesta del rey cuando Vasti no se presenta ante él y cuando Ester aparece sin anunciarse (1:11-21; 5:1-3); el irónico revés de la carrera de Amán (6:4-12); la patética escena en la que Amán suplica la misericordia de Ester, solo para ser acusado de intento de violación (7:7-9); y la justicia poética de colgar a Amán en su propia horca. El último es un ejemplo de los cambios irónicos en la suerte y la posición de Amán y Mardoqueo (7:9, 10; 8:1, 2; 9:25). Tales reversiones, comparadas con las del éxodo, El exilio babilónico, e incluso la crucifixión y la resurrección, revelan sutilmente la mano de Dios en la historia de la salvación de su pueblo. El escritor también utiliza la repetición o duplicación para entrelazar las distintas partes de la historia. Por ejemplo, Observe las tres referencias a registros oficiales (“crónicas”) ubicadas en puntos de inflexión significativos en la narrativa (2:23; 6:1; 10:2). Hay tres conjuntos de banquetes pareados que marcan el principio, el medio y el final del libro: los banquetes de Asuero (1:3, 4, 5–8), Ester (5:4–8; 7:1–10), y las dos celebraciones de Purim (9:18–32). Véase también el tema del banquete en 1:9; 2:18; 3:15; 8:17; 9:17; la triple mención del tamaño del imperio de Asuero (1:1; 8:9; 9:30); la promesa repetida a Ester de “hasta la mitad de mi reino” (5:3, 6; 7:2; véase 9:12); La insistencia repetida en que los hebreos no saquearon a sus enemigos (9:10, 15, 16); los dos relatos de la identidad oculta de Ester (2:10, 20); la doble reunión de vírgenes (2:8, 19); los dos intercambios de Amán con su esposa y amigos (5:10-14; 6:13, 14); los dos velos sobre la cabeza de Amán (6:12; 7:8); las dos referencias al apaciguamiento de la ira de Asuero (2:1; 7:10); y los dos recordatorios de que las leyes de los medos y los persas no pueden ser alteradas (1:19; 8:8). El uso del número siete es digno de mención (1:5, 10, 14), como lo es la repetida petición y recepción de favor de Ester (2:9, 15, 17; 5:2, 8; 7:3; 8:9). La técnica literaria de la premonición también se emplea en el libro. Lo más sorprendente es la predicción de la esposa de Amán de que él “caería seguramente” porque Mardoqueo era judío (6:13). El autor es un maestro del suspenso y controla bien el ritmo de la narración. Las constantes referencias a El tiempo no sólo presenta los acontecimientos como historia (1:1, 2) y subraya el tema de la obra providencial de Dios en la historia, sino que también mantiene la historia en movimiento (por ejemplo, 2:1, 15, 19, 21; 3:1). El autor de Ester se basa creativamente en los aspectos simbólicos o típicos de los nombres de dos de los personajes principales para mostrar cómo el antagonismo personal entre Amán, el archienemigo de los judíos, y Mardoqueo, el judío fiel, era parte del conflicto histórico entre Israel y los amalecitas. Este conflicto proporciona la base para la conspiración contra todos los judíos (nota 2:5; 3:1). Nota). Las similitudes en la redacción, el contexto, la línea argumental y el énfasis también sugieren que la historia de José fue un modelo importante para el escritor de Ester (nótese las similitudes entre 2:2–4 y Génesis 41:34–37; 3:10; Génesis 41:1–20). 41:42; 8:6; y Génesis 44:34). CARACTERÍSTICAS Y PRINCIPIOS TEMAS En el libro se entrelazan varios temas importantes. El tema de los banquetes establece el marco de la acción principal de la narración, que culmina con la celebración de Purim y contrasta con el tema del ayuno (4:3, 16; 9:31). Un contraste entre la obediencia y la desobediencia también recorre el libro. La desobediencia de Vasti en el capítulo 1 prepara el terreno para los desafíos que enfrenta Ester en cuanto a obedecer a Mardoqueo (2:10, 20; 4:8–16) y oponerse a la ley del rey (4:11, 16; 5:1, 2). El escenario también está preparado para la negativa de Mardoqueo a obedecer la orden de Amán y su disposición contraria a llevar a cabo las instrucciones de Ester (4:17) y a servir tanto al rey persa como a los mejores intereses de los judíos (10:3). El tema de la protección providencial de los judíos, como se indica en 4:14, es fundamental en la narración y es una razón de la importancia continua del libro en la comunidad de fe. Relacionado con este tema está el del descanso y el alivio de los enemigos, que se conmemora en la fiesta de Purim (9:16, 22; véase Deut. 25:19). TEOLOGÍA DE ESTER La teología de un libro que no menciona explícitamente a Dios puede parecer un concepto elusivo. Es digno de elogio que el autor transmita de manera discreta a través de la narración que Dios siempre está presente con su pueblo, aun cuando su presencia no sea obvia o reconocida. El patrón de eventos que describe solo puede explicarse por la mano invisible de Dios en acción. La mayoría de los análisis de la estructura literaria del libro identifican el capítulo 6 como el eje de la historia, y ese capítulo no se centra ni en Ester ni en Mardoqueo, sino en un rey que, por alguna razón, no puede conciliar el sueño. Si el sueño es un don dado por Dios (Salmo 127:2), ¿no es el insomnio un ¿Señal de que Él está obrando? Además, en 4:14 Mardoqueo expone su creencia de que no existen las casualidades en la vida. “De otro lugar” apunta oblicuamente a Dios como la fuente de ayuda y como el que ha llevado a Ester a La posición real que ocupa. Los actos de duelo, ayuno y cilicio en 4:3, 16 no son meras expresiones convencionales de dolor; encarnan una creencia en Dios y estarían acompañados de oración. De manera similar, la voz pasiva indirecta “se había convertido” (9:22) invita a la pregunta sobre el agente instrumental que efectuó este cambio. De estas maneras y otras, el autor insinúa repetidamente la presencia de Dios detrás de los incidentes descritos. La narración también plantea la cuestión de cómo Dios puede tener providencialmente el control de los acontecimientos en la tierra mientras individuos como Amán, empeñados en cometer un genocidio, son capaces de alcanzar una posición poderosa de influencia. La respuesta tiene que estar en el hecho de que nuestro mundo sigue en rebelión contra Dios mientras Él lleva a cabo sus propósitos de bendición y juicio en él. “El Señor ha hecho todas las cosas para su propio bien, aun al impío para el día de la angustia” (Prov. 10:13). 16:4). Dios puede retirar su mano restrictiva tanto para poner de manifiesto la hostilidad virulenta de los hombres malvados como para inducir una dependencia más profunda de Sí mismo entre aquellos cuya confianza está puesta en Él. La necesidad de cultivar esa mayor confianza y Una fe más fuerte se hace evidente en la postura comprometida de Mardoqueo y Ester al comienzo de la narración. A diferencia de Daniel, quien se adhirió a las prácticas dietéticas judías (Dan. 1:8) y no ocultó su lealtad (Dan. 2:28; 6:16), Mardoqueo y Ester ocultaron inicialmente su nacionalidad y creencias debido a la presión de asimilarse a la cultura circundante. Solo los acontecimientos en los que fueron sorprendidos los llevaron a revelar sus antecedentes. Por último, el libro es una ilustración adecuada de las ambigüedades de la providencia divina en una época en la que el Señor no habla a través de sus profetas. Israel, en el exilio, vivió en una época de ambigüedad. Mardoqueo y Ester, miembros de la comunidad exílica, no disfrutaron de una revelación explícita del camino a seguir. Ellos y sus compañeros judíos necesitaban confiar en Dios, y Dios los encuentra de maneras sorprendentes a medida que se desarrolla la narración. Hoy, el pueblo de Dios debe lidiar a menudo con una ambigüedad similar. Mientras esperamos el regreso de Cristo, no siempre conocemos el camino claro a seguir cuando debemos tomar decisiones y enfrentar las dificultades. inesperados en nuestras vidas. Debemos confiar en el Señor y seguir Su voluntad revelada mientras Él obra los acontecimientos en nuestras vidas de maneras que no anticipamos. ESTER EN LA HISTORIA MÁS AMPLIA DE LA BIBLIA La aparente ausencia de Dios en Ester no le resta valor. Por su contribución al desarrollo del mensaje permanente de las Escrituras. La narración ejemplifica la estructura divinamente ordenada de la historia humana que se expone en el protoevangelio, la enemistad entre las dos semillas (Gn. 3:15). Se centra en la supervivencia del pueblo de Dios en un momento en que el poder político del imperio de este mundo tiene la supremacía, y ellos mismos son débiles e indefensos. Además, aunque no se nombra a Dios, está lejos de estar ausente. Aunque su pueblo no debe esperar demostraciones visibles, abrumadoras y milagrosas del poder divino para transformar su situación, Dios sigue teniendo un firme control mediante su intervención providencial. Él gobierna verdaderamente “todas sus criaturas y todas sus acciones”. En su gracia, Él protege incluso su testimonio vacilante. CRISTO EN ESTER No hay profecías directas de Cristo en Ester. Sin embargo, el relato de la intervención para proteger a la comunidad en los días de Ester sirve para despertar el deseo de la mayor intervención de todas: la venida del Mesías. HISTORIA DE LA INTERPRETACIÓN La cuestión de si el libro de Ester pertenece al canon de las Escrituras fue planteada desde el principio tanto por judíos como por judíos. Los cristianos, aunque el elogio del libro a la La popular fiesta de Purim fue un argumento sólido a favor de su inclusión en el canon judío. Las objeciones expresadas por algunos cristianos a la canonicidad de Ester incluían su ausencia en algunas de las primeras listas de libros canónicos, su falta de cita en el Nuevo Testamento, su escasez de referencias abiertas a Dios y a las prácticas religiosas, su excesivo nacionalismo judío y su espíritu de venganza. Algunas de estas objeciones fueron aliviadas por la versión ampliada del libro de Ester que se encuentra en la Septuaginta (la traducción griega del Antiguo Testamento). Este texto de la Septuaginta contiene más de cien versículos que no se encuentran en el texto hebreo, lo que hizo que el libro fuera más aceptable desde el punto de vista religioso para algunos. Estas adiciones incluyen un sueño de Mardoqueo sobre la destrucción venidera de los judíos y oraciones de Mardoqueo y Ester por la liberación. Sin embargo, cuando las iglesias protestantes juzgaron a la Cuando se decidió que la versión hebrea más corta de Ester era la versión autorizada, resurgieron las objeciones a la canonicidad del libro. La violencia en el libro es una especie de guerra civil, que Cicerón llamó la peor de todas las calamidades. El autor de Ester muestra el alivio del pueblo cuando triunfa la justicia y no critica los medios empleados, como el ahorcamiento de los hijos de Amán. Pero sería un error considerar estos hechos como modelos de conducta. La situación extrema y la amenaza bajo la que sucedieron limita lo que se puede concluir de ellos. El autor no No debemos involucrarnos en reflexiones morales sobre la matanza masiva y los motivos de los vengadores. El lector que tenga dificultades con algunas de las preguntas que surgen debe acudir a otros lugares, como los profetas, Job o Apocalipsis, donde el análisis incluye esas preguntas y se pueden encontrar respuestas. En el lado positivo, el libro de Ester da testimonio claro de la mano invisible de la providencia que no permitirá que el pueblo del pacto sea destruido por completo. ESQUEMA DE ESTER I. INTRODUCCIÓN (caps. 1; 2) A. La caída de la reina Vasti (cap. 1) B. El ascenso de la reina Ester (2:1–18) C. Una conspiración descubierta por Mardoqueo (2:19–23) II. AMAN CONSPIRA PARA DESTRUIR A LOS JUDIOS (3:1–5:14) A. Promoción y complot de Amán contra los judíos (cap. 3) B. El contraplan de Mardoqueo (cap. 4) C. La audiencia no invitada de Ester con el rey (5:1–8) D. El plan de Amán de colgar a Mardoqueo (5:9-14) III. EL SEÑOR SALVA A LOS JUDÍOS (6:1–9:16) A. La humillación de Amán y La recompensa de Mardoqueo (6:1–13) B. La ejecución de Amán (6:14–7:10) C. El plan para la liberación de los judíos (cap. 8) D. La victoria de los judíos (9:1–16) IV. CONCLUSIÓN (capítulos 9 y 10) A. Establecimiento de la fiesta de Purim (9:17–32) B. Epílogo (cap. 10) LOS BANQUETES DEL REY 1 En los días de Asuero, el Asuero que reinó desde la India hasta Etiopía sobre 127 provincias, 2 En aquellos días, estando el rey Asuero sentado en su trono real, en Susa, la fortaleza, 3 En el tercer año de su reinado hizo un banquete para todos sus funcionarios y servidores. El ejército de Persia y Media y los nobles y gobernadores de las provincias estaban delante de él, 4 5 Y cuando estos días se cumplieron, el rey hizo un banquete para todo el pueblo que estaba en Susa la ciudadela, desde el mayor hasta el menor, que duró siete días en el patio del jardín del palacio del rey. 6 Había cortinas de algodón blanco y colgaduras de violeta sujetas con cordones de lino fino y púrpura a varillas de plata. 1 y columnas de mármol, y también divanes de oro y plata sobre un pavimento de mosaico de pórfido, mármol, nácar y piedras preciosas. 7 8 La bebida se servía en vasos de oro, vasos de diferentes clases, y el vino real se repartía según la generosidad del rey. 9 Y se bebía según este edicto: «No hay obligación», pues el rey había dado órdenes a todo el personal de su palacio de que hicieran lo que cada uno deseara. 9 La reina Vasti también ofreció un banquete para las mujeres en el palacio del rey Asuero. LA NEGATIVA DE LA REINA VASHTI 10 El séptimo día, estando el corazón del rey alegre por el vino, mandó a Mehumán, Bizta, Harbona, Bigta, Abagta, Zetar y Carcas, los siete eunucos que servían ante el rey Asuero, 11 para traer a la reina Vasti ante el rey con su corona real, 1 Para mostrar a los pueblos y a los príncipes su belleza, pues era de hermoso aspecto. 12 Pero la reina Vasti se negó a acudir a la orden del rey dada por medio de los eunucos. Ante esto, el rey se enfureció y se encendió su ira. 13 Entonces el rey habló a los sabios que conocían los tiempos (porque así procedía el rey con todos los que eran versados en la ley y el juicio), 14 Los hombres que estaban junto a él eran Carsena, Setar, Admata, Tarsis, Meres, Marsena y Memucán, los siete príncipes de Persia y 15 «¿Qué se debe hacer, según la ley, con la reina Vasti, por no haber cumplido el mandato del rey Asuero dado por medio de los eunucos? » 16 Entonces Memucán dijo delante del rey y de los oficiales: No sólo ha pecado la reina Vasti contra el rey, sino también contra todos los oficiales y contra todos los pueblos que están en todas las provincias del rey Asuero. 17 Porque la conducta de la reina será notoria a todas las mujeres, y hará que ellas miren con malos ojos a sus maridos. desprecio, porque dirán: "El rey Asuero mandó que trajeran a la reina Vasti ante él, y 18 Hoy mismo las mujeres nobles de Persia y Media que han oído de la conducta de la reina 19 Si al rey le place, que salga de su mano una orden real, y que se escriba entre las leyes de los persas y de los medos, para que no sea revocada, que Vasti nunca más se presente ante el rey Asuero , y que el rey dé su puesto real a otra que sea mejor que ella. 20 21 Este consejo agradó al rey y a los príncipes, y el rey hizo como propuso Memucán. 22 Envió cartas a todas las provincias reales, a cada provincia en su propia escritura y a cada pueblo en su propio idioma, para que cada hombre fuera señor de su propia casa y hablara según el idioma de su pueblo. ESTER ELEGIDA REINA 2 Después de estas cosas, cuando se calmó la ira del rey Asuero, se acordó de Vasti, de lo que ella había hecho y de lo que se había decretado contra ella. 2 Entonces los jóvenes del rey que lo servían dijeron: «Que se busquen para el rey jóvenes vírgenes y de buena apariencia. 3 Y que las mujeres de la casa de Asuero sean vírgenes y hermosas. 4 Que el rey designe oficiales en todas las provincias de su reino para que reúnan a todas las jóvenes vírgenes y hermosas en el harén de Susa, la ciudadela, bajo la custodia de Hegai, el eunuco del rey, que está a cargo de las mujeres. Que se les den sus cosméticos. 5 Y que la joven que agrade al rey sea reina en lugar de Vasti. Esto agradó al rey, y así lo hizo. 5 Había entonces en Susa, la ciudadela, un judío que se llamaba Mardoqueo, hijo de Jair, hijo de Simei, hijo de Cis, benjamita. 6 7 Ester, hijo de Hadasa, era hija de su tío, y era de hermoso aspecto . Cuando su padre y su madre murieron, Mardoqueo la tomó por hija suya. 8 Así que, cuando se proclamó la orden del rey y su edicto, Y cuando muchas mujeres jóvenes se reunieron en Susa, 9 Y la joven agradó a Hegai y se ganó su favor. Entonces él se apresuró a proveerla de sus cosméticos y su ración de comida, y de siete jóvenes escogidas del palacio real, y a llevar a Ester al palacio del rey, donde estaba Hegai, que estaba a cargo de las mujeres. 10 Ester no había dado a conocer su pueblo ni sus doncellas, y ella y sus doncellas habían llegado al mejor lugar del harén. 11 Y todos los días Mardoqueo andaba delante del patio del harén para saber cómo estaba Ester y qué le pasaba. 12 Cuando llegó el turno de cada joven para presentarse ante el rey Asuero, después de haber estado bajo las ordenanzas de las mujeres durante doce meses (porque este era el período regular de su embellecimiento, seis meses con aceite de mirra y seis meses con especias y ungüentos para mujeres), 13 Cuando la joven entró en la casa del rey de esta manera, se le dio todo lo que ella deseaba llevar consigo desde el harén hasta el palacio del rey. 14 Por la tarde entraba y por la mañana regresaba al segundo harén bajo la custodia de Shaashgaz, el hijo del rey. eunuco, que estaba a cargo de las concubinas. Ella no volvería a presentarse ante el rey, a menos que el rey se agradara de ella, y ella fuese llamada por su nombre. 15 Cuando le llegó el turno a Ester, hija de Abihail, tío de Mardoqueo, quien la había tomado por su esposa, Su propia hija, para presentarse ante el rey, no pidió nada, excepto lo que le pidió Hegai, eunuco del rey, que estaba a cargo de 16 Y cuando Ester fue llevada al rey Asuero, a su palacio real, en el mes décimo, que es el mes de Tebet, en el séptimo año de su reinado, 17 El rey amó a Ester más que a todas las mujeres, y ella halló gracia y favor ante sus ojos. más que todas las vírgenes, de modo que puso la corona real 1 sobre su cabeza y la hizo reina en lugar de Vasti. 18 Después el rey hizo un gran banquete para todos sus funcionarios y servidores, el banquete de Ester. También concedió la remisión de impuestos a las provincias y repartió obsequios con generosidad real. MARDOQUEO DESCUBRE UNA CONSPIRACIÓN 19 Cuando las vírgenes fueron reunidas la segunda vez, Mardoqueo estaba sentado a la puerta del rey. 20 Ester no había dado a conocer su parentela ni su pueblo, como Mardoqueo se lo había ordenado, porque Ester obedeció. 21 En aquellos días, mientras Mardoqueo estaba sentado a la puerta del rey, Bigtán y Teres, dos eunucos del rey que guardaban la puerta, se enojaron y procuraron poner mano en el rey Asuero. 22 Esto llegó a conocimiento de Mardoqueo, y lo hizo saber a la reina Ester, y Ester lo hizo saber al rey en nombre de Mardoqueo. 23 Cuando se investigó el asunto y se descubrió que era así, ambos hombres fueron ahorcados en la horca. 2 Y fue registrado en el libro de las crónicas en presencia del rey. AMAN CONSPIRA CONTRA LOS JUDIOS 3 Después de estas cosas el rey Asuero engrandeció a Amán agagueo hijo de Hamedata, y le dio poder. y puso su trono sobre todos los oficiales que estaban 2 Y todos los siervos del rey que estaban a la puerta del rey se inclinaron y rindieron homenaje a Amán, porque así lo había ordenado el rey respecto a él . 3Entonces los siervos del rey que estaban a la puerta del rey le dijeron a Mardoqueo: «¿Por qué desobedeces la orden del rey?» . 4 Y como ellos le hablaban día tras día, y él no los escuchaba, se lo dijeron a Amán, para ver si las palabras de Mardoqueo se mantendrían, pues él les había declarado que era judío. 5 Y cuando Amán vio que Mardoqueo no se inclinaba ni le rendía homenaje, se llenó de ira. 6 Pero Amán no quiso poner sus manos sobre Mardoqueo solamente, así que, como le habían informado quién era el pueblo de Mardoqueo, procuró destruir a todos los que estaban en el lugar. los judíos, el pueblo de Mardoqueo, por todo el reino de Asuero. 7 8 Y dijo Amán al rey Asuero: Hay un pueblo esparcido y dispersado entre los pueblos en todas las provincias de tu reino. Sus leyes son diferentes de las de cualquier otro pueblo, y no guardan las leyes del rey, de modo que no es provechoso para el rey tolerarlos. 9 Si le place al rey, decrete que sean destruidos, y yo pagaré diez mil libras. prendas 1 10 “ Y pondré plata en manos de los que tienen a su cargo los negocios del rey, para que la pongan en los tesoros del rey.” 11 El rey tomó el anillo de su mano y se lo dio a Amán agagueo, hijo de Hamedata, enemigo de los judíos. 12 Y el rey dijo a Amán: «El dinero se te ha dado a ti y también al pueblo, para que hagas con él como bien te parezca». 12 13 Entonces se convocó a los escribas del rey el día trece del primer mes, y se escribió un edicto, conforme a todo lo que había ordenado Amán, a los sátrapas del rey, a los gobernadores de todas las provincias y a los funcionarios de todos los pueblos, a cada provincia en su propia escritura y a cada pueblo en su propia lengua. Fue escrito en nombre del rey Asuero y sellado con el anillo del rey. 14 Se enviaron cartas por medio de correos a todas las provincias del rey con instrucciones de destruir, matar y aniquilar a todos los judíos, jóvenes y viejos, mujeres y niños, en un solo día, el día trece del mes duodécimo, que es el mes de Adar, y saquear sus bienes. 15 Se debía publicar una copia del documento como decreto en cada provincia, mediante proclamación a todos los pueblos para que estuvieran preparados para ese día. 16 Los correos salieron apresuradamente por orden del rey, y el decreto fue publicado en Susa, la ciudadela. Y el rey y Amán se sentaron a beber; pero la ciudad de Susa estaba sumida en el caos. ESTER ACEPTA AYUDAR A LOS JUDÍOS 4 Cuando Mardoqueo supo todo lo que se había hecho, rasgó sus vestidos, se vistió de cilicio y de ceniza, y salió por la ciudad, gritando con grande y amargo clamor. 2 Subió a la entrada de la puerta del rey, porque a nadie se le permitía entrar por la puerta del rey vestido de cilicio. 3 Y en todas las provincias y adonde llegaba la orden y el decreto del rey, había gran duelo entre los judíos, con ayuno, llanto y lamentación; y muchos de ellos estaban echados en la tierra. en cilicio y ceniza. 4 Cuando las doncellas de Ester y sus eunucos fueron a decírselo, la reina se puso muy triste y envió prendas para vestir a Mardoqueo, a fin de que se quitara el cilicio, pero él no las aceptó. 5 Entonces Ester llamó a Hatac, uno de los eunucos del rey, que estaba designado para atenderla, y le ordenó que fuera a ver a Mardoqueo para saber qué era aquello y por qué. 6 Hatac salió a ver a Mardoqueo a la plaza de la ciudad, frente a la puerta del rey, 7 y Mardoqueo le contó todo lo que le había sucedido, y la suma exacta de dinero que Amán había prometido pagar a los tesoros del rey por la destrucción de los judíos. 8 Mardoqueo también le dio una copia del decreto escrito emitido en Susa para su destrucción, para que se lo mostrara a Ester y se lo explicara y le ordenara que fuera al rey a pedirle su favor. 9 Y Hatac fue y le contó a Ester lo que Mardoqueo había dicho. 10 Entonces Ester habló a Hatac y le ordenó que fuera a Mardoqueo y le dice: 11 “Todos los servidores del rey y el pueblo de las provincias del rey saben que si un hombre o una mujer entra en el patio interior para presentarse ante el rey sin ser llamado, una sola ley les aplica: la pena de muerte, excepto aquel a quien el rey le extienda el cetro de oro para que sobreviva. En cuanto a mí, no he sido llamado para presentarme ante el rey en estos treinta días”. 12 Y le contaron a Mardoqueo lo que Ester había dicho. 13 Entonces Mardoqueo les dijo que respondieran a Ester: «No pienses que en el palacio del rey escaparás más que todos los demás judíos. 14 Porque si guardas silencio en este momento, alivio y liberación vendrán de otro lugar para los judíos, pero tú y la casa de tu padre pereceréis. ¿Y quién sabe si no has llegado al reino para un momento como este?» 15 Entonces Ester les dijo que respondieran a Mardoqueo: 16 17 Mardoqueo se fue e hizo todo lo que Ester le había ordenado . 18 Mardoqueo se fue y se fue, ... ESTHER PREPARA UN BANQUETE Al tercer día, Ester se vistió con sus ropas reales y se puso de pie. 5 en el patio interior del palacio del rey, delante de las habitaciones del rey, mientras el rey estaba sentado en su trono real dentro de la sala del trono frente a la entrada del palacio. 2 3 Cuando el rey vio a la reina Ester de pie en el patio, ella se ganó su favor, y extendió hacia Ester el cetro de oro que tenía en su mano. Entonces Ester se acercó y tocó la punta del cetro. El rey le dijo: «¿Qué quieres, reina Ester? ¿Qué pides? Te será concedida hasta la mitad de mi reino». 4 Y Ester dijo: Si le place al rey, que venga hoy el rey con Amán al banquete que he preparado para el rey. 5 Entonces el rey dijo: Traed pronto a Amán, para que hagamos como ha dicho Ester. Entonces el rey y Amán vinieron a la fiesta que Ester había celebrado. 6 Y mientras bebían vino después del banquete, el rey dijo a Ester: «¿Qué es lo que deseas? Te será concedido. ¿Y cuál es tu petición? Hasta la mitad de mi reino, te será concedida». 7 Y Ester respondió : «Mi deseo y mi petición es: 8 si he hallado favor a los ojos del rey, y si al rey le place conceder mi deseo y conceder mi petición, que el rey y Amán vengan al banquete que les prepararé, y mañana haré como el rey ha dicho». AMAN PLANEA COLGAR MARDOQUEO 9 10 Pero Amán se contuvo y se fue a su casa, y mandó traer a sus amigos y a Zeres, su mujer. 11 Y les contó la magnificencia de sus riquezas, el número de sus hijos, todos los honores con que el rey le había honrado, y cómo le había engrandecido sobre los oficiales y siervos del rey. 12 Y dijo Amán: Ni siquiera la reina Ester permitió que nadie más que yo acompañara al rey al banquete que ella había preparado, y también mañana he sido invitado por ella junto con el rey. 13 Pero todo esto no significa nada para mí, mientras vea al judío Mardoqueo sentado a la puerta del rey. 14 Entonces su mujer Zeres y todos sus amigos le dijeron: «Que se construya una horca para el rey». 1 cincuenta codos 2 “Que se haga una horca alta, y por la mañana dile al rey que ahorque a Mardoqueo en ella. Luego ve alegremente con el rey a la fiesta”. Esta idea agradó a Amán, y mandó construir la horca. EL REY HONRA A MARDOQUEO 6 Aquella noche el rey no pudo dormir, y mandó traer el libro de los hechos memorables, las Crónicas, y fueron leídas delante del rey. 2 Y se halló escrito lo que Mardoqueo había dicho acerca de Bigtán. 3 y Teresh, dos eunucos del rey, que guardaban la casa de David. 3 Y el rey preguntó: «¿Qué honor o distinción se le ha otorgado a Mardoqueo por esto?» Los jóvenes del rey que lo servían respondieron: «No se le ha hecho nada». 4 Y el rey preguntó: «¿Quién está en el patio?» Amán acababa de entrar en el patio exterior del palacio del rey para hablar con el rey acerca de que Mardoqueo fuera colgado en la horca. 4 5 Y los siervos del rey le respondieron: «Amán está allí, de pie en el patio». Y el rey dijo: «Que entre». 6 Entró , pues, Amán, y el rey le preguntó: «¿Qué se debe hacer con el hombre a quien el rey quiere? 7 Y Amán respondió al rey: Para el hombre a quien el rey quiera honrar, 8 que se traigan las vestiduras reales que el rey ha vestido, y el caballo en que el rey ha montado, y en cuya cabeza haya una corona real. 5 9 Y que los vestidos y el caballo sean entregados a uno de los funcionarios más nobles del rey, que vista al hombre a quien el rey desea honrar, y que lo conduzcan a caballo por la plaza de la ciudad, proclamando delante de él: " Así se hará al hombre a quien el rey desea honrar". 10 Entonces el rey dijo a Amán: Date prisa, toma los vestidos y 11 Entonces Amán tomó las vestiduras y los vestiduras, y tomó el caballo, como has dicho, y haz lo mismo con Mardoqueo el judío, que se sienta a la puerta del rey. y vistió a Mardoqueo, y lo hizo pasar por la plaza de la ciudad, pregonando delante de él: Así se hará al hombre a quien el rey quiere honrar. 12 Entonces Mardoqueo volvió a la puerta del rey, pero Amán se apresuró a volver a su casa, triste y con la cabeza en alto. 13 Amán contó a su mujer Zeres y a todos sus amigos todo lo que le había sucedido. Entonces sus sabios y su mujer Zeres le dijeron: «Si Mardoqueo, delante de quien has comenzado a caer, es del pueblo judío, no podrás vencerlo, sino que caerás sin duda delante de él». ESTER REVELA LA CONJUNTA DE AMAN 14 Mientras ellos aún hablaban con él, llegaron los eunucos del rey y se apresuraron a llevar a Amán al banquete que Ester había preparado. 7 El rey y Amán fueron a un banquete con la reina Ester. 2 Al segundo día, mientras bebían vino después del banquete, el rey volvió a preguntar a Ester: «¿Qué es lo que deseas, reina Ester? Te será concedido. ¿Y qué es lo que pides? Hasta la mitad de mi reino se te concederá». 3 Entonces la reina Ester respondió: —Oh rey, si he hallado gracia en tus ojos, y si al rey place, séame concedida mi vida por mi deseo, y mi pueblo por mi demanda. 4 Porque yo y mi pueblo hemos sido vendidos para destrucción, para muerte y para ser Si nos hubieran vendido como esclavos, hombres y mujeres, yo me habría quedado callado, porque nuestra aflicción no se puede comparar con la pérdida del rey.” 5 Entonces el rey Asuero dijo a la reina Ester: ¿Quién es y dónde está el que se ha atrevido a 1 ¿Para hacer esto?” 6 Y Ester dijo: «¡Un adversario y enemigo! ¡Este malvado Amán!» Y Amán tuvo miedo delante del rey y de la reina. AMAN ES COLGADO 7 8 Y el rey se levantó enojado de haber bebido vino y se fue al jardín del palacio, pero Amán se quedó para rogar a la reina Ester por su vida, porque vio que el rey había decidido hacerle daño. Y el rey volvió del jardín del palacio al lugar donde estaban bebiendo vino, mientras Amán estaba caído sobre el lecho donde estaba Ester. Y el rey dijo: ¿Acaso él no beberá vino? ¿Incluso agredir a la reina en mi presencia, en mi propia casa?”. Cuando la palabra salió de la boca del rey, cubrieron el rostro de Amán. 9 Entonces Harbona, uno de los eunucos que asistían al rey, dijo: “Además, la horca 2 que Amán había preparado para Mardoqueo, cuya palabra salvó al rey, está de pie en la casa de Amán, cincuenta codos 3 de alto.” 10 Y el rey dijo: “Cuélguenlo de allí”. Entonces colgaron a Amán en la horca que él había preparado para Mardoqueo. Entonces se aplacó la ira del rey. ESTER SALVA A LOS JUDÍOS En aquel día el rey Asuero dio a la reina Ester el 8 Mardoqueo vino a la casa de Amán, enemigo de los judíos. Y Ester le había contado lo que él significaba para él. 2 Entonces el rey se quitó el anillo que había tomado de Amán, y se lo dio a Mardoqueo. Y Ester puso a Mardoqueo al frente de la casa de Amán. 3 Entonces Ester volvió a hablar al rey, se postró a sus pies, lloró y le rogó que desbaratara el malvado plan de Amán el agagueo y la conspiración que había urdido contra los judíos. 4 Cuando el rey extendió a Ester el cetro de oro, 5 Ester le dijo: Ester se levantó y se presentó ante el rey. 6 Y ella respondió: Si le place al rey, y si he hallado gracia ante sus ojos, y si el asunto le parece correcto, y yo soy agradable a sus ojos, que se escriba para revocar las cartas que trama Amán agagueo, hijo de Hamedata, para destruir a los judíos que están en todas las provincias del rey. 7 Pues ¿cómo podré soportar ver la calamidad que viene sobre mi pueblo? ¿O cómo podré soportar ver la destrucción de mi parentela? 8 Entonces el rey Asuero dijo a la reina Ester y a Mardoqueo el judío: «He aquí, yo he entregado a Ester la casa de Amán, y lo han colgado en la horca, 1 porque quería echar mano de los judíos. 8 Pero podrás escribir lo que quieras acerca de los judíos, en nombre del rey, y sellarlo con el anillo del rey, porque es un edicto escrito en nombre del rey y sellado con el anillo del rey. “El anillo del rey no puede ser revocado.” 9 En aquel tiempo, en el mes tercero, que es el mes de Siván, fueron convocados los escribas del rey, y se escribió un edicto, conforme a todo lo que había ordenado Mardoqueo acerca de los judíos, para los sátrapas, gobernadores y oficiales de las provincias desde la India hasta Etiopía, ciento veintisiete provincias, para cada provincia en su propia escritura y para cada pueblo en su propia lengua, y también para los judíos en su propia escritura y en su propia lengua. 10 Y escribió en nombre del rey Asuero, y selló con el anillo del rey. Y envió las cartas por medio de correos montados sobre caballos ligeros, de los que se usaban al servicio del rey, criados de la ganadería real, 11 diciendo que el rey permitía a los judíos que estaban en cada ciudad reunirse y defender sus vidas, para destruir, matar y aniquilar cualquier fuerza armada de cualquier pueblo o provincia que los atacara, incluso niños y mujeres, y saquear sus bienes, 12 en un mismo día en todas las provincias del rey Asuero, el día trece del mes duodécimo, que es el mes de Adar. 13 Y se debía publicar una copia de lo escrito como decreto en cada provincia, para que se exhibiera públicamente a todos los pueblos, y que los judíos estuvieran preparados en ese día para tomar venganza de sus enemigos. 14 Los correos, montados en los veloces caballos que utilizaba el rey, salieron a toda prisa, apremiados por la orden del rey. Y el edicto fue promulgado en la ciudadela de Susa. 15 Entonces Mardoqueo salió de la presencia del rey con vestiduras reales de azul y blanco, y una gran corona de oro. 1 Y un manto de lino fino y púrpura, y la ciudad de Susa gritó y se regocijó. 16 Los judíos tuvieron luz, alegría, gozo y honra. 17 Y en todas las provincias y en todas las ciudades donde llegaba la orden y el edicto del rey, había alegría y regocijo entre los judíos, fiesta y día de fiesta. Y muchos de los pueblos del país se declaraban judíos, porque el temor a los judíos había caído sobre ellos. LOS JUDÍOS DESTRUYEN SUS Enemigos 9 En el mes duodécimo, que es el mes de Adar, el día trece del mismo, cuando el mandato y el edicto del rey estaban para ser ejecutados, el mismo día en que los enemigos de los judíos esperaban dominarlos, ocurrió lo contrario: los judíos dominaron a los que los odiaban. 2 Los judíos se reunieron en sus ciudades, en todas las provincias del rey Asuero, para echar mano de quienes procuraban hacerles mal. 3 Y todos los oficiales de las provincias, los sátrapas, los gobernadores y los agentes del rey ayudaron a los judíos, porque el temor a Mardoqueo había caído sobre ellos. 4 Porque Mardoqueo era grande en la casa del rey, y su fama se extendía por todas las provincias, porque el hombre Mardoqueo se hacía cada vez más poderoso. 5 6 En la ciudadela de Susa, los judíos mataron y destruyeron a 500 hombres, 7 y también mataron a Parshandatha, Dalphon, Aspatha, 8 Poratha , Adalia, Aridatha, 9 Parmashta, Arisai, Aridai y Vaizatha . los diez hijos de Amán hijo de Hamedata, enemigo de los judíos, pero no echaron mano al botín. 11 Aquel mismo día se informó al rey del número de los muertos en la ciudadela de Susa. 12 Y el rey dijo a la reina Ester: «En la ciudadela de Susa los judíos han matado y destruido a quinientos hombres, y también a los diez hijos de Amán. 13 Y Ester dijo: Si al rey le parece bien, que también mañana se permita a los judíos que están en Susa hacer conforme al edicto de hoy, y que los diez hijos de Amán sean colgados en la horca. 2 14 El rey ordenó que se hiciera así. Se promulgó un decreto en Susa y los diez hijos de Amán fueron ahorcados. 15 Los judíos que estaban en Susa se reunieron el día catorce del mes de Adar y mataron a trescientos hombres en Susa, pero no se apoderaron del botín. 16 Ahora bien, el resto de los judíos que estaban en la casa del rey 17 Esto ocurrió el día trece del mes de Adar, y descansaron el día catorce, y lo hicieron día de banquete y alegría. 18 Pero los judíos que estaban en Susa se reunieron el día trece y el catorce, y descansaron el día quince, y lo hicieron día de banquete y alegría. 19 Por eso los judíos de las aldeas, que viven en las ciudades rurales, celebran el día catorce del mes de Adar como día de alegría y banquete, como día de fiesta y como día en el que se envían regalos de comida unos a otros. LA FIESTA DE PURIM INAUGURADO 20 21 Y Mardoqueo registró estas cosas, y envió cartas a todos los judíos que estaban en todas las provincias del rey Asuero, cercanas y lejanas, 22 y les ordenó que guardaran el día catorce del mes de Adar y también el día quince del mismo, año tras año, 23 como los días en que los judíos recibían alivio de sus enemigos, y como el mes que se había convertido para ellos de tristeza en alegría, y de luto en día de fiesta; que los hicieran días de banquete y de alegría, días para enviarse dádivas de alimentos unos a otros y dádivas a los pobres. 23 Así que los judíos aceptaron lo que habían comenzado a hacer,
+
+---

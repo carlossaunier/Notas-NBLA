@@ -1,0 +1,2101 @@
+# Notas de Estudio - 2 Reyes
+
+### 2 Reyes 1:1
+Moab se rebeló. Esta rebelión se describe en 3:4– 27. También aparece en la inscripción extrabíblica de la Piedra Moabita. El rey Mesha de Moab proporcionó su versión de los acontecimientos de la guerra con Israel, y difiere del relato israelita. La narración bíblica da prioridad a las victorias de Israel sobre Moab, y Mesha enfatiza las ventajas de Moab sobre Israel.
+
+---
+
+### 2 Reyes 1:2
+Baal-zebub. Lit. “señor de las moscas”; es quizás una revisión intencionada del nombre Baal-zebul, que significa “Baal es exaltado”. Ocozías, rey de Israel, busca la ayuda de esta deidad pagana local.
+
+---
+
+### 2 Reyes 1:3
+Elías tisbita. Véase la nota sobre 1 R. 17:1. rey de Samaria. Véase nota sobre 1 Reyes 16:24.
+
+---
+
+### 2 Reyes 1:8
+un manto de pelo... un cinto de cuero. En su apariencia, su vida ascética y su audacia profética, Juan el Bautista se asemeja a Elías (Mateo 3:4). Ambos profetas llevaron a cabo un ministerio de juicio y arrepentimiento (Mateo 3:1–12; Lucas 3:2–17).
+
+---
+
+### 2 Reyes 1:9
+hombre de Dios, el rey dice: “Ven Para Ocozías, la profecía de Elías constituye una interferencia en los asuntos de estado y, por lo tanto , él debería rendir cuentas ante el rey por sus acciones. La respuesta de Ocozías revela una comprensión típicamente cananea de los poderes desenfrenados de la realeza (1 Sam. 8:11–17; 1 R. 21:2 nota; cf. Deut. 17:14–20).
+
+---
+
+### 2 Reyes 1:17
+Joram. Joram, al igual que Ocozías, es hijo de Acab (3:1; 1 R. 22:51). Este Joram del reino del norte de Israel no debe confundirse con Joram (o Joram), hijo y sucesor de Josafat (véase 8:16, 23), que reina en el reino del sur (Judá) aproximadamente en la misma época.
+
+---
+
+### 2 Reyes 1:18
+Libro de las Crónicas de los Reyes de Israel. Véase nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 2:1
+Subió al cielo en un torbellino. En la Biblia, solo Elías y Enoc (Gén. 5:24) tienen el privilegio de no morir, sino de ser llevados directamente al cielo. Gilgal. Probablemente se encuentra en Khirbet el-Mafjar, a unos tres kilómetros al noreste de Jericó. Fue el primer lugar donde acampó Israel en la tierra prometida durante el período de la conquista (Josué 4:19).
+
+---
+
+### 2 Reyes 2:2
+Betel. Una importante ciudad israelita en las tierras altas centrales (nota de 1 R. 12:29).
+
+---
+
+### 2 Reyes 2:3
+hijos de los profetas. Profético Comunidades que siguen a un líder profético prominente (4:1, 38; 6:1; 9:1). VOLVER 2 REYES 2:3
+
+---
+
+### 2 Reyes 2:4
+Jericó. Ubicada en Tell es-Sultan, a unos cinco kilómetros al oeste del río Jordán y a dieciséis kilómetros al norte del mar Muerto. Fue la primera ciudad conquistada por Israel bajo el liderazgo de Josué (Jos. 6).
+
+---
+
+### 2 Reyes 2:8
+golpeó las aguas. Elías, como Moisés y Josué antes que él, fue testigo de una división de las aguas que permitió que los elegidos de Dios pasar con seguridad sobre tierra seca (Éx. 14:21, 22; Jos. 3:14-17).
+
+---
+
+### 2 Reyes 2:9
+una doble porción. En Israel, el hijo mayor recibía una doble porción de la herencia familiar y con ella el derecho de sucesión (Deut. 21:17). El deseo de Eliseo de “una doble porción de tu espíritu” es Por eso es una petición audaz ser el heredero “primogénito” del ministerio de Elías. 2 REYES 2:9
+
+---
+
+### 2 Reyes 2:10
+Has pedido algo difícil. No le corresponde a Elías, sino a Dios, determinar si se cumplirá la atrevida petición de Eliseo.
+
+---
+
+### 2 Reyes 2:11
+carros de fuego y caballos de fuego. Los asistentes celestiales de Dios escoltan a Elías al cielo en un torbellino. El fuego aparece varias veces en el ministerio de Elías como una señal del poder devorador de Dios (1:10, 12, 14; 1 R 18:38; cf. 1 R 19:12). Estos carros aparecen más adelante en 6:16, 17. VOLVER 2 REYES 2:11
+
+---
+
+### 2 Reyes 2:12
+Padre mío, padre mío. Este título de respeto El término para una persona con autoridad (Gén. 45:8; Jue. 17:10; Mt. 23:9) se usará más tarde para Eliseo (6:21; 13:14). El profeta Malaquías declara que Elías regresará antes de la llegada del “día del Señor” (Mal. 4:5 y nota). Elías preparará al pueblo para el ministerio del Señor (1:8 nota).
+
+---
+
+### 2 Reyes 2:13
+tomó el manto. Anteriormente, Elías echó su manto sobre Eliseo como señal de que Eliseo sería su sucesor (1 R. 19:19). Lo que se prometió entonces, ahora se cumple.
+
+---
+
+### 2 Reyes 2:14
+las aguas se dividieron... y Eliseo fue terminado. Dios designó a Josué como el sucesor aprobado de Moisés (Núm. 27:12– 23; Deut. 31:1–8; 34:9; Jos. 1:1–9) al hacer que Josué guiara al pueblo a través del río Jordán hacia la Tierra Prometida, de manera similar a como Moisés guió al pueblo a través del Mar Rojo (Éx. 14; 15; Jos. 3). Ahora Dios designa a Eliseo como el sucesor de Elías dividiendo el Jordán para él, como lo hizo con Elías (v. 8).
+
+---
+
+### 2 Reyes 2:15
+los hijos de los profetas... se inclinaron ante el tierra delante de él. Véase nota sobre 1 Reyes 20:35.
+
+---
+
+### 2 Reyes 2:19
+Los hombres de la ciudad. Estos hombres son probablemente los líderes de Jericó (v. 18).
+
+---
+
+### 2 Reyes 2:20
+Un recipiente nuevo. Un recipiente nuevo estará libre de cualquier contaminación ceremonial. Ponle sal. La sal es un conservante y por lo tanto un símbolo apropiado de cómo Dios es fiel a sus promesas y mantiene a su pueblo (Lev. 2:13; Núm. 2:13). 18:19; 2 Crónicas 13:5; Ezequiel 43:24; Mateo 5:13; Marcos 9:49, 50).
+
+---
+
+### 2 Reyes 2:23
+calvo. Puede ser que los jóvenes estuvieran comparando sarcásticamente a Eliseo con su maestro Elías, quien vestía una prenda hecha de cabello (1:8), y lo incita a “subir” al cielo como lo hizo Elías (v. 11). 2 REYES 2:23
+
+---
+
+### 2 Reyes 2:24
+maldito. Eliseo en su ministerio se caracteriza por su compasión hacia los arrepentidos y su dureza hacia los insensibles y obstinados. La paliza a los jóvenes de Betel se convierte en otra manifestación pública del poder de Dios presente en su portavoz Eliseo (vv. 14, 21).
+
+---
+
+### 2 Reyes 3:1
+En el año dieciocho de Josafat. Es probable que Joram de Judá y su padre, Josafat, gobernaran juntos como corregentes durante aproximadamente cinco años (853–848 a. C.). De ser así, “el segundo año de Joram” (1:17) es el mismo que “el año dieciocho de Josafat” (3:1). Doce años. 852–841 a. C.
+
+---
+
+### 2 Reyes 3:2
+La columna de Baal. Véase la nota sobre 1 R. 14:23. Joram inicia una pequeña reforma, intentando reparar parte del daño causado por sus padres. El reinado de Acab fue particularmente atroz; Joram es malvado, pero no al grado de sus predecesores.
+
+---
+
+### 2 Reyes 3:3
+El pecado de Jeroboam. Véase la nota sobre 1 R. 12:30. La reforma de Joram no es exhaustiva; no aborda la falla fundamental en la adoración del reino del norte.
+
+---
+
+### 2 Reyes 3:4
+Mesa, rey de Moab. Según la Piedra Moabita, Mesa reconoce que, al igual que sus predecesores, él también es vasallo de Israel. Afirma haber liberado su tierra de la sujeción a Israel y se jacta de que “Israel ha perecido para siempre”. Tenía que entregar al rey. Parte de las obligaciones de Mesha como vasallo era pagar tributo regularmente a su superior.
+
+---
+
+### 2 Reyes 3:9
+rey de Edom. Es probable que el gobernante de Edom fuera vasallo del rey de Judá y, por lo tanto, estuviera obligado a ayudarlo (cf. 8:20; 1 R. 22:47)
+
+---
+
+### 2 Reyes 3:11
+¿No hay aquí profeta de Jehová? Josafat ya había planteado anteriormente una pregunta similar a Acab (1 R 22:7).
+
+---
+
+### 2 Reyes 3:14
+Respeto a Josafat. Eliseo consiente en profetizar a favor de la coalición, pero sólo por el bien de Josafat, cuyo reinado es visto de manera positiva (1 R. 22:43).
+
+---
+
+### 2 Reyes 3:15
+Traedme un músico. El músico es empleado para crear un ambiente propicio para la recepción de la revelación divina (cf. 1 Sam. 10:5, 6). la mano del SEÑOR . Una metáfora del poder de Dios. Aunque se utiliza con frecuencia para describir el poder de Dios en el juicio contra un enemigo (Éx. 9:3; 1 Sam. 5:6) o Su pueblo (Deut. 2:15; Rut 1:13), también puede referirse al poder de Dios que capacita a Sus siervos para recibir y proclamar revelación (Ezequiel 1:3; 37:1).
+
+---
+
+### 2 Reyes 3:16
+este cauce seco. Generalmente se lo identifica como el valle de Zered, un cauce que desemboca en el extremo sur del El Mar Muerto forma la frontera entre Edom y Moab (Deut. 2:13). VOLVER 2 REYES 3:16
+
+---
+
+### 2 Reyes 3:20
+El agua venía de la dirección de Edom. Las inundaciones repentinas en las montañas de Edom fluyen rápidamente por el lecho del río en dirección al Mar Muerto.
+
+---
+
+### 2 Reyes 3:22
+El agua... roja como la sangre. El agua está coloreada por la arenisca roja de Edom (cf. Génesis 25:30).
+
+---
+
+### 2 Reyes 3:25
+Quir-haraset. Probablemente esta es la capital de Moab (Is. 16:7, 11; Jer. 48:31, 36), a unos 18 km al este del mar Muerto y a 23 km al norte del valle de Zered, que está en el extremo sur del mar Muerto.
+
+---
+
+### 2 Reyes 3:27
+su hijo mayor. Este acto espantoso tiene como fin inducir al dios Quemos a librar a los moabitas de una derrota segura. El sacrificio de niños está expresamente prohibido en Israel (Éxodo 34:20; Deuteronomio 18:10); sin embargo, dos reyes posteriores de Judá (Acaz y Manasés) aparentemente lo practican (16:3; 21:6).
+
+---
+
+### 2 Reyes 4:1
+hijos de los profetas. Véase la nota sobre 1 R. 20:35. Mis dos hijos serán sus esclavos. La ley mosaica permite tomar hijos como siervos (o esclavos) por un período de tiempo limitado (Éx. 21:2, 7; Lev. 25:39– 46; Deut. 15:12–18). Desafortunadamente, esta disposición fue objeto de abuso con frecuencia (Neh. 5:5– 8; Jer. 34:8–22; Amós 2:6; 8:6). Tales situaciones caen dentro de los derechos de redención (Lev. 25:23–55; cf. Rut 4:1–12). Aparentemente, esta viuda no tiene pariente redentor que actúe en su nombre, y por eso busca la intervención de Eliseo.
+
+---
+
+### 2 Reyes 4:8
+Sunem. Sunem está ubicada en el confluencia de los valles de Jezreel y Esdrelón (nota 1 R 1:3).
+
+---
+
+### 2 Reyes 4:12
+Giezi. Asistente personal de Eliseo (5:20–23). 27; 6:15).
+
+---
+
+### 2 Reyes 4:13
+una palabra hablada en tu favor. Esta mujer debe contrastarse con la viuda de 4:1-7. Ella es casada, rica y Entre su propia gente, la viuda tiene pocas de esas ventajas.
+
+---
+
+### 2 Reyes 4:14
+ella no tiene hijo, y su marido es viejo. Un heredero es de gran importancia porque el nombre de la familia y las posesiones pasan a los hijos. Sin un hijo, la casa y los bienes de la familia pasan a manos de otros. Además, vivir como viuda, una perspectiva real para esta mujer, será muy difícil (1 Reyes 17:9 nota).
+
+---
+
+### 2 Reyes 4:17
+dio a luz un hijo. A lo largo de la Biblia, la gracia de Dios hacia las mujeres sin hijos, como Sara (Gén. 17:16–19), Rebeca (Gén. 25:21–22), 26), Raquel (Gén. 29:31; 30:22–24) e Isabel (Luc. 1:5–25), muestra Su amor y compasión por los necesitados.
+
+---
+
+### 2 Reyes 4:21
+Ella lo acostó en la cama. Ella se niega a aceptar la muerte de su hijo y oculta su cuerpo en la habitación de Eliseo para que el ritual de duelo no comience (Gén. 50:10; 2 Cr. 35:25; Job 2:12, 13; Mar. 5:38; Juan 11:33). Hombre de Dios. Término para referirse a un profeta, no una forma de decir “un hombre piadoso”. 2 Reyes 4:21
+
+---
+
+### 2 Reyes 4:23
+No es luna nueva ni día de reposo. El antiguo Israel tenía un calendario lunar y se celebraba una fiesta en cada luna nueva (Núm. 10:10; 28:11–15; Esd. 3:5; Neh. 10:33; Is. 1:13, 14; Amós 8:5). La ley no permite trabajar en sábado y posiblemente tampoco en luna nueva. o bien (Éx. 16:23; 20:8–10; 1 Sam. 20:5; 1 Cr. 23:31).
+
+---
+
+### 2 Reyes 4:27
+le tomó los pies, señal de respeto (Juan 11:32). El Señor lo ha escondido. Eliseo se sorprende con la noticia; los profetas no son todos... Saben o lo ven todo, pero dependen de la revelación de Dios a ellos.
+
+---
+
+### 2 Reyes 4:29
+Ata tu manto. Cf. 1 R. 18:46.
+
+---
+
+### 2 Reyes 4:38
+Gilgal. Véase la nota sobre 2:1. una hambruna, a menudo debida a la desobediencia de Israel (Levítico 26:18-20). Colocado sobre la olla grande. En tiempos de hambruna, la petición de Eliseo no es baladí (cf. 1 R 1, 1-16). 17:11–13).
+
+---
+
+### 2 Reyes 4:39
+calabazas silvestres. Existen en esta zona Varias calabazas más o menos venenosas que se parecen a plantas comestibles.
+
+---
+
+### 2 Reyes 4:42
+Baal-salisa. En la región montañosa de Efraín, junto al arroyo de Caná. Pan de las primicias. Al traer las primicias de la cosecha, el hombre muestra su dedicación a Eliseo y su gratitud por su labor profética (Levítico 2:14; 23:9-21; Deuteronomio 18:3-5).
+
+---
+
+### 2 Reyes 5:1
+el rey de Siria. Este rey y el rey de Israel (v. 5) son probablemente Ben-adad II (8:7; 13:3; 1 R. 20:1) y Joram (1:17; 3:1; 9:24), respectivamente. Leproso. Heb. “enfermedad de la piel”, que puede referirse a una variedad de afecciones de la piel, incluida la lepra (enfermedad de Hansen). Véase Levítico 13, 14.
+
+---
+
+### 2 Reyes 5:2
+Incursiones. Durante la larga historia de tensión entre Israel y Siria, a menudo ha habido escaramuzas e incursiones a lo largo de la frontera.
+
+---
+
+### 2 Reyes 5:5
+Carta al rey de Israel. El rey sirio envía una carta oficial al rey de Israel presentando a Naamán y pidiendo un favor en su nombre. El rey sirio ha supuesto erróneamente que la obra de Eliseo está a las órdenes del rey israelita. Diez talentos de plata y seis mil siclos de oro. Es decir, aproximadamente 750 libras (340 kg) de plata y 150 libras (68 kg) de oro.
+
+---
+
+### 2 Reyes 5:7
+rasgó sus vestidos. Una señal de gran angustia (nota de 1 R. 21:27). El rey de Israel se alarma porque tiene la obligación de curar al leproso.
+
+---
+
+### 2 Reyes 5:8
+¿Por qué has rasgado tus vestiduras? Eliseo regaña al rey por reaccionar ante la petición siria con tanta alarma y por no creer que Dios puede ayudarlo. Él puede saber que hay un profeta en Israel. Véase 3:11; 8:7, 8; 1 R. 17:24; 18:36. Eliseo responde afirmativamente al gesto sirio (v. 3).
+
+---
+
+### 2 Reyes 5:10
+Eliseo envió un mensajero. Tanto Elías como Eliseo a menudo ponen a prueba la fe de las personas a las que ministraban (1 R. 17:13; 2 R. 17:14). Rey. 4:3, 4). En este caso, Eliseo ni siquiera se reúne con Naamán, sino que envía instrucciones a través de un mensajero.
+
+---
+
+### 2 Reyes 5:11
+Naamán, sin darse cuenta de la importancia de la libertad divina y el papel fundamental de la fe, piensa que es algo despreciable tener que bañarse siete veces en el río.
+
+---
+
+### 2 Reyes 5:12
+Abana y Farfar, ríos de Damasco. Si la sanación profética es un ritual sin sentido, Naamán bien podría quedarse en casa. Naamán muestra su orgullo nacional al despreciar el río Jordán en comparación con los ríos de Siria.
+
+---
+
+### 2 Reyes 5:15
+No hay Dios en toda la tierra, sino en Israel. Naamán no sólo está diciendo que el Señor es más poderoso que los dioses sirios; está confesando que hay un solo Dios, el Señor. Al decir esto, Naamán adopta la fe de Israel como propia (1 R 18,39).
+
+---
+
+### 2 Reyes 5:16
+Vive Jehová. Estas palabras son un juramento (nota de 1 Reyes 1:17).
+
+---
+
+### 2 Reyes 5:17
+Dos cargas de tierra para mulas. La gente del antiguo Cercano Oriente creía que los dioses estaban ligados a las tierras que gobernaban. Naamán pide tierra de la tierra del Señor para santificar el altar que piensa construirle en otro país (cf. Éx. 20:24, 25).
+
+---
+
+### 2 Reyes 5:18
+Rimón. Lit. “granada”; una parodia de El nombre Ramanu, el dios sirio de la tormenta que corresponde a Baal. Esta deidad principal El rey de Siria también es conocido con el nombre de Hadad (Zac. 12:11).
+
+---
+
+### 2 Reyes 5:22
+hijos de los profetas. Véase la nota sobre 1 R. 20:35.
+
+---
+
+### 2 Reyes 5:26
+dinero. No se refiere a monedas (que son Probablemente aún no se utilizaba en esa época), sino en cantidades de oro o plata.
+
+---
+
+### 2 Reyes 5:27
+para ti y para tus descendientes. El pecado no es solo individual sino también colectivo (Éxodo 20:5). Es una justicia irónica que Giezi No se beneficiarán de la cura de Naamán, sino que contraerán la enfermedad de Naamán. 2 REYES 5:27
+
+---
+
+### 2 Reyes 6:1
+los hijos de los profetas. Véase la nota sobre 1 Rey. 20:35.
+
+---
+
+### 2 Reyes 6:5
+Cabeza de hacha. Heb. “hierro”. Aparentemente, el hierro era un producto escaso en el antiguo Israel (1 Sam. 13:19–21); por lo tanto, esta herramienta era rara y costosa.
+
+---
+
+### 2 Reyes 6:8
+rey de Siria. Como en el capítulo 5, no se menciona el nombre de los reyes de Siria e Israel (v. 9). Lo más probable es que sean Ben- adad II (8:7; 13:3; 1 R. 20:1) y Joram (1:17; 3:1; 9:24). en guerra contra Israel. A pesar de la ratificación de un tratado entre Israel y Siria (1 R 20:34; 22:1), las dos naciones siguen luchando.
+
+---
+
+### 2 Reyes 6:9
+Envía un mensaje. Eliseo interviene para advertir al rey de Israel sobre los planes sirios, no por la buena conducta de Joram, sino porque es un centinela de Israel. Cumple con su deber de proteger al pueblo del pacto.
+
+---
+
+### 2 Reyes 6:13
+Dotán. Esta ciudad está ubicada aproximadamente a nueve millas (14 km) al norte de Samaria, la capital de Israel. La penetración siria en Israel es bastante preocupante. Las excavaciones en el lugar han descubierto un extenso asentamiento de los siglos IX y VIII a. C.
+
+---
+
+### 2 Reyes 6:16
+los que están con nosotros. Eliseo se refiere a la hueste o ejército celestial de Dios (cf. Jos. 5:13–15; 2 Cr. 32:7, 8; Dn. 10:20; 12:1). Al pelear guerras para Dios, los israelitas creen que están peleando con el poder de Dios (Éx. 15:1– 12; Dt. 20:1–4; 2 S. 22:7–16, 31–51). Véase también Mt. 26:53.
+
+---
+
+### 2 Reyes 6:17
+Abre sus ojos. Eliseo ora para que el sirviente vea algo que no aparece a simple vista: los ejércitos celestiales de Dios esperando para luchar contra los sirios. He aquí que el monte estaba lleno. En el versículo 15, el ejército sirio rodea la ciudad de Dotán con caballos y carros. Aquí los caballos y carros del Señor rodean a Eliseo por todos lados.
+
+---
+
+### 2 Reyes 6:18
+Ceguera. De manera irónica, Eliseo ora para que los sirios se vuelvan ciegos, mientras que en el versículo anterior oró para que los ojos de su siervo vieran.
+
+---
+
+### 2 Reyes 6:21
+Mi padre. Los reyes llaman a Eliseo “padre” A modo de respeto (nota 2:12; 13:14).
+
+---
+
+### 2 Reyes 6:22
+¿Quieres matar? Eliseo tiene dos puntos de vista. Primero, los cautivos no pertenecen al rey, porque la victoria es de Dios. Segundo, los cautivos que están a merced de sus captores normalmente no son asesinados (Deut. 20:11).
+
+---
+
+### 2 Reyes 6:24
+Ben-adad. Probablemente Ben-adad II (8:7; 1 R. 20:1 nota).
+
+---
+
+### 2 Reyes 6:25
+La cabeza de un asno se vendía por ochenta siclos de plata. Una parte indeseable de un animal inmundo (Levítico 11:2–7; Deuteronomio 12:13). 14:4–8) se vende por dos libras (1 kg) de plata.
+
+---
+
+### 2 Reyes 6:28
+Danos tu hijo, para que lo comamos. Las maldiciones del pacto del Sinaí prevén exactamente este tipo de canibalismo (Lev. 26:29; Deut. 28:52–57; cf. Lam. 2:20; 4:10; Eze. 5:10).
+
+---
+
+### 2 Reyes 6:30
+rasgó sus vestidos. Una señal de angustia (1 R. 21:27 nota). Tenía un saco debajo del cuerpo. Se sabe que incluso el rey es en estado de luto (Gén. 37:34; 1 R. 21:27; Jon. 3:5, 6).
+
+---
+
+### 2 Reyes 6:32
+Los ancianos estaban sentados con él. Los líderes de la ciudad están conferenciando con Eliseo, no con el rey (nota de 1 Reyes 8:1).
+
+---
+
+### 2 Reyes 7:1
+Un seah de flor de harina se venderá por un siclo. Eliseo profetiza un cambio repentino de la hambruna: siete cuartos (6,6 L) de harina se venderán por menos de media onza (14 g) de plata (cf. 6:25). En la puerta de Samaria. La puerta de la ciudad en la antigüedad era un lugar importante para la actividad económica y política de una ciudad. La puerta era donde se reunían los ancianos (Rut 4:1, 2), y allí se realizaban muchos negocios y transacciones comerciales.
+
+---
+
+### 2 Reyes 7:2
+ventanas en el cielo. El comandante se burla de la situación al menospreciar la obra de Dios en el giro de los acontecimientos de poco a abundancia.
+
+---
+
+### 2 Reyes 7:3
+a la entrada de la puerta. Las normas mosaicas prohíben que las personas con enfermedades de la piel vivan en la comunidad (Levítico 13:46; Números 5:1–4; 12:14, 15).
+
+---
+
+### 2 Reyes 7:6
+los hititas y... Egipto. Los hititas viven en Asia Menor (Núm. 13:29). Aquí el ejército sirio puede confundir a Egipto (Heb. Misrayim ) con un estado menor al lado de los hititas, cuyo nombre es similar a el nombre hebreo de Egipto (cf. 1 R 10:28, 29 notas).
+
+---
+
+### 2 Reyes 8:1
+una hambruna. El escritor no dice cómo Ha transcurrido mucho tiempo entre los acontecimientos del capítulo 4 y este incidente.
+
+---
+
+### 2 Reyes 8:2
+en la tierra de los filisteos. En la llanura sudoeste, donde la lluvia era adecuada para la agricultura. Lugar común para que los pueblos antiguos buscaran refugio durante tiempos de hambruna, como lo hizo el patriarca Isaac (Gén. 26:1).
+
+---
+
+### 2 Reyes 8:3
+apelar. En su calidad de supervisor del sistema judicial de la nación, el rey escucha casos especiales (nota de 1 R. 3:16). Al parecer, alguien se fugó con las posesiones de la mujer mientras ella estaba en Filistea.
+
+---
+
+### 2 Reyes 8:4
+El rey. No se menciona su nombre, pero si este rey es Joram (1:17; 3:13), es sorprendente que no sepa nada de las actividades de Eliseo. O bien este incidente tiene lugar poco después de los acontecimientos de 4:8–37, o el rey al que se hace referencia aquí es Jehú (cap. 9). Giezi, asistente personal de Eliseo, que había sido herido de lepra (4:12). nota; nota 5:27).
+
+---
+
+### 2 Reyes 8:7
+Eliseo llegó a Damasco. Es inusual que los profetas de Israel visiten capitales extranjeras, pero Eliseo tiene una misión inusual: implementar el primero de los tres mandatos que Dios le dio a Elías en el monte Horeb (1 R. 19:15, 16). Ben-adad. Probablemente Ben-adad II (6:24; 1 R. 20:1 nota).
+
+---
+
+### 2 Reyes 8:8
+Hazael. El Señor le dijo a Elías que ungiera a Hazael como rey de Siria como parte del juicio de Dios contra la casa de Acab (1 R. 19:15).
+
+---
+
+### 2 Reyes 8:9
+Toda clase de productos de Damasco. La ciudad de Damasco tenía reputación internacional como centro de comercio en la época de Eliseo. Tu hijo Ben-adad. Esta es una indicación diplomática de la alta estima que Ben-adad tiene por Eliseo (6:21; 13:14).
+
+---
+
+### 2 Reyes 8:10
+Algunos observan que la palabra hebrea “a él ” también puede traducirse como “no”. Por lo tanto, el texto diría: “ciertamente no sanarás”. La razón por la que Eliseo sabrá esto es que “el SEÑOR le ha mostrado” esa verdad. Por otro lado, si se lee simplemente como “ciertamente sanarás”, se puede concluir que tal vez Eliseo está tratando de engañar al rey de Siria. El monarca será engañado y tendrá una falsa sensación de seguridad y no estará preparado para el ataque de Hazael.
+
+---
+
+### 2 Reyes 8:12
+prendido fuego... desgarrado. ¡Qué atrocidades! Eran comunes en las guerras antiguas (Sal. 137:9; Is. 13:16; Os. 10:14; 13:16; Amós 1:13; Nah. 3:10). Eliseo no aprueba tales acciones; las lamenta.
+
+---
+
+### 2 Reyes 8:13
+tu siervo... un perro. Esta expresión de autodesprecio ante un superior aparece en varios documentos extrabíblicos (las cartas de Laquis) de Judá de principios del siglo VI (véase también una fórmula similar en 1 Sam. 17:43; 24:14; 2 Sam. 3:8). Las inscripciones asirias se refieren a Hazael como “el hijo de nadie”, es decir, un plebeyo.
+
+---
+
+### 2 Reyes 8:15
+Tomó la sábana. Hazael toma la profecía de Eliseo como una licencia para cometer asesinato, una indicación de la crueldad de Hazael.
+
+---
+
+### 2 Reyes 8:16
+Joram. Joram probablemente reinó junto con su padre, Josafat, durante cinco años antes de convertirse en el único monarca de Judá (1:17; 1 R. 22:42). Este versículo marca la muerte de Josafat y el comienzo del gobierno independiente de Joram (848–850 d. C.). 841 a. C.)
+
+---
+
+### 2 Reyes 8:18
+anduvo en el camino de los reyes de Israel. Por lo general, los reyes de Judá son evaluados con referencia a sus predecesores. A propósito, se compara a Joram con la “casa de Acab” porque imita sus políticas. Acab introdujo y aprobó el culto a Baal en el reino del norte de Israel, y ahora Joram hace lo mismo en Judá. La hija de Acab. Las dinastías gobernantes del norte y del sur están ahora unidas por ideología y por sangre (v. 26; 2 Cr. 21:6). Atalía promueve el culto a Baal en el sur, de la misma manera que su madre, Jezabel, promovió la religión de Baal en el norte (1 Cr. 21:1- 13). Rey. 16:31; 18:4; 19:2).
+
+---
+
+### 2 Reyes 8:19
+por amor a David su siervo. Por el amor de Dios a David, Él es paciente con Judá (2 Sam. 7:12– 16 notas; 1 Rey. 11:4 nota). Dad una lámpara... para siempre. Véanse las notas sobre 2 Sam. 21:17 y 1 R. 11:36.
+
+---
+
+### 2 Reyes 8:22
+hasta el día de hoy. Véase la nota sobre 1 R. 8:8. Libna se rebeló. Libna está cerca de la frontera con Filistea, a unos 24 km al sureste de Asdod. Fue conquistada por Josué (Jos. 10:29, 30) y Se la designó ciudad levítica (Jos. 21:13). Libna se rebela porque Joram ha apostatado y ha descarriado a Judá.
+
+---
+
+### 2 Reyes 8:23
+Libro de las Crónicas de los Reyes de Judá. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 8:24
+Ocozías. Como rey de Judá, no debe confundirse con su tío materno, el rey Ocozías de Israel (1 R. 22:40, 51; 2 R. 22:1-23). Rey. 1:18).
+
+---
+
+### 2 Reyes 8:25
+año duodécimo de Joram hijo de Acab. 841 a. C.
+
+---
+
+### 2 Reyes 8:26
+Atalía. Véase la nota sobre el versículo 18.
+
+---
+
+### 2 Reyes 8:27
+Anduvo también en el camino de la casa de Acab e hizo lo malo. Al igual que su padre, Joram, Ocozías imita las políticas religiosas de Acab, al aprobar en Judá la adoración del dios cananeo Baal (1 Reyes 16:31 nota).
+
+---
+
+### 2 Reyes 8:28
+Fue con Joram hijo de Acab a Hacer la guerra. Anteriormente, Josafat de Judá se alió con Acab de Israel en una campaña contra los sirios en Ramot de Galaad (1 R 22). Esta campaña, como la anterior, termina en desastre (1 R 22:32-37).
+
+---
+
+### 2 Reyes 8:29
+El rey Joram regresó para ser sanado en Jezreel. En Jezreel se mantuvo una residencia real para los reyes del norte (1 (1 Reyes 18:45 nota). También es el lugar del horrendo crimen de Acab y Jezabel contra Nabot (1 Reyes 21). Ramá. Es decir, Ramot de Galaad.
+
+---
+
+### 2 Reyes 9:1
+hijos de los profetas. Véase la nota sobre 1 R. 20:35. Ata tus vestiduras, para que el hijo del profeta pueda viajar con rapidez (1 R. 18:46; 2 Reyes 4:29).
+
+---
+
+### 2 Reyes 9:3
+Toma... aceite y derrámalo sobre su cabeza. Eliseo le ordena a uno de los profetas que realice un ritual de unción que se usa para designar a un (futuro) rey (11:12; 23:30; 1 Sam. 9:16; 10:1; 16:13; 2 Sam. 2:7). Eliseo le ordena al hijo del profeta que huya inmediatamente después de ungir a Jehú, tal vez se deba a la reputación de Jehú como una persona imprudente y despiadada (véase v. 20).
+
+---
+
+### 2 Reyes 9:7
+mis siervos los profetas. Parte de la venganza del Señor sobre la casa de Acab se debe a la muerte de muchos profetas verdaderos por parte de Jezabel (1 R. 18:4, 13).
+
+---
+
+### 2 Reyes 9:9
+como la casa de Jeroboam... como la casa de La casa de Baasa. Dios destruyó a estas dos dinastías israelitas anteriores debido a su infidelidad (1 R 15:27-30; 16:8-13).
+
+---
+
+### 2 Reyes 9:10
+Nadie la enterrará. La falta de sepultura es una señal de desgracia (Jeremías 8:2; 16:4-6; 22:19; 25:33). Este es un cumplimiento de la profecía de 1 Reyes 21:23.
+
+---
+
+### 2 Reyes 9:11
+Este loco. Debido a su estilo de vida inusual, sus hábitos excéntricos y sus mensajes proféticos extáticos, los antiguos profetas A algunas personas les pareció que estaba trastornado (cf. Jer. 29:26; Os. 9:7).
+
+---
+
+### 2 Reyes 9:13
+tomó su manto. Esta señal del nuevo rey recuerda la entrada triunfal de Jesús (Mateo 21:8). Tocaron la trompeta. Las trompetas anuncian la unción de un rey (cf. 2 Sam. 15:10; 1 Rey. 1:34).
+
+---
+
+### 2 Reyes 9:21
+Nabot de Jezreel. El golpe de Estado de Jehú llega a su clímax en el mismo lugar donde Acab y Jezabel hicieron matar a Nabot (1 R. 21:1–16).
+
+---
+
+### 2 Reyes 9:22
+¡Qué paz! La pregunta de Jehú aborda el meollo del asunto. No puede haber verdadera paz donde hay idolatría y brujería (cf. 17:17; 21:6; Jue. 2:17; 8:33; Os. 2; 3; Nah. 3:4).
+
+---
+
+### 2 Reyes 9:25
+el SEÑOR hizo esta declaración contra él. Véase 1 Reyes 21:21–24.
+
+---
+
+### 2 Reyes 9:27
+Ocozías, rey de Judá... murió. Jehú no está autorizado a matar a los descendientes de David que están relacionados con la casa de Acab por medio de su hija Atalía (cf. vv. 8-10). Jehú es demasiado celoso en el cumplimiento de su misión. Oseas lo critica por “la sangre de Jezreel” (Oseas 1:4). Meguido. Una importante ciudad israelita de la época. Acab construyó aquí extensas estructuras, como un enorme túnel de agua y una serie de edificios tripartitos con columnas que servían como establos o almacenes. REGRESAR A 2 REYES 9:27
+
+---
+
+### 2 Reyes 9:29
+En el año undécimo. Esta cifra puede contar solo todos los años de su reinado, sin contar el año en que subió al trono. Esto concordaría con las cifras dadas en 8:25, 26.
+
+---
+
+### 2 Reyes 9:30
+Jezreel. Una vez más, la escena de acción regresa de manera ominosa al lugar del asesinato de Nabot.
+
+---
+
+### 2 Reyes 9:31
+Zimri. Al referirse a Jehú de esta manera, Jezabel está aludiendo sarcásticamente a la purga sangrienta de Zimri casi medio siglo antes (1 R. 16:9-15).
+
+---
+
+### 2 Reyes 9:32
+eunucos. Esta palabra puede referirse a hombres que eran empleados como guardias y asistentes de los harenes reales en el antiguo Cercano Oriente (como aquí) o a funcionarios que servían en la corte real (20:18; Is. 39:7; Jer. 29:2; 34:19; 38:7; Dan. 1:3, 7–10).
+
+---
+
+### 2 Reyes 9:34
+hija de un rey. Jehú no dignifica a Jezabel con el título de “reina de Israel”, sino que se refiere a ella como hija de Et-baal, el rey sidonio (1 R. 16:31).
+
+---
+
+### 2 Reyes 9:36
+Los perros comerán las carnes de Jezabel. El oráculo de juicio que Jezabel despreció tan despectivamente en vida se cumple ahora en su muerte (1 R. 21:23). Los perros también estuvieron presentes en la muerte de Acab (1 R. 22:38).
+
+---
+
+### 2 Reyes 10:1
+Setenta hijos. Esta cifra probablemente incluye a los nietos. No se sabe cuántas esposas tuvo Acab, aunque sabemos que tuvo varias (1 R. 20:5). ancianos. Véase nota sobre 1 Reyes 8:1. tutores de los hijos. Estos tutores son responsables de criarlos y educarlos. Educando a los niños de la casa real. El rey ha muerto y Jehú se dirige a varios personajes menores.
+
+---
+
+### 2 Reyes 10:3
+Selección. Jehú está forzando la situación. ¿Seguirán apoyándolos aquellos que han sido más leales a Acab y su casa?
+
+---
+
+### 2 Reyes 10:5
+sobre el palacio. Véase la nota sobre 1 R. 4:6. sobre la ciudad. Este puesto es similar al del gobernador de la ciudad en 1 Reyes 22:26.
+
+---
+
+### 2 Reyes 10:6
+toma las cabezas de los hijos de tu señor. La exigencia de Jehú adopta la forma de un juego de palabras. En hebreo, “cabeza” puede significar parte del cuerpo o puede significar “líder” o “jefe”. No se sabe con certeza si Jehú está pidiendo la muerte de todos los descendientes varones de Acab o de los líderes entre los príncipes reales.
+
+---
+
+### 2 Reyes 10:7
+mató a... setenta personas. Los líderes de Samaria no se arriesgaron; cumplieron la orden de Jehú al pie de la letra. De esta manera se cumple otro componente de la profecía de Elías (1 R. 21:21-22). 24) Esta acción drástica no es desconocida en el antiguo Oriente Próximo: su propósito era para eliminar a cualquier descendiente que pudiera buscar venganza en el futuro.
+
+---
+
+### 2 Reyes 10:8
+Colócalas en dos montones. Los reyes asirios, como Asurbanipal II y Salmanasar III, intimidaban a las poblaciones dejando montones de cabezas junto a las puertas de la ciudad.
+
+---
+
+### 2 Reyes 10:11
+Jehú mató a todos. Las acciones de Jehú van mucho más allá del mandato del oráculo de Elías (1 R. 21:21-24) y del oráculo entregado personalmente a Jehú (9:7-10).
+
+---
+
+### 2 Reyes 10:13
+Los parientes de Ocozías no se dan cuenta de que se ha producido un golpe de estado. Por eso, Jehú intenta exterminar no solo a los descendientes del rey de Israel, sino también a los descendientes del rey de Judá.
+
+---
+
+### 2 Reyes 10:15
+Jonadab, hijo de Recab. Es de una familia o clan de Israel que lleva una vida de austeridad y abstinencia. En consonancia con sus convicciones sobre la adoración a Dios, los recabitas no plantan campos ni beben vino (Jer. 35).
+
+---
+
+### 2 Reyes 10:18
+Acab sirvió a Baal un poco, pero Jehú servirá a Baal un poco. Servirle mucho. La artimaña de Jehú tiene como objetivo inducir a los partidarios de Baal a revelar públicamente su lealtad. Después de haber destruido por completo la casa de Acab (v. 17), Jehú comienza ahora su purga del culto a Baal en Israel.
+
+---
+
+### 2 Reyes 10:21
+La casa de Baal. Acab construyó esta estructura en Samaria (1 R. 16:32).
+
+---
+
+### 2 Reyes 10:26
+La columna. Véase la nota sobre 1 R. 14:23. Los monumentos de piedra se pueden destrozar calentándolos con fuego y luego vertiéndoles agua fría.
+
+---
+
+### 2 Reyes 10:27
+lo convirtió en letrina. Esto profana el lugar y desalienta a cualquier futuro adorador de Baal a intentar reconstruir su templo.
+
+---
+
+### 2 Reyes 10:29
+Pero Jehú. Aunque Jehú elimina el culto a Baal del reino del norte, no restaura ni implementa la ortodoxia en Israel. Continúa la idolatría de Jeroboam con respecto al culto al becerro de oro (1 R. 12:25-30).
+
+---
+
+### 2 Reyes 10:31
+La ley del SEÑOR . Sobre la importancia de guardar la ley, véase la nota sobre 1 R. 2:3.
+
+---
+
+### 2 Reyes 10:33
+Desde el Jordán hacia el este, Hazael logra capturar los territorios tribales israelitas ubicados en Transjordania, cumpliendo así la profecía de Eliseo (8:12). Aroer. La ciudad está situada a pocos kilómetros al norte del río Arnón, al este del Mar Muerto (Deut. 2:36; Jos. 12:2; 13:9, 16).
+
+---
+
+### 2 Reyes 10:34
+El resto de los hechos de Jehú. En una inscripción en el Obelisco Negro, el gobernante asirio Salmanasar III (854–824 d. C.) A.C.) se registra que “Jehú, hijo de Omri” le pagó tributo en plata, oro y otros artículos. En el mismo obelisco, Jehú, o uno de sus mensajeros, está representado inclinándose ante el rey asirio. Si el grabado es de Jehú, entonces es la única representación pictórica conocida de un rey israelita de la antigüedad. Libro de las Crónicas de los Reyes de Israel. Véase nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 10:35
+Joacaz. Para su reinado, véase 13:1–9.
+
+---
+
+### 2 Reyes 10:36
+veintiocho años. 841–814 a. C. ANTERIOR 2 REYES 10:36
+
+---
+
+### 2 Reyes 11:1
+El sacerdote Joiada lidera un golpe de estado contra la usurpadora Atalía, madre de Ocozías, e instala al joven Joás, hijo de Ocozías, como legítimo rey de Judá. 11:1 Atalía. Hija de Acab y Jezabel, se ha dedicado a hacer florecer el culto a Baal en Judá (8:18; 11:18). El intento de Atalía de purgar la casa real de Judá lleva a la dinastía de David al borde de la extinción.
+
+---
+
+### 2 Reyes 11:2
+Jehosaba. Si, como es probable, no es hija de Atalía, Jehosaba es media hermana de Ocozías. En 2 Crónicas 22:11 se la identifica como la esposa del sacerdote Joiada (cf. vv. 4, 9). Sus acciones contrastan con la deslealtad de los líderes de Samaria (10:1–7). Joás. Hijo de Ocozías y, por consiguiente, nieto de Atalía. También conocido como Jehoás. en un dormitorio. Joás (Jehoash), de menos de un año (vv. 3, 21) y todavía no Destetado, se salva providencialmente de la persecución de Atalía.
+
+---
+
+### 2 Reyes 11:3
+seis años. El escritor reconoce que Atalía controla Judá por lo menos durante seis años, pero como considera que su reinado es ilegítimo, no lo dignifica con la introducción y conclusión habituales (cf. vv. 1, 20 con 11:21–12:3, 19–21). Sus años como cabeza de estado de Judá se cuentan como parte del reinado de Joás (Jehoás). En la casa del SEÑOR . En el templo, Joás (Jehoás) será instruido en la ley de Dios.
+
+---
+
+### 2 Reyes 11:4
+los guardias. Es decir, la guardia real (cf. Los cereteos (2 Sam. 8:18; 20:23) son de origen incierto, aunque algunos eruditos los describen como mercenarios de Caria, en el sudeste de Asia Menor.
+
+---
+
+### 2 Reyes 11:6
+la puerta detrás de los guardias. Esta puerta es Probablemente en el muro sur que separa el templo del palacio.
+
+---
+
+### 2 Reyes 11:10
+lanzas y escudos. Estos artículos pueden ser parte del botín que David capturó del rey Hadad-ezer de Soba (2 Sam. 8:3–11). Si es así, estas lanzas y escudos fueron dedicados por David al Señor (2 Sam. 8:7, 11) y han estado guardados en el templo desde su captura. Otra explicación es que eran las lanzas y escudos personales de David. Mostrar estos armamentos es probablemente un acto simbólico que indica que los líderes militares se han alineado con la línea davídica y sus creencias en Oposición a Atalía y su apoyo al baalismo en la tierra.
+
+---
+
+### 2 Reyes 11:12
+El testimonio. Esto se refiere al pacto sinaítico en su totalidad (Éx. 25:16; cf. 2 R. 23:3) o a un documento más limitado que especifica los deberes y limitaciones de la realeza (Dt. 17:14–20).
+
+---
+
+### 2 Reyes 11:14
+de pie junto a la columna. Columnas llamadas “Jaquín” y “Booz” enmarcan el vestíbulo del templo (1 R 7:15-22). Cuando la gente se reúne en el templo en ocasiones importantes, como un discurso real, se colocan en esta zona frente al templo propiamente dicho. Pueblo de la tierra. Los eruditos discuten el significado preciso de este término, que probablemente cambió durante el curso de la historia israelita (Esdras 9:1, 2). Aquí parece designar a los líderes del pueblo que se han mantenido fieles al Señor y a la dinastía davídica. rasgó sus vestidos. Véase nota sobre 1 Reyes 21:27.
+
+---
+
+### 2 Reyes 11:15
+“Matarán a espada a los que perezcan”. Este mandato sigue las estipulaciones de Deuteronomio 13:12-18. Se le dará muerte en la casa del Señor . El derramamiento de sangre dentro del recinto del templo es un sacrilegio.
+
+---
+
+### 2 Reyes 11:17
+Un pacto. Joiada dirige al pueblo y a Joás (Jehoás) en la renovación de su lealtad al pacto mosaico. Otras renovaciones de pactos tuvieron lugar en el pasado de Israel antes de esta (Deut. 29:1; Jos. 12:1-13). 8:30–35; 24:1–28). Las Crónicas mencionan varias renovaciones del pacto durante el curso de la monarquía (2 Cr. 15:12; 23:16; 29:10; 34:31). Ante la afluencia del culto a Baal en el pasado reciente de Judá, es apropiado que todas las partes hagan un nuevo comienzo volviéndose a dedicar al Señor. Entre el rey y el pueblo ( véase 2 Crónicas 23:3). Este tipo de acuerdo delinea las responsabilidades de ambas partes dentro del contexto más amplio del pacto mosaico (Deuteronomio 17:14-20; 2 Samuel 5:3).
+
+---
+
+### 2 Reyes 11:18
+pueblo de la tierra. Véase la nota sobre el versículo 14. la casa de Baal. Joiada dirige al pueblo en una reforma completa que es paralela a la reforma anterior liderada por Jehú en el norte (10:18-29).
+
+---
+
+### 2 Reyes 11:19
+los guardias. Véase la nota sobre el versículo 4.
+
+---
+
+### 2 Reyes 11:21
+Joás tenía siete años. Joiada ejerció una influencia significativamente positiva sobre Joás durante la primera parte de su reinado (12:2; 2 Crónicas 24:22).
+
+---
+
+### 2 Reyes 12:1
+séptimo año de Jehú... reinó cuarenta años. 835–796 a. C.
+
+---
+
+### 2 Reyes 12:2
+hizo lo correcto. Jehoás (Joás) es uno de varios reyes judíos que reciben evaluaciones positivas (Introducción a 1 Reyes: Características y temas principales).
+
+---
+
+### 2 Reyes 12:3
+Los lugares altos. El reinado de Jehoás no está exento de deficiencias religiosas. El pueblo sigue adorando en los lugares altos (nota de 1 R. 3:2).
+
+---
+
+### 2 Reyes 12:4
+Las cosas santas. Joás propone utilizar los ingresos del templo para restaurarlo (cf. Neh. 10:32), que sufrió abandono durante los años de Atalía (v. 5; 2 Cr. 24:7). Evaluación. Durante esta era, los jóvenes israelitas de veinte años estaban obligados a alistarse para un año de servicio militar y donar medio siclo al santuario (Éx. 30:11-16).
+
+---
+
+### 2 Reyes 12:6
+No se hacen reparaciones. Se da a entender que los sacerdotes tal vez se quedan con las contribuciones para su propio bienestar, aunque no están adecuadamente sustentado a través del sistema de sacrificios (Núm. 5:5–10).
+
+---
+
+### 2 Reyes 12:9
+los sacerdotes. Véase 22:4; 23:4; 25:18; Jer. 52:24.
+
+---
+
+### 2 Reyes 12:13
+cualquier vaso. Véase 1 R. 7:50. Se da prioridad a la reparación del edificio del templo. Durante el régimen de Atalía, el templo Los muebles se utilizaban para el culto a Baal (2 Crónicas 24:7).
+
+---
+
+### 2 Reyes 12:16
+Ofrendas por la culpa. Véase Levítico 5:16; 6:6, 7; Números 5:7–10. Ofrendas por el pecado. Véase Levítico 4. La restauración de Jehoás no priva a los sacerdotes de las principales fuentes de sus ingresos (Levítico 7:7).
+
+---
+
+### 2 Reyes 12:17
+Gat. Uno de los cinco principales reyes filisteos. ciudades, anteriormente pertenecía a Judá (1 Cr. 18:1; 2 Cr. 11:8).
+
+---
+
+### 2 Reyes 12:18
+todos los dones sagrados. Joás saquea su propio palacio y templo a cambio de un soborno o impuesto para pagarle a Hazael su retirada.
+
+---
+
+### 2 Reyes 12:19
+El resto de los hechos. Véase 2 Crónicas 22:10– 24:27. Libro de las Crónicas de los reyes de Judá. Véase nota sobre 1 R 11:41.
+
+---
+
+### 2 Reyes 12:20
+siervos. Los siervos de Joás (Jehoás) son hijos de mujeres extranjeras empleadas por el gobierno (14:5; 2 Cr. 24:26). casa de Millo. El término puede referirse a un edificio construido sobre Millo en Jerusalén (las obras de tierra construidas por Salomón; cf. 1 R 9:15 nota) o a un sitio dentro de Jerusalén al noroeste de la Ciudad de David (cf. Jue. 9:6, 20). VOLVER 2 REYES 12:20
+
+---
+
+### 2 Reyes 12:21
+Amasías. Para el reinado de Amasías, véase 14:1–22.
+
+---
+
+### 2 Reyes 13:1
+El año veintitrés de Joás... reinó diecisiete años. 814–798 a. C.
+
+---
+
+### 2 Reyes 13:2
+los pecados de Jeroboam. Véase la nota sobre 1 R. 12:30.
+
+---
+
+### 2 Reyes 13:3
+Ben-adad hijo de Hazael. Es decir, Ben-adad III. Para Ben-adad I, véase 1 R. 15:18–21; para Ben-adad II, véase la nota sobre 1 R. 20:1; 2 R. 6:24; 8:7.
+
+---
+
+### 2 Reyes 13:5
+Dios le dio a Israel un salvador. Tal como en el tiempo de los jueces (Jue. 2:16–23), Dios provee ayuda temporal contra el ataque sirio. No se menciona el nombre del libertador, aunque una sugerencia común es que es la nación de Asiria la que representa una amenaza para Siria en ese momento y, por lo tanto, desvía la atención siria de Israel.
+
+---
+
+### 2 Reyes 13:6
+los pecados de la casa de Jeroboam. Véase la nota sobre 1 R. 12:30. Asera. Este objeto fue erigido por Acab (1 R 16:33) y aparentemente no fue tocado por las reformas de Jehú (2 R 10:18-28).
+
+---
+
+### 2 Reyes 13:7
+cincuenta hombres de a caballo, diez carros y diez Mil soldados de a pie. El rey se queda con un gran número de infantería pero sólo con unos pocos carros. Esto paraliza su capacidad de reaccionar rápidamente ante una crisis militar. El ejército está tan debilitado que se lo compara con paja arrastrada por el viento.
+
+---
+
+### 2 Reyes 13:8
+Libro de las Crónicas de los Reyes de Israel. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 13:10
+el año treinta y siete de Joás. 798 AC Joás de Israel, un gobernante diferente de Joás de Judá, reina entre 798 y 782 a. C.
+
+---
+
+### 2 Reyes 13:11
+los pecados de Jeroboam. Véase la nota sobre 1 R. 12:30.
+
+---
+
+### 2 Reyes 13:12
+Libro de las Crónicas de los Reyes de Israel. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 13:13
+Jeroboam. Jeroboam II gobernó desde 793– 753 a. C., incluidos once años como corregente con su padre, Joás de Israel. Jeroboam comienza su reinado independiente cuando Jehoás muere en el año 782 a. C. Véase 14:23– 29.
+
+---
+
+### 2 Reyes 13:14
+Mi padre. Véase la nota sobre 2:12. Los carros de Israel y su gente de a caballo. Anteriormente, Eliseo había usado esta expresión de Elías; ahora Joás aplica el cumplido a Eliseo.
+
+---
+
+### 2 Reyes 13:17
+Hacia el este. Esta ventana se abre hacia la región controlada por Siria (10:32, 33). La flecha de la victoria sobre Siria. La acción simbólica es una profecía que el propio Joás cumplirá. Afec. Véase la nota sobre 1 Reyes 20:26.
+
+---
+
+### 2 Reyes 13:18
+se detuvo. Por alguna razón, Jehoás no logra percibir el significado interno de lo que el profeta lo insta a hacer. Eliseo considera que Jehoás es claramente culpable por su falta de entusiasmo. VOLVER 2 REYES 13:18
+
+---
+
+### 2 Reyes 13:20
+Eliseo murió. Es de suponer que Eliseo murió de vejez.
+
+---
+
+### 2 Reyes 13:23
+a causa de su pacto con Abraham, Isaac y Jacob. El compromiso divino es firme y eterno (cf. 1 Jn 1, 1-12). Rey. 18:36).
+
+---
+
+### 2 Reyes 13:24
+Ben-adad. Ben-adad III (nota del v. 3).
+
+---
+
+### 2 Reyes 13:25
+Tres veces lo derrotó Joás. Cumpliéndose la última profecía de Eliseo (v. 19), las victorias de Joás (Jehoás) de Israel detienen la expansión siria. Más tarde, Jeroboam II también derrotará a los sirios (14:25).
+
+---
+
+### 2 Reyes 14:1
+En el segundo año de Joás. 796 a.C.
+
+---
+
+### 2 Reyes 14:3
+Hizo lo recto ante los ojos del SEÑOR . Cumplió con las obligaciones del pacto (nota de 1 Reyes 2:3). Pero no como David su padre. Véase la nota sobre 1 Reyes 11:4. Amasías es un rey relativamente bueno.
+
+---
+
+### 2 Reyes 14:4
+los lugares altos no fueron quitados. Amasías es uno de los varios reyes de Judá elogiados por el autor, pero su elogio está limitado porque Amasías tolera la adoración en los santuarios de la cima de la colina (1 R 3:2). nota)
+
+---
+
+### 2 Reyes 14:5
+mató a sus siervos. Véase 12:20, 21.
+
+---
+
+### 2 Reyes 14:7
+hirió a diez mil edomitas. Esta gran victoria revierte temporalmente las pérdidas anteriores (cf. 8:20–22; 2 Cr. 25:11, 12). Valle de la Sal. Probablemente se trata de las salinas al sur del Mar Muerto (cf. 2 Sam. 8:13; Salmo 60, superscripción). Sela. La Septuaginta identifica a Sela (heb. “roca”) como Petra (gr. “roca”), situada a lo largo del Valle del Rift, a unas cincuenta millas (80 km) al sur del Mar Muerto. Algunos eruditos modernos la sitúan en el territorio edomita del norte, cerca de Bosra (Jue. 1:36). hasta el día de hoy. Refleja un tiempo antes de que los judíos fueran llevados cautivos a Babilonia (1 Rey. 8:8 nota).
+
+---
+
+### 2 Reyes 14:8
+Joás. Véase 13:10–25.
+
+---
+
+### 2 Reyes 14:9
+Un cardo. El reino del norte es más grande y más poderoso que el reino del sur (1 R. 14:30; 15:16, 17 y notas). En esta fábula (cf. Jue. 9:8-15) el cardo pequeño (Amasías) piensa que es igual a un cedro del Líbano (Jehoás), sólo para ser pisoteado.
+
+---
+
+### 2 Reyes 14:11
+Bet-semes. Una ciudad a quince millas (24 km) al oeste de Jerusalén (1 R 4:9). Habiendo obtenido una victoria decisiva aquí, Jehoás (Joás) tiene poco que le impida atacar la capital del reino del sur.
+
+---
+
+### 2 Reyes 14:13
+Joás... capturó a Amasías. Joás Probablemente (Joás) lleva a Amasías de regreso a Samaria (v. 14). Amasías se ve obligado a permanecer allí hasta la muerte de Joás, rey de Israel (v. 17). Puerta de Efraín. Esta puerta principal se encuentra en el muro norte (Nehemías 8:16; 12:39). Puerta del ángulo. En el ángulo noroeste del muro (2 Crónicas 26:9; Jeremías 31:38; Zacarías 1:11). 14:10)
+
+---
+
+### 2 Reyes 14:15
+Libro de las Crónicas de los Reyes de Israel. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 14:16
+Jeroboam. Jeroboam II, que gobernó entre 793 y 795 d. C. 753 a. C. (vv. 23–29).
+
+---
+
+### 2 Reyes 14:18
+Libro de las Crónicas de los Reyes de Judá. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 14:19
+Laquis. Ciudad importante de Judá a 24 km al oeste de Hebrón.
+
+---
+
+### 2 Reyes 14:21
+dieciséis años. Probablemente Azarías es nombrado rey de Judá durante la ausencia de su padre, Amasías, y los reinados de padre e hijo se superponen durante muchos años (vv. 13, 17).
+
+---
+
+### 2 Reyes 14:22
+Elat. Elat, un puerto marítimo en el extremo norte del golfo de Aqaba, fue utilizado por primera vez por Salomón para fomentar el comercio marítimo con otras naciones (1 R. 9:26-28). Debido a que Amasías derrotó a Edom (v. 7), su hijo Azarías puede reconstruir Elat y volver a utilizarla como puerto de Judea (cf. 1 R. 22:47–49; 2 R. 8:20–22; 16:6).
+
+---
+
+### 2 Reyes 14:23
+En el año quince de Amasías. 782 A.C., el comienzo del reinado independiente de Jeroboam. Jeroboam. Jeroboam II. Para el reinado de Jeroboam I, véase 1 Reyes 11:26–14:19. cuarenta y un años. 793–753 a. C. Es probable que Jeroboam II fuera corregente con su padre, Joás, durante once años al comienzo de su reinado (véase Introducción a 1 Reyes: Características y temas principales.
+
+---
+
+### 2 Reyes 14:24
+los pecados de Jeroboam. Ver nota sobre 1 Rey. 12:30. Política y económicamente, Jeroboam II es uno de los monarcas más exitosos de toda la historia del reino del norte (v. 25). Obliga a los sirios a retirarse de Damasco hacia el centro de Siria. También expande el territorio israelita hacia el Mar Muerto.
+
+---
+
+### 2 Reyes 14:25
+Lebo-hamat. Esta zona es la parte más septentrional de Israel (Núm. 13:21; 34:7–9; 1 R. 8:65 nota). Mar del Arabá, es decir, el Mar Muerto (Jos. 3:16; 12:3). Jeroboam expande el territorio de Israel hacia el sur, en el lado oriental del Jordán, las tierras de Amón y Moab. Jeroboam II controla más territorio que cualquier rey norteño anterior (cf. Amós 6:14). Jonás hijo de Amittai. Ver Introducción a Jonás; Jon. 1:1. Gat-hefer. A unos 22 km al oeste de la parte sur del mar de Cineret (Galilea). Véase Josué 19:13.
+
+---
+
+### 2 Reyes 14:27
+borrar el nombre. En el antiguo Cercano Oriente, se borraban los nombres de las inscripciones como señal de rechazo total o pérdida de poder (Éx. 32:32, 33; Dt. 9:14; 29:20).
+
+---
+
+### 2 Reyes 14:28
+Damasco. La capital de Siria. Hamat. Es decir, Lebo-hamat. Véase la nota sobre el versículo 25. Judá. David y Salomón controlaban tanto Damasco como Hamat (2 Sam. 8:6; 1 R. 8:65; 2 Cr. 8:3). Libro de las Crónicas de los Reyes de Israel. Véase nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 14:29
+Zacarías. Sobre el reinado de Zacarías, véase 15:8–12.
+
+---
+
+### 2 Reyes 15:1
+En el año veintisiete de Jeroboam, 767 a.C., cuando murió Amasías y Azarías comenzó su gobierno independiente.
+
+---
+
+### 2 Reyes 15:2
+Tenía dieciséis años. Azarías, también llamado “Uzías” (15:30, 32, 34; Is. 6:1), probablemente fue corregente durante muchos años con su padre, Amasías, quien fue capturado por Joás de Israel (nota 14:13). cincuenta y dos años. 792–740 a. C. Azarías, como Jeroboam II en el norte, disfrutó de un Su reinado es largo, aunque al final sufre una enfermedad de la piel (v. 5).
+
+---
+
+### 2 Reyes 15:3
+hizo lo recto ante los ojos de Dios. SEÑOR . Él sigue los dictados del pacto (1 R 2:3 nota).
+
+---
+
+### 2 Reyes 15:4
+los lugares altos no fueron quitados. Azarías, al igual que su padre, Amasías (14:3, 4), es alabado, pero la alabanza es limitada porque Azarías no deja de adorar en los santuarios de la cima de la colina (1 R. 3:2 nota).
+
+---
+
+### 2 Reyes 15:5
+Leproso. Azarías sufre de algún tipo de enfermedad de la piel. Según 2 Crónicas 26:16-21, Azarías se vuelve arrogante y entra al templo para quemar incienso en el altar del incienso. Como este es un deber reservado para el sacerdocio, Azarías está profanando el templo. El rey es herido de lepra y, por lo tanto, él mismo se vuelve profano y ya no se le permite entrar al templo. Jotam... estaba a cargo de la casa real. Ocupaba el puesto más alto en el gobierno de Judá (18:18; Is. 22:15-23). Jotam actúa como rey cuando Azarías se convierte en rey. incapacitado, y se convierte en rey cuando muere Azarías (vv. 32–38).
+
+---
+
+### 2 Reyes 15:6
+Libro de las Crónicas de los Reyes de Judá. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 15:7
+Jotam. Véanse los versículos 32–38.
+
+---
+
+### 2 Reyes 15:8
+En el año treinta y ocho de Azarías. 753 A.C. Zacarías es el último rey de la dinastía de Jehú (10:30).
+
+---
+
+### 2 Reyes 15:9
+los pecados de Jeroboam. Véase la nota sobre 1 R. 12:30.
+
+---
+
+### 2 Reyes 15:10
+Salum... lo hirió. La muerte de Zacarías precipita una larga lucha por el poder que implica una serie de revoluciones y contrarrevoluciones. Contando a Zacarías, Israel tiene cuatro reyes diferentes (Salum, Manahem, Pekaía) en sólo trece años. Estos reyes no tienen sanción profética (cf. Oseas 8:4).
+
+---
+
+### 2 Reyes 15:11
+Libro de las Crónicas de los Reyes de Israel. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 15:13
+Después de haber usurpado el trono de Israel al asesinar a Zacarías, Salum reina solo un mes antes de que él mismo sea asesinado. 15:13 En el año treinta y nueve de Uzías, es decir, en el año 752 a. C., Uzías también es llamado “Azarías” (nota del v. 2).
+
+---
+
+### 2 Reyes 15:14
+Tirsa. La antigua capital de Israel (1 Rey. 14:17; 15:21, 33).
+
+---
+
+### 2 Reyes 15:15
+Libro de las Crónicas de los Reyes de Israel. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 15:16
+Tifsa. Hay un lugar llamado “Tiphsa” en el río Éufrates en el extremo norte (1 R. 4:24), pero el texto probablemente significa Tapúa en la frontera entre Manasés y Efraín (Jos. 16:8; 17:7, 8). desgarrado. Véase nota sobre 8:12.
+
+---
+
+### 2 Reyes 15:17
+reinó diez años. 752–742 a. C. VOLVER 2 REYES 15:17
+
+---
+
+### 2 Reyes 15:18
+los pecados de Jeroboam. Ver nota sobre 1 Rey. 12:30.
+
+---
+
+### 2 Reyes 15:19
+Pul. Nombre del trono babilónico del rey asirio Tiglat-piléser III (745–727 a. C.; cf. 1 Cr. 5:26). El Imperio asirio se estaba fortaleciendo en esa época. Los anales de Tiglat-piléser III afirman que recibió tributo de varios reyes occidentales durante esta era, entre ellos Menahem de Samaria. Mil talentos de plata. Esta suma es acorde con el tributo exigido por otros reyes durante este período. Confirma su dominio sobre el poder real. Irónicamente, Menahem utiliza su relación de vasallaje con los temibles asirios para consolidar su dominio sobre Israel. Esta sumisión voluntaria a los asirios es condenada por el profeta Oseas (Os. 5:13, 14).
+
+---
+
+### 2 Reyes 15:20
+de todos los hombres ricos, cincuenta siclos. Una conversión de las cifras indica que sesenta mil hombres que pagaran veinte onzas (567 g) de plata cada uno habrían reunido los mil talentos. Las excavaciones en Samaria han descubierto sesenta y tres recibos que servían como pago de impuestos al rey. De hecho, estos registros pueden reflejar este impuesto que Manahem impuso a Israel.
+
+---
+
+### 2 Reyes 15:21
+Libro de las Crónicas de los Reyes de Israel. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 15:23
+año cincuenta... reinó dos años. 742– 740 a. C.
+
+---
+
+### 2 Reyes 15:24
+los pecados de Jeroboam. Ver nota sobre 1 Rey. 12:31.
+
+---
+
+### 2 Reyes 15:25
+Peka hijo de Remalías. Era un funcionario de alto rango en el reino del norte y, evidentemente, formaba parte de una facción antiasiria dentro de ese reino (v. 29). Durante su reinado, intentó mejorar las relaciones con los sirios como una forma de contrarrestar los planes asirios en Occidente (16:1–9; Is. 7:1). Cincuenta hombres del pueblo de Galaad. Peka, al igual que los rebeldes que le precedieron (vv. 10, 14), puede ser de Galaad. Peka pudo haber reinado sobre Galaad antes de intentar derrocar a Pekaía en Samaria.
+
+---
+
+### 2 Reyes 15:26
+Libro de las Crónicas de los Reyes de Israel. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 15
+Después de asesinar a Pekaía, Peka lo sucede como rey de Israel. El rey de Asiria captura parte del territorio de Israel durante el reinado de Peka. 15:27 En el año cincuenta y dos de Azarías. 740 a.C. Veinte años. 752–732 a. C. La cronología del gobierno de Peka es difícil de establecer. Es posible que liderara una rebelión durante el reinado políticamente inestable de Manahem (vv. 17–22) y que su reinado se calcule a partir de este punto (v. 25). nota)
+
+---
+
+### 2 Reyes 15:28
+los pecados de Jeroboam. Ver nota sobre 1 Rey. 12:30.
+
+---
+
+### 2 Reyes 15:29
+Tiglat-piléser. Es decir, Tiglat-piléser III. Todas las ciudades y zonas mencionadas se encuentran en la parte norte del reino israelita. Durante su campaña de 733-732 a. C., Tiglat-piléser también devastó Siria y capturó su capital, Damasco (16:9). Dios llevó al pueblo cautivo a Asiria. Dios está reduciendo a Israel en territorio y población (cf. 10:32).
+
+---
+
+### 2 Reyes 15:30
+en el año veinte de Jotam. 732 A.C. Para el reinado de Oseas, véase 17:1–6.
+
+---
+
+### 2 Reyes 15:31
+Libro de las Crónicas de los Reyes de Israel. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 15:32
+En el segundo año de Peka. 750 a. C.
+
+---
+
+### 2 Reyes 15:33
+Tenía veinticinco años. Es probable que Jotam fuera corregente con su padre Azarías (Uzías) durante los primeros diez años de su reinado (nota del v. 2). Dieciséis años. 750–735 a. C.
+
+---
+
+### 2 Reyes 15:34
+Hizo lo recto ante los ojos del SEÑOR . Es fiel al pacto (nota de 1 R. 2:3).
+
+---
+
+### 2 Reyes 15:35
+Los lugares altos no fueron quitados. Véase la nota sobre 1 R. 3:2. puerta superior de la casa del SEÑOR . También llamada “puerta superior de Benjamín” (Jer. 20:2), esta puerta estaba en la parte norte del complejo del templo, frente al territorio de Benjamín.
+
+---
+
+### 2 Reyes 15:36
+Libro de las Crónicas de los Reyes de Judá. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 15:37
+Rezín. El último rey de Siria. Siria e Israel habían forjado una alianza para combatir a los asirios y estaban preparados para obligar al rey de Judá a unirse a ellos invadiendo Judá (v. 29 nota; 16:5–12 y notas). Esto marca el inicio de la guerra sirio-efraimita, en la que Siria e Israel se alinean contra Judá. Judá, en contra de las advertencias del profeta Isaías, pide ayuda a Asiria (16:7-9; cf. Isaías 7, 8).
+
+---
+
+### 2 Reyes 16:1
+En el año diecisiete de Peka. 735 Los eruditos no están de acuerdo sobre la cronología precisa del reinado de Acaz (cf. 15:33, 37; 17:1; 18:1; y también Introducción a 1 Reyes: Cronología).
+
+---
+
+### 2 Reyes 16:2
+Dieciséis años. 732–715 a. C. Esta cifra representa la duración de su reinado desde su reconocimiento oficial como rey de Judá por los asirios.
+
+---
+
+### 2 Reyes 16:3
+anduvo en el camino de los reyes de Israel. El pecado de Jeroboam I (1 R 12:26-33), que fue continuado por todos los reyes israelitas posteriores, se refiere a la construcción de centros religiosos rituales en Betel y Dan. Estos lugares de culto del norte son conductos para introducir religiones extranjeras en el reino del norte. En el reino del sur, Acaz construye un altar extranjero en Jerusalén. Al igual que Jeroboam I, Acaz oficia los sacrificios inaugurales del nuevo altar (vv. 10-13; 1 R 12:32, 33). quemó a su hijo como ofrenda. La atrocidad del sacrificio de niños es practicada por algunos de los vecinos de Judá, aunque está prohibida por la ley de Moisés (Lev. 18:21; Deut. 18:10; cf. 2 R. 3:27). Acaz no es el único rey de Judá que desobedece esta ley (21:6; 23:10; Jer. 7:31; 32:35). Las prácticas despreciables de las naciones. En su comportamiento, Judá se está volviendo indistinguible de las naciones que Dios expulsó de Canaán para que los israelitas pudieran habitar la tierra. El pueblo está traicionando su llamado sagrado a “Será un reino de sacerdotes y una nación santa” (Éxodo 19:6).
+
+---
+
+### 2 Reyes 16:5
+Rezín... y Peka. Los reyes israelitas y sirios quieren poner a Judá bajo su control por la fuerza para poder formar un frente unido contra Asiria (15:19, 25, 37). En esta crisis intervendrá el rey El profeta Isaías, que aconseja al indeciso Acaz (cf. Is 7,1-17).
+
+---
+
+### 2 Reyes 16:6
+Rezín... recuperó Elat. Esto deshace la victoria anterior de Azarías (14:22). Los edomitas llegaron a Elat. Edom aprovecha la derrota de Judá para su propio beneficio. hasta el día de hoy. Véase la nota sobre 1 Reyes 8:8.
+
+---
+
+### 2 Reyes 16:7
+Tiglat-pileser. Véanse las notas sobre 15:19, 29.
+
+---
+
+### 2 Reyes 16:8
+Acaz también tomó la plata y el oro. Acaz, como muchos reyes antes que él, intenta comprar seguridad con un gran tributo dado como soborno a una potencia extranjera (12:18; Éx. 23:8; Deut. 16:19; 1 R. 15:18; Is. 5:23; Eze. 22:12). Una lista de Asiria de gobernantes que trajeron tributo a Tiglat- pileser en 734 a. C. incluye a “Joacaz de Judá” (Acaz). En lugar de recurrir a Acaz acude al Señor en busca de ayuda y se convierte en vasallo de los asirios.
+
+---
+
+### 2 Reyes 16:9
+llevando a su pueblo cautivo a Kir. La destrucción de Siria cumple las profecías de Isaías (Is. 7:16) y Amós (Amós 1:5). Se desconoce la ubicación exacta de Kir (Is. 22:6; Amós 9:7).
+
+---
+
+### 2 Reyes 16:10
+altar. Viajando para encontrarse con el soberano asirio en Damasco, Acaz ve allí un altar, probablemente dedicado al dios Hadad, y quiere copiarlo para Jerusalén. Su sincretismo es ilimitado. Coloca el altar pagano en el lugar del altar de bronce que había estado frente al templo.
+
+---
+
+### 2 Reyes 16:13
+Ofrendas de paz. Véase Levítico 7:11–21. La mayoría de estos sacrificios también se ofrecieron en la dedicación del templo bajo el reinado de Salomón (1 Reyes 8:64). Acaz considera que la construcción de este altar extranjero fue de gran importancia para su reino.
+
+---
+
+### 2 Reyes 16:15
+El holocausto matutino. Véase Éxodo 29:38, 39. Ofrenda de cereal de la tarde. Véase nota sobre 1 Reyes 18:29. el holocausto del rey y su ofrenda de cereal. Véase Ezequiel 46:12. El altar de bronce será para que yo pueda inquirir en él. Acaz pervierte el antiguo altar de su uso normal y lo emplea para la adivinación, una práctica extranjera en la que los sacerdotes trataban de predecir el futuro examinando las entrañas de los animales sacrificados. La ley mosaica proscribe rigurosamente la adivinación en Israel (Levítico 19:26; Deuteronomio 18:10).
+
+---
+
+### 2 Reyes 16:17
+marcos... palangana. Véase 1 R. 7:27–37. mar. Véase 1 Reyes 7:22–26. Acaz profana y desacraliza los muebles del templo. Bueyes de bronce. Probablemente Acaz utiliza el bronce para pagar tributo a Asiria. 2 REYES 16:17
+
+---
+
+### 2 Reyes 16:19
+Libro de las Crónicas de los Reyes de Judá. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 16:20
+Ezequías. Para su reinado, véanse los capítulos 18-20.
+
+---
+
+### 2 Reyes 17:1
+Esta sección narra el reinado de Oseas, el último rey de Israel. En el año 722 a. C., el rey de Asiria conquista Samaria y deporta al pueblo de Israel a Asiria. 17:1 Acaz. La datación del reinado de Acaz es difícil de descifrar. Véase 16:1 y nota. Oseas... reinó nueve años, es decir, del 732 al 722 a. C., y terminó con su encarcelamiento durante tres años antes de la caída de Samaria (vv. 4, 5). Es el último gobernante del reino del norte de Israel.
+
+---
+
+### 2 Reyes 17:2
+no como los reyes de Israel que fueron delante de él. No está claro qué implica exactamente esta declaración, aunque probablemente indica que Oseas es más moderado en lo que respecta a los asuntos éticos y espirituales del reino.
+
+---
+
+### 2 Reyes 17:3
+Salmanasar. Salmanasar V, quien sucede a Tiglat-pileser III como rey de Asiria, gobierna entre 727 y 722 a. C. Oseas, a diferencia de Su predecesor Peka (15:27–31 y notas), es vasallo de Asiria.
+
+---
+
+### 2 Reyes 17:4
+So, rey de Egipto. La identidad de So es un tema de debate. Algunos dicen que es Sib'e, un comandante militar egipcio, aunque no se sabe quién es en ninguna otra evidencia textual. Algunos sostienen que es el nombre de un lugar en el delta oriental de Egipto, donde residía el faraón. Es probable que So sea Osorkon V (735–712 a. C.), el último rey egipcio de la Dinastía XXII. No ofreció tributo al rey de Asiria. Retener tributo a un soberano (señor supremo) equivale a rebelión.
+
+---
+
+### 2 Reyes 17:5
+Durante tres años la sitió. La campaña asiria sigue al arresto de Oseas en 724/723 a.C. Durante este largo asedio, Salmanasar V muere y es sucedido por Sargón II (Is. 20:1), quien exilia a los habitantes de Samaria (v. 6).
+
+---
+
+### 2 Reyes 17:6
+En el año noveno de Oseas, es decir, alrededor del año 722 a. C. El rey de Asiria, Sargón II, que gobernó Asiria desde el 722 al 705 a. C. Se llevaron a los israelitas deportados. Sargón II afirma en sus anales haber deportado a 27.290 habitantes a lugares distantes. La captura de Samaria marca el fin del reino del norte (1 Cr. 5:25, 26). Nunca más se levantará (vv. 7–23 y notas). La evidencia arqueológica sugiere que muchas personas huyeron de Israel durante la sucesión de ataques asirios al norte y se establecieron en Judá. Esta afluencia de refugiados del norte aumentó significativamente la población de Jerusalén durante finales del siglo VIII y principios del VII a. C. Gozán. Esta capital provincial asiria está cerca del río Habor, un afluente norteño del Éufrates. La ciudad aparece mencionada en un documento del siglo X a. C. Inscripción aramea del noreste de Siria. ciudades de los medos. Aunque no se las identifica por su nombre, probablemente se encuentran en el zona al noreste del río Tigris y al sur del mar Caspio.
+
+---
+
+### 2 Reyes 17:9
+Lugares altos. Véase la nota sobre 1 R. 3:2.
+
+---
+
+### 2 Reyes 17:10
+columnas. Véase la nota sobre 1 R. 14:23. Aserim. Véase nota sobre 1 Reyes 14:15. sobre todo collado alto y debajo de todo árbol frondoso. Véase Deuteronomio 12:2; Jeremías 2:20; 3:6, 13; 17:2.
+
+---
+
+### 2 Reyes 17:12
+ídolos. Cualquier representación de una deidad pagana o del Señor está expresamente prohibida en la ley de Moisés (Éx. 20:4; Deut. 4:15–19, 23–28).
+
+---
+
+### 2 Reyes 17:13
+toda la ley. Es decir, la ley mosaica con todas las disposiciones del pacto (nota de 1 R. 2:3).
+
+---
+
+### 2 Reyes 17:16
+imágenes de metal de dos becerros . Los ídolos religiosos de Jeroboam I en Betel y Dan (1 R. 12:28, 29) recuerdan la construcción del becerro de oro por Aarón (Éx. 32:4, 8; Dt. 9:12, 16; Os. 13:2).
+
+---
+
+### 2 Reyes 17:17
+quemaron a sus hijos y a sus hijas. como ofrendas. Véanse las notas sobre 3:27; 16:3. Adivinación y agüeros. Véase nota sobre 16:15.
+
+---
+
+### 2 Reyes 17:19
+las costumbres que tenía Israel introducido. Véase 8:18; 11:18–21.
+
+---
+
+### 2 Reyes 17:20
+El Señor rechazó a todos los descendientes El rechazo de Dios por parte de Israel se demuestra en su exilio de la tierra que Él les había dado (v. 6).
+
+---
+
+### 2 Reyes 17:21
+Cuando arrancó a Israel de manos de La casa de David. La creación del reino del norte fue un castigo contra Salomón (1 R 11:11-13), pero también fue un comienzo prometedor para las tribus del norte (1 R 11:29-39). les hizo cometer un gran pecado. La referencia es a la creación de dos hijos por parte de Jeroboam. becerros en Betel y Dan (1 R 12:25–33; 14:7–16 y notas).
+
+---
+
+### 2 Reyes 17:24
+rey de Asiria. Probablemente Sargón II. A medida que los asirios deportaban a la gente de Israel, importaban gente de otros países. Esta política tenía como objetivo garantizar que la nación derrotada no volviera a imponerse. Los registros asirios atestiguan que los reyes asirios posteriores reubicaron a más inmigrantes extranjeros en Samaria. Babilonia, Cutah. En ese momento, Babilonia estaba bajo control asirio. Cutah estaba a unos trece kilómetros al noreste de Babilonia. Abba, Hamat y Sefarvaim. Es probable que Abba o “Ivva” y Sefarvaim estén en Siria (18:34; 19:13). Hamat está a orillas del río Orontes (cf. 14:25). nota). Samaria. Después de su caída ante los asirios, la región del antiguo reino del norte de Israel se conoce generalmente como “Samaria” (1 R 16:24 nota; Jn 4:1–6).
+
+---
+
+### 2 Reyes 17:25
+leones entre ellos. Los leones se utilizan a menudo por Dios como instrumentos de juicio (1 R 13:24; 20:36; Amós 3:12). VOLVER 2 REYES 17:25
+
+---
+
+### 2 Reyes 17:26
+la ley del dios de la tierra. Los asirios, como muchos otros pueblos del antiguo Cercano Oriente, creían que los dioses de una tierra en particular causarían problemas a las personas que viven allí si no realizaban los rituales apropiados para esos dioses.
+
+---
+
+### 2 Reyes 17:29
+Dioses propios. El regreso de un sacerdote israelita para servir en Betel no obliga a los inmigrantes que se establecen en Samaria a seguir la religión local. Por el contrario, continúan siguiendo sus propias prácticas religiosas, se adueñan de los santuarios locales y rinden culto allí. los samaritanos. Véase 23:19; 1 R. 12:31; 13:32. Aunque la expresión “Samaritanos” aparece sólo aquí en el Antiguo Testamento, aparece en documentos extrabíblicos ya en el siglo VIII a.C. refiriéndose a los residentes del reino del norte.
+
+---
+
+### 2 Reyes 17:33
+servían a sus propios dioses. La religión es sincrética: combina elementos de la adoración al Señor con la adoración a muchas otras deidades.
+
+---
+
+### 2 Reyes 17:34
+Hasta hoy. Véase la nota sobre 1 R. 8:8. Los hijos de Jacob, a quienes llamó Israel. El patriarca Jacob fue rebautizado por Dios como Israel (Gn. 32:28). La relación entre Dios y los descendientes de Jacob, el pueblo que Él salvó de Egipto, fue codificada en el pacto ratificado en el monte Sinaí (v. 35; Éx. 19-24) y renovado en las llanuras de Moab (Deuteronomio). Ser israelita no era, en definitiva, una clasificación étnica sino religiosa: pertenecer al Dios del pacto (Éx. 12:38; Deut. 26:5; Rom. 9:8).
+
+---
+
+### 2 Reyes 17:39
+él te librará de mano de todos tus enemigos. Así como Dios liberó a su pueblo en el pasado, Él puede hacerlo también. nuevamente en el futuro (Éx. 20:2; 23:22; Deut. 20:1–4; 23:14).
+
+---
+
+### 2 Reyes 17:41
+hasta el día de hoy. A pesar de la conquista asiria y sus consecuencias, algunos de los samaritanos y sus descendientes continuaron abrazando el monoteísmo y siguiendo una forma revisada del pacto sinaítico a lo largo del período bíblico. Incluso hoy en día hay una pequeña comunidad de samaritanos que vive en el estado-nación de Israel que continúa siguiendo una forma revisada del pacto sinaítico y guarda las leyes de una versión samaritana del Pentateuco.
+
+---
+
+### 2 Reyes 18:1
+En el tercer año de Oseas, alrededor del 727 a. C., se refiere al comienzo del reinado de Ezequías como corregente con su padre Acaz. Determinar una cronología precisa para el reinado de Ezequías es difícil porque hay Hay un desacuerdo sobre la cronología del reinado de Acaz (nota 16:1).
+
+---
+
+### 2 Reyes 18:2
+veintinueve años. Incluye la corregencia de Ezequías con Acaz. Ezequías se convirtió en el único gobernante de Judá en el año 715 a. C. Algunos eruditos no incluyen la corregencia y fechan el reinado de Ezequías entre el 715 y el 686 a. C.
+
+---
+
+### 2 Reyes 18:3
+Hizo lo recto ante los ojos de Jehová . Ezequías es uno de los reyes más alabados en toda la historia de Judá (vv. 4, 7 notas). David, su padre. Sobre el reinado de David como modelo por el cual se juzgan todos los demás reinados, véase la nota sobre 1 Reyes 11:4.
+
+---
+
+### 2 Reyes 18:4
+Quitó los lugares altos. Ezequías, a diferencia de los reyes anteriores de Judá, reforma el culto del pueblo destruyendo los santuarios locales (nota de 1 R. 3:2). columnas... Asera. Véanse las notas sobre 1 Rey. 14:15, 23. La serpiente de bronce. Originalmente preservada para conmemorar la misericordia de Dios hacia los israelitas cuando estaban en el desierto (Núm. 21:6-9; cf. Jn. 3:14, 15), esta serpiente de bronce con el tiempo se convirtió en un objeto de adoración, y por lo tanto en un ídolo. Por eso Ezequías la destruyó.
+
+---
+
+### 2 Reyes 18:6
+se mantuvo firme. Ezequías “se mantuvo firme” al Señor en contraste con Salomón, quien se aferró (se mantuvo firme) a sus esposas extranjeras (1 R. 11:2).
+
+---
+
+### 2 Reyes 18:7
+Se rebeló contra el rey de Asiria. y no le sirvieron. El padre de Ezequías, Acaz, era vasallo de Asiria y modificó los arreglos del templo para reflejar este hecho (16:7–18). La rebelión de Ezequías contra los asirios probablemente implicaba retenerles el tributo. 2 REYES 18:7
+
+---
+
+### 2 Reyes 18:8
+Derrotó a los filisteos. Durante el reinado de Acaz, los filisteos capturaron el territorio de Judea (2 Crónicas 28:18). Gaza y su territorio. Gaza estaba cerca de la costa mediterránea; Ezequías se adentró profundamente en el territorio filisteo.
+
+---
+
+### 2 Reyes 18:9
+Los asirios invaden Judá y, avanzando hacia Jerusalén, exigen la rendición de Judá. 18:9–12 El escritor ofrece un resumen de la caída de Samaria narrada y comentada con más detalle en el capítulo 17. Al hacerlo, subraya la amenaza que Asiria representa para Judá.
+
+---
+
+### 2 Reyes 18:13
+La historia de la campaña de Senaquerib y sus consecuencias, con algunas adiciones y omisiones, se encuentra también en Isaías 36– 39. 18:13 En el año catorce del año 701 a. C., fechado desde el comienzo de su reinado independiente (vv. 1, 2 y notas). Senaquerib, rey de Asiria. Sucedió a Sargón II en el año 705 a. C. En Nínive se ha descubierto un relieve de Senaquerib que representa el ataque asirio a la ciudad judía de Laquis. Este ataque ha sido confirmado mediante excavaciones: Senaquerib construyó una rampa de asedio en la parte suroccidental de la ciudad para penetrar en la defensa de la ciudad con máquinas de asedio. Los defensores judíos respondieron construyendo una rampa de contraasedio para reforzar sus defensas en ese punto. Ambas rampas han sido descubiertas. Subió contra todas las ciudades fortificadas de Judá. Los anales de Senaquerib registran su campaña contra Fenicia, Judá, las ciudades filisteas y Egipto. Afirma haber tomado cuarenta y seis ciudades e “incontables aldeas pequeñas”. También se jacta de haber encerrado a Ezequías en Jerusalén “como un pájaro en una jaula”. Sin embargo, sus anales no afirman que Senaquerib haya capturado Jerusalén (cf. Miqueas 1:9). y nota).
+
+---
+
+### 2 Reyes 18
+Ezequías intenta convencer a Senaquerib de que se retire ofreciéndole un enorme tributo (nota del v. 7). Al usar los tesoros del templo y del palacio para influir en las acciones de un rey extranjero, Ezequías sigue el ejemplo de Asa (1 R. 15:18) y de su propio padre, Acaz (16:8, 9). Los anales de Senaquerib confirman que Ezequías envió tributo en esta época.
+
+---
+
+### 2 Reyes 18:17
+El rey de Asiria envió a Ezequías. Algunos eruditos creen que esto se refiere a una segunda campaña de Senaquerib contra Ezequías, unos doce o trece años después de la primera. Si bien esta opinión es posible, no hay evidencia sólida que la respalde y, en cualquier caso, es innecesaria. Los anales de Senaquerib informan consistentemente que Senaquerib no sólo exigió tributo de reyes que “no se doblegaron bajo mi yugo”, sino que también insistieron en derrocar a esos reyes rebeldes y reemplazarlos con monarcas de su propia elección. Ezequías solo envía tributo; no abdica (vv. 14-16). Laquis. Esta fortaleza judía está situada a 45 km al suroeste de Jerusalén (cf. Miqueas 1:13).
+
+---
+
+### 2 Reyes 18:18
+Los tres funcionarios asirios conferencian con tres funcionarios judíos: el administrador del palacio (cf. 1 R. 4:6), el secretario (cf. 2 Sam. 8:17), y el cronista (cf. 2 Sam. 8:16).
+
+---
+
+### 2 Reyes 18:26
+Por favor, habla a tus siervos en Arameo. El arameo (el idioma de la antigua Siria) se había convertido en esa época en el idioma internacional de la diplomacia. Al pedir a los funcionarios asirios que utilizaran el arameo, el funcionario esperaba impedir que los habitantes de Jerusalén comprendieran el discurso del comandante de campo.
+
+---
+
+### 2 Reyes 18:31
+vid... higuera, y... cisterna. La descripción es indicativa de una vida cotidiana normal y pacífica (1 R. 4:25; Mi. 4:4; Zac. 3:10). Rabsaces está proclamando que el rey de Asiria puede proporcionar esto a los judíos, pero que el Señor no puede.
+
+---
+
+### 2 Reyes 18:32
+“Os llevaré a una tierra”. Estas palabras son una parodia del regalo de Dios de la Tierra Prometida a los israelitas. El rey asirio ofrece así reemplazar las promesas del Señor por las suyas. Más adelante, Ezequías se referirá a estas afirmaciones como blasfemas (19:1–6).
+
+---
+
+### 2 Reyes 18:33
+En la Biblia, el Señor es totalmente distinto de los demás dioses. Sin embargo, el comandante de campo asirio no hace distinción alguna. En opinión del comandante del campo, si los dioses de las naciones no pudieron derrotar a Asiria, tampoco podrá hacerlo el Señor.
+
+---
+
+### 2 Reyes 18:34
+Hamat... Sefarvaim... y Ivá. Véase nota en 17:24. Arpad. Ubicada cerca de Hamat en Siria, Arpad fue capturada en el año 740 a. C. VOLVER 2 REYES 18:34
+
+---
+
+### 2 Reyes 18:36
+El pueblo guardó silencio. El esfuerzo asirio por levantar al pueblo contra su rey (vv. 29, 31, 32) es un fracaso total.
+
+---
+
+### 2 Reyes 18:37
+con sus ropas rasgadas. Las ropas rasgadas Indican angustia emocional (nota 1 de 1 Reyes 21:27).
+
+---
+
+### 2 Reyes 19:1
+rasgó sus vestidos. Véase 1 R. 21:27. Se cubrió de cilicio. Véase nota sobre 6:30.
+
+---
+
+### 2 Reyes 19:2
+quien estaba a cargo de la casa real. Véase la nota sobre 1 R. 4:6. el secretario. Véase 2 Sam. 8:17. Los sacerdotes mayores. Estos ancianos son probablemente los jefes de las diversas familias sacerdotales de Jerusalén. El profeta Isaías, que desempeña un papel fundamental al brindarle buenos consejos a Ezequías durante esta crisis (Is. 37).
+
+---
+
+### 2 Reyes 19:4
+El remanente que quedó. Este remanente incluye a todo el pueblo que quedó en Judá, ya sea de Judá o de Israel, después de los ataques y deportaciones asirias (nota de 17:6).
+
+---
+
+### 2 Reyes 19:8
+Libna. Esta ciudad se encuentra en la frontera de Judea con Filistea, a doce millas (19 km) al sureste de Asdod. En sus anales, Senaquerib se jacta de cómo obligó a Ezequías a entregarle bajo su custodia al rey de Ecrón, a quien Ezequías tenía retenido en Jerusalén. Es evidente que Senaquerib tuvo éxito en revertir la mayoría de las ganancias anteriores de Ezequías contra los filisteos (18:8). Laquis. Véase 18:17 y nota.
+
+---
+
+### 2 Reyes 19:9
+Tirhaca rey de Cus. Cus, o Etiopía, se refiere al sur de Egipto y la tierra al sur. Tirhaca era hermano del faraón Sebteco, quien lanzó una campaña en Palestina para contrarrestar a los asirios bajo el mando de Senaquerib. Aunque Tirhaca no se convirtió en rey hasta el 690 o 688 a. C., en el momento de la composición de este pasaje era natural referirse a él con su título característico. Senaquerib derrotó a ese rey. Ejército egipcio en Eltekeh, en la llanura costera de Palestina.
+
+---
+
+### 2 Reyes 19:12
+Gozán. Véase 17:6. Harán. Véase Génesis 11:31. Resef. Población de Siria situada al noreste de Hamat. El pueblo de Edén que estaba en Telasar. Edén es un distrito en Siria al sur de Harán.
+
+---
+
+### 2 Reyes 19:13
+Hamat... Ivá. Senaquerib proporciona esta letanía de nombres, incluidas las ciudades a las que los asirios deportaron a la gente de Israel (17:24 y nota), para convencer a Ezequías de que Judá sufriría como había sufrido Israel.
+
+---
+
+### 2 Reyes 19:18
+No eran dioses. Véase Deuteronomio 4:28, 35; 32:17–21; Salmo 115:3–8; Isaías 40:18–20; 44:9–20.
+
+---
+
+### 2 Reyes 19:21
+la virgen hija de Sión. La frase se refiere cariñosamente a Jerusalén (Is. 1:8). Mueve la cabeza detrás de ti. Describe un gesto de burla mientras Asiria huye (Jeremías 18:16).
+
+---
+
+### 2 Reyes 19:25
+¿No habéis oído? Los asirios creen equivocadamente que sus grandes victorias se deben a su propio poder. No reconocen que Dios es el responsable último de su éxito (cf. Is. 10:5-6). 12; 14:24–27).
+
+---
+
+### 2 Reyes 19:28
+Pondré mi anzuelo en tu nariz y Mi bocado en tu boca. Una referencia a la costumbre asiria de tratar a los enemigos capturados como animales en una caravana (2 Crónicas 33:11; cf. Ezequiel 19:4, 9). Dios cambiará la situación en Asiria.
+
+---
+
+### 2 Reyes 19:29
+señal. Es decir, una verificación de un evento futuro (nota de 1 R. 13:3). A medida que las cosechas de Judá continúan produciendo, el pueblo Podemos estar seguros de que Judá sobrevivirá a la invasión asiria.
+
+---
+
+### 2 Reyes 19:30
+remanente. Véanse las notas sobre el versículo 4 e Is. 1:9. El remanente no sólo sobrevivirá sino que también florecerá.
+
+---
+
+### 2 Reyes 19:34
+por amor a David mi siervo. Véase la nota sobre 1 R. 11:36.
+
+---
+
+### 2 Reyes 19:35
+ángel del SEÑOR . Para el ángel como instrumento de destrucción, véase 2 Sam. 24:16. La destrucción masiva del ejército asirio cumple las profecías de los versículos 21, 32–34. El Señor responde La oración de Ezequías (v. 19) de una manera notable.
+
+---
+
+### 2 Reyes 19:36
+Nínive. La capital del imperio asirio . Imperio.
+
+---
+
+### 2 Reyes 19:37
+Nisroc. Este dios no se encuentra en Registros asirios. Es irónico que el Señor libere a Judá, pero que la liberación de Senaquerib Dios no puede liberarlo. lo derribó. Los documentos asirios registran que en una lucha por el trono en 681 a. C. Uno de los hijos de Senaquerib lo mató. El autor de Reyes ha resumió los acontecimientos que rodearon la vergonzosa derrota de Senaquerib ( 701 a. C.) y su asesinato (681 a.C.). Ararat. Otro nombre de Urartu, la actual Armenia (Gén. 8:4). Asarhaddón. Gobernó Asiria desde el 681 al 669 a. C. REGRESAMOS A 2 REYES 19:37
+
+---
+
+### 2 Reyes 20:1
+En aquellos días. Hay buenas razones para Creen que este incidente y la recepción del enviado babilónico (vv. 12-19) ocurrió antes de la invasión asiria de Judá en el año 701 a. C., porque según Documentos babilónicos, Merodac-baladán (v. 12) murió en 703 a. C. Puesto que Dios Añadió quince años a la vida de Ezequías (v. 6), su enfermedad ocurre en el año 703 a. C. o antes. Véase la nota sobre Is. 38:5.
+
+---
+
+### 2 Reyes 20:4
+El patio central. Esta es un área abierta . entre el templo y el palacio. Isaías se dirige al templo cuando el La palabra de Dios llega a él, y así vuelve a hablar con Hezequías (v. 5).
+
+---
+
+### 2 Reyes 20:5
+Yo he oído tu oración ; he visto Tus lágrimas. Dios compasivamente añade quince años (v. 6) a la vida de Hezequías. Las reformas de Ezequías (18:4, 5), junto con su constante confianza en Dios durante el La invasión asiria (18:7, 22, 32; 19:4) revela una coherencia de carácter . En cuanto a la conducta de Ezequías, esta es ejemplar. Este pasaje subraya la importancia no sólo de la oración sino también de la libertad divina, la compasión y omnipotencia (cf. 1 R 21:27-29).
+
+---
+
+### 2 Reyes 20:6
+Yo te libraré a ti y a esta ciudad de la mano de Jehová. mano del rey de Asiria. Véanse las notas sobre el v. 1 y 1 R. 11:13.
+
+---
+
+### 2 Reyes 20:7
+torta de higos. La intervención divina en la sanación no excluye el uso de la medicina (v. 5).
+
+---
+
+### 2 Reyes 20:10
+diez pasos. La referencia es al índice marcas en los escalones (esfera) de Acaz (v. 11; Is. 38:8; cf. Jos. 10:12–14).
+
+---
+
+### 2 Reyes 20:11
+retroceder diez escalones. El movimiento del sol ya ha hecho que una sombra baje los escalones de la escalera. Ezequías pide que la sombra se mueva de manera antinatural hacia atrás por las escaleras. Esto es para que sirva como una señal para Ezequías de que la naturaleza está a la entera disposición de Dios y, por lo tanto, que el Señor controla incluso la enfermedad que conduce a la muerte.
+
+---
+
+### 2 Reyes 20:12
+Merodac-baladán. Merodac-baladán fue rey de Babilonia desde el año 721 a. C. hasta que el rey asirio Sargón II lo obligó a entablar una relación de vasallaje en el año 710 a. C. Poco después de la muerte de Sargón (705 a. C.), A.C.), Merodac-baladán condujo a su país a una efímera independencia en el año 704 a.C. antes de que Senaquerib lo derrotara en el año 703 a. C. (nota v. 1). Envió... cartas y un presente a Ezequías. Asiria era el imperio mundial dominante en ese momento, y es probable que Merodac-baladán, junto con el rey de Egipto, estuviera tratando de alentar a Ezequías a permanecer independiente de los asirios.
+
+---
+
+### 2 Reyes 20:13
+su armería, todo lo que se halló en su Los tesoros de Ezequías se exhiben en los almacenes de Asiria. Esta exhibición probablemente ocurre antes de que Ezequías envíe sus tesoros como tributo a los asirios (v. 1 nota; 18:14-16 nota). Ezequías está tratando de impresionar a sus visitantes babilónicos con la riqueza y el poder de su nación. Ezequías es receptivo a la idea de un alineamiento con Egipto y Babilonia. Isaías se opuso al tratado de Acaz con Asiria (Is. 7:1- 17), y se opone a este intento de hacer un pacto. Tratado con Babilonia y Egipto (vv. 16–18; Is. 30; 31).
+
+---
+
+### 2 Reyes 20:17
+serán llevados a Babilonia. Isaías reprende a un ingenuo Ezequías. Los mismos tesoros que podrían inducir a un tratado también podrían atraer una invasión. Esta profecía se cumple con una invasión babilónica en 598 a. C. y con el exilio babilónico de 586 a. C. Después de buscar refugio con los babilonios, Ezequías descubre que los babilonios finalmente serán la ruina de Judá.
+
+---
+
+### 2 Reyes 20:18
+tus propios hijos, que te nacerán Tú. El hijo de Ezequías, Manasés, es exiliado por los asirios y mantenido cautivo en Babilonia (2 Crónicas 33:11). Más tarde le siguen otros descendientes (24:15; 25:7). eunucos. Véase nota sobre 9:32.
+
+---
+
+### 2 Reyes 20:20
+el estanque y el conducto y trajo Agua en la ciudad. Ezequías hizo mejoras en el suministro de agua de Jerusalén antes de la invasión asiria. Una inscripción en el túnel de Siloé celebra la finalización de una impresionante obra de ingeniería. El conducto corre desde el manantial de Gihón fuera de la muralla de la ciudad (cf. 1 R 1:33 nota) a través de mil setecientos pies de roca sólida hasta el estanque de Siloé dentro de la ciudad. Libro de las Crónicas de los reyes de Judá. Véase nota sobre 1 R 11:41.
+
+---
+
+### 2 Reyes 21:1
+Estos versículos resumen el reinado malvado de Manasés, rey de Judá. Manasés conduce a Judá al pecado al reintroducir la idolatría; también es culpable de derramar sangre inocente (v. 16). Tan grande es el pecado de Manasés que Dios pronuncia desastre sobre Judá y Jerusalén. Si bien el relato paralelo de la vida de Manasés en 2 Crónicas 33 resalta sus defectos, también revela que más tarde se arrepiente de sus pecados. Cincuenta y cinco años, es decir, 697–642 a. C. Algunos eruditos sugieren que Ezequías murió en 686 a. C. Si están en lo cierto, Manasés sirvió como corregente con Ezequías durante diez años como rey de Judá y reinó cuarenta y cinco años después de la muerte de Ezequías. En cualquier caso, el reinado de Manasés es el más largo de cualquier rey de Judá. Los registros asirios dicen que Manasés fue vasallo tanto de Esarhaddón (681–669 a. C.) como de Asurbanipal (669–627 a. C.).
+
+---
+
+### 2 Reyes 21:2
+Hizo lo malo. Manasés preside el peor período de infidelidad en la historia de Judá. Las reformas instituidas por Ezequías son revertidas por su hijo. Manasés también introduce elementos paganos en el culto judío que no tienen precedentes en la historia de la monarquía antes de él (vv. 3–11 notas).
+
+---
+
+### 2 Reyes 21:3
+los lugares altos que Ezequías su padre había destruido. Véase 18:4 y la nota sobre 1 R 3:2. Altares para Baal. El culto a Baal, aprobado por el Estado, regresa después de haber sido erradicado en las reformas lideradas por el sacerdote Joiada (11:18). Asera. Véase nota sobre 1 Reyes 14:15. Tal como lo había hecho Acab, rey de Israel. Manasés imita la política del peor rey del reino del norte (1 R 16:30-33). Adoraban a todo el ejército del cielo. En Babilonia y otras naciones de la época, el sol, la luna y las estrellas son personificados como dioses (17:16; 23:5). El culto a las estrellas está prohibido en Israel (Deut. 4:19; 17:3).
+
+---
+
+### 2 Reyes 21:4
+altares en la casa del SEÑOR . Estos altares están dedicados al “ejército del cielo” (v. 5). Jerusalén. Véase nota sobre 1 Reyes 11:13.
+
+---
+
+### 2 Reyes 21:6
+quemó a su hijo como ofrenda. Sobre la espantosa práctica del sacrificio de niños, véase la nota sobre 16:3 y Deuteronomio 12:29– 31. Médiums... nigromantes. Véase la nota sobre 16:15.
+
+---
+
+### 2 Reyes 21:7
+a David y a su hijo Salomón. David quería construir el templo él mismo (2 S. 7:1–3), pero el Señor en cambio le prometió a David que Él le construiría una dinastía y que su hijo construiría el templo (2 S. 7:8–16). Esa promesa se cumplió durante el reinado de Salomón, y Dios bendijo el templo como el lugar divinamente ordenado para el sacrificio y la oración (1 R. 9:1–3; cf. Dt. 12:5).
+
+---
+
+### 2 Reyes 21:8
+Si tan solo tuvieran cuidado de hacerlo. La tierra es un regalo, y su posesión depende de la fidelidad de los israelitas (Deut. 1:8; 3:18; 4:1, 25–28; 1 R. 9:4–9). Mi siervo Moisés. Véase nota sobre 1 Reyes 2:3.
+
+---
+
+### 2 Reyes 21:11
+Amorreos. Aquí se usa una designación general de Los habitantes originales de Canaán (nota 1 R 21:26).
+
+---
+
+### 2 Reyes 21:13
+cordel de medir... plomada. Tanto Samaria (17:5, 6) como la casa de Acab (10:10, 11) fueron destruidas. Yahvé utiliza para la destrucción las herramientas que normalmente se emplean para la construcción (Is. 34:11; Lam. 2:8; Amós 7:7–9).
+
+---
+
+### 2 Reyes 21:14
+Te abandonaré. El tiempo de la paciencia y La paciencia ha terminado. Jerusalén y Judá no serán derrotadas por un pueblo superior o un dios superior. Por el contrario, Dios está abandonando lo que queda de las doce tribus originales a sus enemigos como castigo (Is. 1:5). El exilio a Babilonia del 586 a. C. está en perspectiva (25:1–17).
+
+---
+
+### 2 Reyes 21:15
+Desde aquel día. Después de liberar a su pueblo de la esclavitud en Egipto, Dios hizo un pacto con Israel en el monte Sinaí (Éxodo 19:1–Números 10:10). Aunque tanto Dios como Israel hicieron promesas en este pacto, solo Dios se ha mantenido fiel. La historia de Israel se ha caracterizado por una rebelión constante.
+
+---
+
+### 2 Reyes 21:16
+derramaron mucha sangre inocente. Esta expresión se refiere a la opresión y persecución de los débiles (Jeremías 7:6; 22:3, 17; Ezequiel 22:6–31).
+
+---
+
+### 2 Reyes 21:17
+Libro de las Crónicas de los Reyes de Judá. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 21:18
+El huerto de Uza. Su ubicación es incierta, aunque aparentemente se encuentra fuera de la ciudad de David (una escarpadura al sur de Jerusalén). Los reyes judíos anteriores fueron enterrados en la ciudad de David (cf. 15:38; 16:20). El entierro de Manasés en otro lugar puede, de hecho, ser una señal de la atrocidad de su reinado.
+
+---
+
+### 2 Reyes 21:19
+Amón... reinó dos años. 642–640 Es probable que Amón, como Manasés antes que él, fuera un vasallo asirio.
+
+---
+
+### 2 Reyes 21:24
+el pueblo de la tierra. Véase la nota sobre 11:14. El pueblo, que desea reformas profundas y no simplemente la eliminación de Amón, da un paso adelante e instala a un descendiente de David que será leal al legado davídico.
+
+---
+
+### 2 Reyes 21:25
+Libro de las Crónicas de los Reyes de Judá. Véase nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 22:1
+Treinta y un años. 640–609 a. C. Boscat. Ciudad de Judá, mencionada en Josué 15:39, pero de ubicación desconocida.
+
+---
+
+### 2 Reyes 22:2
+David su padre. El escritor elogia a varios reyes de Judá: Asa (1 R. 15:11), Josafat (1 R. 22:43), Joás (2 R. 12:2), Amasías (14:3), Azarías (15:3), Jotam (15:34) y Ezequías (18:3), pero le da a Josías el mayor elogio (23:25). Josías instituye las reformas más profundas de cualquier rey (23:1–24). El profeta Jeremías también habla bien del reinado de Josías (Jer. 22:15, 16). No se desvió. Sus acciones están en total conformidad con el mandato del pacto (Deut. 5:32; 17:11, 20; 28:14; Jos. 1:7; Prov. 4:27).
+
+---
+
+### 2 Reyes 22:3
+Año dieciocho. Cuando Josías tenía veintiséis años. secretario. O escriba, véase 2 Sam. 8:17; Esdras 7:6 y notas. En la época del reinado de Josías, el Imperio asirio se encontraba en un estado de decadencia. Josías, a diferencia de Manasés, afirma la independencia de Judá de Asiria. Josías puede obtener el control sobre al menos al menos parte del antiguo reino del norte (23:4, 15–20).
+
+---
+
+### 2 Reyes 22:4
+Hilcías. Probablemente no es el mismo hombre que se menciona como el padre de Jeremías (Jer. 1:1); este Hilcías es el abuelo del sumo sacerdote Seraías, quien más tarde es exiliado a Babilonia (25:18–20). que los guardianes del umbral han recogido del pueblo. El rey Joás utilizó anteriormente la misma técnica para recaudar fondos para restaurar el templo (12:4, 5). Josías está restaurando el templo después de su abandono en los días de Manasés y Amón.
+
+---
+
+### 2 Reyes 22:8
+El libro de la ley. En realidad, se trata de un rollo y probablemente una versión del Deuteronomio (Deut. 28:61; 31:24, 26). Las reformas que inicia Josías (23:1-24) siguen a las de Deuteronomio. Al parecer, el rollo estuvo escondido o perdido en el templo debido a los reinados apóstatas de Manasés y Amón que precedieron al gobierno de Josías.
+
+---
+
+### 2 Reyes 22:11
+rasgó sus vestidos. Véase la nota sobre 1 R. 21:27 Josías está perturbado porque no se cumple la ley, y se da cuenta de que Esto desagrada a Dios (v. 13; Deut. 6:10–19; 28:15–68).
+
+---
+
+### 2 Reyes 22:12
+Ahicam, hijo de Safán. Ahicam es el padre de Gedalías, quien más tarde es designado gobernador por Nabucodonosor. de Judá (25:22; Jer. 26:24).
+
+---
+
+### 2 Reyes 22:13
+Id, consultad al Señor . Josías, como muchos reyes antes que él, consulta a un profeta o profetisa en una situación desesperada (19:2; 20:1–5; 1 R. 14:1–18; 20:13, 14).
+
+---
+
+### 2 Reyes 22:14
+Hulda, la profetisa. Es la esposa de un funcionario del palacio. el segundo trimestre. Probablemente un trimestre interno desarrollado recientemente en el colina occidental de Jerusalén (cf. 2 Cr. 33:14; Sof. 1:10).
+
+---
+
+### 2 Reyes 23:1
+ancianos. Ver nota sobre 1 Reyes 8:1. VOLVER 2 REYES 23:1
+
+---
+
+### 2 Reyes 23:2
+Libro del pacto. Los eruditos debaten el contenido preciso de este libro o rollo. Aunque Éxodo 20-23 se denomina el “Libro del pacto” (Éxodo 24:7), es poco probable que se refiera solo a estos capítulos de Éxodo. A juzgar por el tipo de reforma que Josías persigue en los versículos 4-24, el libro es una versión de Deuteronomio (nota 22:8) o un grupo más amplio de leyes que incluye Deuteronomio. Algunos eruditos sostienen que el libro de Deuteronomio Presenta características que se encuentran en los documentos de pactos del antiguo Cercano Oriente.
+
+---
+
+### 2 Reyes 23:3
+junto a la columna. Véanse las notas sobre 11:14; 1 Rey. 7:15. hizo un pacto. Josías, como Moisés (Éx. 24:1–8; Deut. 29:1), Josué (Jos. 24:1-28), y antes de él Jehoiadá (2 R 11:17), guía al pueblo en la renovación de su compromiso con Dios. Durante la liturgia, el pueblo se compromete a “guardar sus mandamientos, sus testimonios y sus estatutos”. con todo su corazón y con toda su alma. Véase Deuteronomio 6:5 y el resumen que Jesús hace de la ley en Mateo 22:36-40.
+
+---
+
+### 2 Reyes 23:4
+Baal. Véase la nota sobre 1 R. 16:32. Asera. Véase nota sobre 1 Reyes 14:15. el ejército del cielo. Véanse las notas sobre 17:16 y 21:4. cenizas a Betel. Betel es uno de los dos lugares originales donde Jeroboam I utilizó becerros de oro en un culto rival (1 R. 12:26-33). Al depositar cenizas en Betel, Josías profana el centro religioso de Jeroboam (cf. vv. 15-20).
+
+---
+
+### 2 Reyes 23:5
+sacerdotes. Véase Oseas 10:5; Sof. 1:4. lugares altos. Véase nota sobre 1 Reyes 3:2.
+
+---
+
+### 2 Reyes 23:6
+lo quemó... y lo redujo a polvo. Similar a lo que hizo Moisés después de que los israelitas adoraron a un becerro de oro (Éx. 32:20; Deut. 9:21). Las tumbas de la gente común. Josías hace esto para profanar tanto la imagen de madera como el valle de Cedrón, que han sido un lugar de idolatría desde los días de Salomón (1 Reyes 11:7).
+
+---
+
+### 2 Reyes 23:7
+prostitutas cultuales masculinas. Véase la nota sobre 1 R. 14:24.
+
+---
+
+### 2 Reyes 23:8
+desde Geba hasta Beerseba. Geba, a unos diez kilómetros al norte/noreste de Jerusalén, está situada en la frontera norte de Judá, y Beerseba se encuentra en la frontera sur de Judá. Josías está centralizando la adoración del reino del sur de acuerdo con las prescripciones de Deuteronomio 12. Se han descubierto las ruinas de un templo israelita en la fortaleza de Arad. Construido por primera vez en el siglo X a. C., es bastante similar en forma al templo de Jerusalén. Fue destruido durante las reformas de ambos Ezequías o Josías porque no era un santuario legítimo para Israel.
+
+---
+
+### 2 Reyes 23:9
+no subieron al altar del SEÑOR . Deuteronomio 18:6–8 permite a los sacerdotes locales la opción de unirse al personal del santuario central. Sin embargo, la ascendencia incierta de estos sacerdotes puede hacerlos incapaces de esta tarea (1 Reyes 12:31; 13:33). Pueden aspirar a un papel secundario en el servicio del templo. Comían pan sin levadura. A los sacerdotes de los lugares altos se les permite una porción de las provisiones sacerdotales (Levítico 2:10; 6:16-20).
+
+---
+
+### 2 Reyes 23:10
+Tofet. En varios puntos de la historia de Israel y Judá, se llevaron a cabo sacrificios de niños en este lugar del valle del Hijo de Hinom, en las afueras de Jerusalén (16:3; 21:6; Jer. 7:31, 32; 19:5, 6). Moloc. Véase la nota sobre 1 Reyes 11:5.
+
+---
+
+### 2 Reyes 23:11
+caballos... dedicados al sol. Algunos de los vecinos del antiguo Israel consideran al sol como divino (17:16), y el dios asirio del sol es conocido por el título de “conductor de carro”. Se han encontrado caballos de arcilla en miniatura con discos solares en sus frentes en excavaciones cerca del área del templo. Véase también Ezequiel 8:16.
+
+---
+
+### 2 Reyes 23:12
+Derribados. Al derribar los altares utilizados para el culto astral, Josías revierte las políticas de Acaz (16:3, 4, 10–16), Manasés (21:3) y Amón (21:21).
+
+---
+
+### 2 Reyes 23:13
+los lugares altos... que Salomón el El rey de Israel había construido. De todos los reyes de Judea, sólo Josías tuvo el valor de derribar los lugares altos que Salomón había construido para los dioses de sus esposas extranjeras (1 R. 11:1–8, 33).
+
+---
+
+### 2 Reyes 23:14
+Josías profanó recintos sagrados que databan de la época de Roboam, cuando había pilares y Aseras (1 R. 14:23).
+
+---
+
+### 2 Reyes 23:15
+El altar de Betel. Véase 1 R. 12:32, 33. No está claro si Josías profanó el centro de culto que Jeroboam I estableció en Dan (1 Rey. 12:29, 30) o si este centro de culto todavía funcionaba en esta época.
+
+---
+
+### 2 Reyes 23:18
+Samaria. El nombre aquí probablemente designa al antiguo reino del norte (v. 19; 17:24; 1 R. 13:32) y no a la ciudad. El profeta del norte era de Betel (1 R. 13:11), y Omri construyó la ciudad. ciudad de Samaria algún tiempo después de esta profecía (1 Reyes 16:24 y nota).
+
+---
+
+### 2 Reyes 23:19
+en las ciudades de Samaria. Josías comienza sus reformas en el norte en Betel y las extiende al antiguo reino del norte.
+
+---
+
+### 2 Reyes 23:20
+sacrificaron a todos los sacerdotes. Véase la Estatutos que tratan con aquellos que abogan por la adoración de otros dioses, Deuteronomio 13:6-18; 17:2-7.
+
+---
+
+### 2 Reyes 23:21
+Josías restablece la Pascua. 23:21 este Libro del Pacto. Se refiere a Deuteronomio, especialmente 16:1–8, que autoriza comer la Pascua solo en el santuario central. En Egipto, la Pascua se celebraba en un ambiente familiar (Éx. 12:1–28, 43–49). 2 REYES 23:21
+
+---
+
+### 2 Reyes 23:22
+desde los días de los jueces. La Pascua es mencionado anteriormente en los Libros Históricos en Josué 5:10-12.
+
+---
+
+### 2 Reyes 23:23
+en el año dieciocho. Cuando Josías tenía veintiséis años.
+
+---
+
+### 2 Reyes 23:24
+los médiums y los nigromantes. Introducido por Manasés (21:6). Dioses domésticos. Sobre estos ídolos pequeños, véase Génesis 31:19; Jueces 17:5; 1 Samuel 19:13. Palabras de la ley. Véanse las notas sobre el v. 2; 22:8.
+
+---
+
+### 2 Reyes 23:26
+El Señor no se apartó de él. El ardor de su gran ira. Las reformas de Josías demoran, pero no llevan a Dios a arrepentirse de su decisión de exiliar a su pueblo a causa de los pecados de Manasés (21:12-15 y notas).
+
+---
+
+### 2 Reyes 23:28
+Libro de las Crónicas de los Reyes de Judá. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 23:29
+Necao. Este faraón gobernó entre 610 y 595 a. C. Al rey de Asiria. Babilonia es ahora la nación más poderosa del Oriente Próximo y el Imperio asirio está en decadencia. Necao probablemente marcha para ayudar a los asirios contra los resurgentes babilonios. Meguido. La Crónica Babilónica narra la expedición del faraón Necao II para ayudar a los asirios. Josías busca impedir que Egipto refuerce a Asiria. y muere en la batalla que se libra en Meguido.
+
+---
+
+### 2 Reyes 23:30
+pueblo de la tierra. Véase la nota sobre 11:14. Jehoacaz. Jehoacaz (o Salum) es elegido para reemplazar al caído Josías, a pesar de ser su hijo menor (1 Cr. 3:15; Jer. 22:11). Es posible que lo escojan por sobre sus hermanos mayores porque mantiene una postura antiegipcia, como la de su padre (cf. Ez. 19:3, 4). lo ungió. Véase nota sobre 1 Reyes 1:34.
+
+---
+
+### 2 Reyes 23
+Estos versículos resumen el breve reinado de Joacaz, rey de Judá, quien hace “lo malo ante los ojos del Señor” (v. 32). Joacaz es capturado y deportado a Egipto, y su medio hermano mayor Eliaquim (Joacim) lo reemplaza. 23:31 tres meses. Durante el año 609 a. C. Jeremías. No el profeta Jeremías, que es de Anatot (Jer. 1:1). Libna. Véase nota sobre 8:22.
+
+---
+
+### 2 Reyes 23:33
+Ribla en la tierra de Hamat. Ubicada sobre el río Orontes en el norte del valle del Líbano, Ribla fue utilizada por primera vez por Necao y más tarde por Nabucodonosor como cuartel general militar (25:6).
+
+---
+
+### 2 Reyes 23:34
+Eliaquim... Joacim. Cuando obligaban a sus vasallos a hacer un juramento de lealtad, los reyes asirios a veces cambiaban los nombres de sus vasallos. La habilidad de Necao para hacer que Eliaquim cambiara su nombre podría indicar que tal intento era una demostración de poder.
+
+---
+
+### 2 Reyes 23:35
+exigió la plata y el oro de los El pueblo de la tierra. Joacim cobra impuestos a las mismas personas que llevaron a Joacaz al trono (v. 30).
+
+---
+
+### 2 Reyes 23:36
+El escritor deja en claro que los desastres que le sobrevinieron a Judá a manos de invasores extranjeros son el cumplimiento de la palabra de juicio de Dios contra Judá por el pecado de Manasés (21:10–15; 24:2–4). 23:36 once años. 609–598 a. C. Ruma. La ciudad está situada a unos 22 km al oeste del mar de Quinéret (Galilea).
+
+---
+
+### 2 Reyes 24:1
+Nabucodonosor. Nabucodonosor II fue rey de Babilonia desde 605 hasta 562 a. C. Babilonia derrotó a Necao de Egipto en una importante batalla en Carquemis (Jer. 46:2), y desde entonces Judá fue gobernada por Babilonia en lugar de Egipto. Según los registros babilónicos, Nabucodonosor II sometió a los “Tierra de Hatti”, incluida la ciudad de Judá (es decir, Jerusalén). tres años. 604–602 a.C. Se volvió y se rebeló. En contra del consejo de Jeremías (Jer. 27:9-11), la decisión de Joacim de rebelarse puede estar influenciada por la exitosa defensa de Egipto contra Nabucodonosor en el 601 a. C. REGRESAR A 2 REYES 24:1
+
+---
+
+### 2 Reyes 24:2
+El Señor envió tropas. La reacción de Dios contra la rebelión de Judá es rápida (cf. 23:26, 27). Los sirios, moabitas y amonitas son vasallos de Babilonia y probablemente se vieron obligados a participar en la invasión de Judá.
+
+---
+
+### 2 Reyes 24:4
+sangre inocente que había derramado. Véase nota sobre 21:16. La violación del pacto es tan reprensible que el Señor no la perdonará.
+
+---
+
+### 2 Reyes 24:5
+Libro de las Crónicas de los Reyes de Judá. Véase la nota sobre 1 Reyes 11:41.
+
+---
+
+### 2 Reyes 24:6
+Joaquín. También se le llama “Jeconías”. (1 Crónicas 3:16) y “Conías” (Jeremías 22:24). En su lugar reinó Joacim. Muere (598 a. C.) antes de que Jerusalén se rindiera a los babilonios (vv. 8-12).
+
+---
+
+### 2 Reyes 24:7
+El arroyo de Egipto. Véase la nota sobre 1 R. 8:65.
+
+---
+
+### 2 Reyes 24:8
+tres meses. Según los registros babilónicos, Jerusalén cayó el 16 de marzo de 597 a. C. El reinado de Joaquín debe haber comenzado en diciembre de 598.
+
+---
+
+### 2 Reyes 24:10
+Jerusalén. La Crónica Babilónica informa que en el año 597 a. C. Nabucodonosor sitió la ciudad, la capturó y nombró a un rey títere para que la gobernara. Luego le exigió tributo a la ciudad.
+
+---
+
+### 2 Reyes 24:12
+prisionero. Los textos cuneiformes de Babilonia mencionan a Joaquín como alguien que recibía aceite mientras estaba prisionero en Babilonia (cf. 25:30).
+
+---
+
+### 2 Reyes 24:13
+todos los utensilios de oro. Véase 1 R. 7:51.
+
+---
+
+### 2 Reyes 24:14
+cautivos. Jeremías 52:28 da una cifra de 3.023 deportados, pero es posible que no incluya a mujeres y niños. excepto los más pobres. La práctica babilónica en ese momento era deportar a las clases altas y a los líderes de las tierras capturadas, paralizando así las economías de esas sociedades.
+
+---
+
+### 2 Reyes 24:16
+todos los hombres de valor... y los Los artesanos y los trabajadores del metal. Estos pueden ser parte de la cifra redonda de 10.000 cautivos en el versículo 14.
+
+---
+
+### 2 Reyes 24:17
+Matanías. Hermano de Joacim (padre de Joaquín) e hijo de Josías (1 Crónicas 3:15; Jeremías 1:3). Sedequías. El nombre de Matanías probablemente se haya cambiado para indicar que era vasallo de Nabucodonosor (nota de 23:34).
+
+---
+
+### 2 Reyes 24:18
+Esta sección de Reyes tiene un paralelo con Jeremías 52:1–27. 24:18 once años. 597–586 a.C. Jeremías. No el profeta Jeremías. Véase 23:31 y nota. Libna. Véase nota sobre 8:22.
+
+---
+
+### 2 Reyes 24:19
+conforme a todo lo que había hecho Joacim El autor bíblico no cuenta todo el mal que comete Sedequías durante su reinado. El juicio de Dios ya ha sido decretado y Judá se desliza hacia el olvido (20:17, 18; 21:12-15; 22:16, 17). Más información sobre el reinado de Sedequías El reinado de Jehová se puede encontrar en Jeremías 21; 24; 27; 29; 32; 37–39; Ezequiel 17:11–21.
+
+---
+
+### 2 Reyes 24:20
+Sedequías se rebeló contra el rey de Babilonia. A pesar de ser un vasallo designado por Nabucodonosor, Sedequías conspira con Egipto y otras naciones contra los babilonios (Jer. 27:3–8; Eze. 17:11– 21) La desafortunada decisión de Sedequías de rebelarse contra Babilonia probablemente esté motivada por El estímulo del faraón Hophra (Apries), que llega al poder en el año 589 a. C.
+
+---
+
+### 2 Reyes 25:1
+en el año noveno. Probablemente enero de 588 Antes del asedio de Jerusalén, Nabucodonosor atacó las ciudades periféricas. Otra evidencia de esto proviene del sitio de Laquis, donde se encontraron veintiún Se han descubierto óstraca hebreos (trozos de cerámica con escritura sobre ellos) . Estas cartas están dirigidas a un funcionario de Laquis, de parte de un oficial de Judea en una región remota. Las cartas fueron escritas justo antes del asedio babilónico a Laquis . (589/588 a. C.). Uno de ellos contiene una advertencia de un profeta sobre un asalto inminente.
+
+---
+
+### 2 Reyes 25:2
+hasta el año undécimo. La fecha exacta La cronología del asedio de Jerusalén es un tema de debate. La mayoría de los comentaristas Concuerdan en que la ciudad cayó en julio de 586 a. C., aunque también se ha sugerido julio de 587 . (Jer. 39:2; 52:5–7).
+
+---
+
+### 2 Reyes 25:3
+Hambruna. Durante el asedio, Jerusalén experimenta terribles privaciones (Jer. 38:2, 3; Lam. 4:10).
+
+---
+
+### 2 Reyes 25:4
+puerta entre los dos muros. Esta puerta es en el muro sureste de la Ciudad de David y puede ser la Puerta de la Fuente (Nehemías 3:15)
+
+---
+
+### 2 Reyes 25:6
+el rey de Babilonia en Ribla. Ver nota el 23:33.
+
+---
+
+### 2 Reyes 25:7
+le sacaron los ojos a Sedequías. Ceguera Era un castigo común en el antiguo Cercano Oriente para los cautivos rebeldes. (Ezequiel 12:13). Sedequías lo llevó a Babilonia. Sedequías ignora el consejo de Jeremías, quien instó a los El rey se rindió a Babilonia porque el juicio del Señor era inevitable (Jer. 38:14–28). Mediante una rendición pacífica, Jerusalén podría haberse salvado destrucción. La tenaz resistencia de Sedequías sólo trae resultados horribles para ambos. Su familia y la nación. El propio Sedequías muere en Babilonia (Jer. 52:11) . 2 REYES 25:7
+
+---
+
+### 2 Reyes 25:8
+En el quinto mes. Probablemente en agosto de 586. AC Véase nota sobre 25:2.
+
+---
+
+### 2 Reyes 25:9
+toda casa grande. La terrible matanza y destrucción son deliberadas. Nabucodonosor no reconstruye Judá con Jerusalén como capital provincial babilónica. Y a diferencia de los asirios en sus tratos con Israel (17:24– 31; Esdras 4:2), no importa nuevos colonos de otras áreas para reemplazar a los muertos y exiliados.
+
+---
+
+### 2 Reyes 25:10
+derribó los muros. Se han encontrado evidencias de la destrucción en las excavaciones de la ciudad: en la base de una de las torres de fortificación se encontró una capa de destrucción que contenía puntas de flecha babilónicas.
+
+---
+
+### 2 Reyes 25:11
+que habían desertado. Al parecer, algunos de los israelitas dieron su lealtad a los babilonios incluso antes del asedio final. Los babilonios los llevaron a Babilonia. llevado al exilio. Los babilonios implementan una segunda deportación (24:12– 16), dejando sólo a los pobres para que cultivaran la tierra (v. 12).
+
+---
+
+### 2 Reyes 25:15
+También los braseros y los tazones. Véase 24:13; 1 R. 7:50; Jer. 15:13; 20:5; 27:16–22.
+
+---
+
+### 2 Reyes 25:18
+Seraías, el sumo sacerdote. El nieto de Hilcías (22:4, 8; 1 Cr. 6:13, 14) y antepasado de Esdras (Esd. 7:1).
+
+---
+
+### 2 Reyes 25:21
+Los babilonios los condenaron a muerte. Las fuerzas eliminan a todos los líderes restantes, no todos los cuales son soldados. 2 Reyes 25:21
+
+---
+
+### 2 Reyes 25:22
+Gedalías. Después de abolir la monarquía, Nabucodonosor nombra a Gedalías, un ciudadano muy conocido de Judá, como gobernador para traer estabilidad a la tierra (Jer. 40:9-12). El padre de Gedalías, Ahicam, apoyó a Jeremías (Jer. 26:24). Ahicam. El padre de Gedalías era un consejero cercano de Josías (22:12).
+
+---
+
+### 2 Reyes 25:23
+Mizpa. Gedalías vive en Mizpa, ocho 13 km al norte de Jerusalén (Jer. 40:6).
+
+---
+
+### 2 Reyes 25:24
+juró. Véase la nota sobre 1 R. 1:17. VOLVER 2 REYES 25:24
+
+---
+
+### 2 Reyes 25:25
+séptimo mes. Posiblemente octubre de 586 ANTES DE CRISTO Ismael... de la familia real. El abuelo de Ismael, Elisama, fue secretario real bajo el reinado de Joacim (Jer. 36:12; 41:1). Ismael es parte de una facción en Judá que ve a Gedalías como colaborador y quiere resistir a los babilonios (véase el relato detallado en Jer. 40:13– 41:18). Es probable que Ismael haya puesto su mira en restablecer el trono de Judá con él mismo como rey. Derrotó a Gedalías, lo que creó condiciones aún peores en Judá (Jer. 44:1–14). Los exiliados consideran la muerte de Gedalías como una gran pérdida. Instituyen días de ayuno para lamentar su muerte, así como la destrucción de Judá y Jerusalén (Zac. 7:5; 8:19).
+
+---
+
+### 2 Reyes 25:26
+fueron a Egipto. Temiendo represalias de los babilonios, estos golpistas buscan refugio en Egipto, donde gobierna un faraón antibabilónico (nota de 24:20). La ley del rey en Deuteronomio 17:14-20 prohíbe a cualquier rey de Israel conducir al pueblo de regreso a Egipto (Deut. 17:16). Irónicamente, estos golpistas en su búsqueda de poder ponen en práctica una de las maldiciones del pacto: regresar a Egipto, la tierra de servidumbre y esclavitud (Deut. 28:68)
+
+---
+
+### 2 Reyes 25:27
+El escritor de Reyes termina su obra con una nota esperanzadora al llamar la atención sobre la misericordia mostrada a Joaquín, rey de Judá, mientras estaba exiliado en Babilonia.
+
+---
+
+### 2 Reyes 25:28
+un asiento sobre los asientos. Deuteronomio 4:25–31; 30:1–10 y la oración del rey Salomón en el templo (1 Reyes 8:46–53) todos se dirigen condiciones del exilio. Estos textos instan al arrepentimiento (Deut. 4:30; 30:2; 1 R. 8:47). La oración de Salomón para que los exiliados encuentren compasión en manos de sus captores se hace realidad en el trato bondadoso que recibe Joaquín. Deuteronomio 30:3-5 promete restauración al pueblo de Dios, y en el año 538 a. C. se permite a los judíos regresar a casa (Esdras 1:1-4; Is. 44:24-28; 45:1-6).
+
+---
+
+### 2 Reyes 25:29
+Él comía regularmente a la mesa del rey. Véase la nota sobre 1 R 2:7. El trato preferencial dado a Joaquín es un rayo de esperanza en cuanto a la continuidad de las promesas hechas a David (2 S 7:8-16). Los sombríos capítulos finales de Reyes enfatizan el juicio divino sobre Judá (21:10-15; 23:26, 27; 24:3, 4, 20; 25:21), pero también revelan en los últimos versículos que la destrucción de Judá y Jerusalén no corta el linaje de David. Hay motivos para mirar al futuro con confianza en que Dios un día restablecerá la dinastía davídica. Esto se cumple por medio de Jesucristo, el hijo de David (Mt 10:13). 1:1)
+
+---

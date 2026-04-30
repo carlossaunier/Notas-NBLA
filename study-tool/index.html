@@ -1,0 +1,873 @@
+<!DOCTYPE html>
+<html lang="es">
+<head>
+  <meta charset="UTF-8" />
+  <meta name="viewport" content="width=device-width, initial-scale=1.0" />
+  <title>Estudio Bíblico NBLA</title>
+  <style>
+    *, *::before, *::after { box-sizing: border-box; margin: 0; padding: 0; }
+
+    :root {
+      --bg: #0f0f13;
+      --surface: #18181f;
+      --surface2: #222230;
+      --border: #2a2a3a;
+      --text: #e8e8f0;
+      --muted: #7a7a95;
+      --accent: #6c63ff;
+      --accent2: #9d8fff;
+      --gold: #c9a84c;
+      --danger: #ff6b6b;
+      --radius: 10px;
+      --font: 'Inter', system-ui, sans-serif;
+      --serif: 'Georgia', 'Times New Roman', serif;
+    }
+
+    body {
+      background: var(--bg);
+      color: var(--text);
+      font-family: var(--font);
+      min-height: 100vh;
+      display: flex;
+      flex-direction: column;
+    }
+
+    header {
+      padding: 20px 32px;
+      border-bottom: 1px solid var(--border);
+      display: flex;
+      align-items: center;
+      gap: 14px;
+    }
+
+    header .logo {
+      width: 36px; height: 36px;
+      background: linear-gradient(135deg, var(--accent), var(--gold));
+      border-radius: 8px;
+      display: flex; align-items: center; justify-content: center;
+      font-size: 18px;
+    }
+
+    header h1 {
+      font-size: 17px;
+      font-weight: 600;
+      letter-spacing: 0.3px;
+      color: var(--text);
+    }
+
+    header span {
+      font-size: 12px;
+      color: var(--muted);
+      margin-left: 4px;
+    }
+
+    .main {
+      flex: 1;
+      display: grid;
+      grid-template-columns: 280px 1fr 1fr;
+      gap: 0;
+      max-height: calc(100vh - 65px);
+    }
+
+    .sidebar {
+      border-right: 1px solid var(--border);
+      background: rgba(0,0,0,0.1);
+      overflow: hidden;
+      display: flex;
+      flex-direction: column;
+    }
+
+    .search-wrap {
+      margin-bottom: 12px;
+    }
+
+    .search-wrap input {
+      width: 100%;
+      background: var(--surface2);
+      border: 1px solid var(--border);
+      border-radius: 6px;
+      padding: 8px 12px;
+      color: var(--text);
+      font-size: 13px;
+      outline: none;
+    }
+
+    .search-wrap input:focus {
+      border-color: var(--accent);
+    }
+
+    .book-list {
+      flex: 1;
+      overflow-y: auto;
+      margin-right: -4px;
+      padding-right: 4px;
+    }
+
+    .book-list::-webkit-scrollbar {
+      width: 4px;
+    }
+    .book-list::-webkit-scrollbar-thumb {
+      background: var(--border);
+      border-radius: 10px;
+    }
+
+    .book-item {
+      padding: 8px 12px;
+      border-radius: 6px;
+      cursor: pointer;
+      font-size: 13px;
+      color: var(--muted);
+      transition: all 0.2s;
+      display: flex;
+      justify-content: space-between;
+      align-items: center;
+      margin-bottom: 2px;
+    }
+
+    .book-item:hover {
+      background: var(--surface2);
+      color: var(--text);
+    }
+
+    .book-item.active {
+      background: rgba(108, 99, 255, 0.2);
+      color: var(--accent2);
+      font-weight: 600;
+    }
+
+    .book-count {
+      font-size: 10px;
+      background: var(--surface2);
+      padding: 2px 6px;
+      border-radius: 10px;
+      color: var(--muted);
+    }
+
+    .panel {
+      display: flex;
+      flex-direction: column;
+      padding: 24px;
+      gap: 12px;
+      overflow-y: auto;
+    }
+
+    .panel:not(:last-child) {
+      border-right: 1px solid var(--border);
+    }
+
+    .panel-label {
+      font-size: 11px;
+      font-weight: 600;
+      text-transform: uppercase;
+      letter-spacing: 1.2px;
+      color: var(--muted);
+    }
+
+    textarea {
+      flex: 1;
+      background: var(--surface);
+      border: 1px solid var(--border);
+      border-radius: var(--radius);
+      color: var(--text);
+      font-family: var(--serif);
+      font-size: 15px;
+      line-height: 1.75;
+      padding: 18px;
+      resize: none;
+      outline: none;
+      transition: border-color 0.2s;
+    }
+
+    textarea::placeholder { color: var(--muted); }
+    textarea:focus { border-color: var(--accent); }
+
+    .actions {
+      display: flex;
+      gap: 10px;
+      align-items: center;
+    }
+
+    button {
+      background: var(--accent);
+      color: #fff;
+      border: none;
+      border-radius: 8px;
+      padding: 10px 22px;
+      font-size: 14px;
+      font-weight: 600;
+      cursor: pointer;
+      transition: background 0.2s, transform 0.1s;
+      font-family: var(--font);
+    }
+
+    button:hover { background: var(--accent2); }
+    button:active { transform: scale(0.98); }
+
+    button.secondary {
+      background: var(--surface2);
+      color: var(--muted);
+      border: 1px solid var(--border);
+    }
+
+    button.secondary:hover { color: var(--text); background: var(--border); }
+
+    #status {
+      font-size: 12px;
+      color: var(--muted);
+      margin-left: auto;
+    }
+
+    #status.ok { color: #6dbf7a; }
+    #status.err { color: var(--danger); }
+
+    .output-wrap {
+      flex: 1;
+      background: var(--surface);
+      border: 1px solid var(--border);
+      border-radius: var(--radius);
+      overflow-y: auto;
+      padding: 18px;
+      font-family: var(--serif);
+      font-size: 15px;
+      line-height: 1.75;
+    }
+
+    .output-wrap .placeholder {
+      color: var(--muted);
+      font-style: italic;
+      font-family: var(--font);
+      font-size: 14px;
+      margin-top: 8px;
+    }
+
+    /* Output content styles */
+    .out-body { margin-bottom: 32px; }
+
+    .ref-tag {
+      background: rgba(108, 99, 255, 0.15);
+      color: var(--accent2);
+      border-radius: 4px;
+      padding: 1px 5px;
+      font-size: 13px;
+      font-family: var(--font);
+      font-weight: 500;
+      cursor: help;
+      border-bottom: 1px dashed var(--accent);
+    }
+
+    .notes-section {
+      border-top: 1px solid var(--border);
+      padding-top: 20px;
+    }
+
+    .notes-header {
+      font-family: var(--font);
+      font-size: 11px;
+      font-weight: 700;
+      text-transform: uppercase;
+      letter-spacing: 1.2px;
+      color: var(--gold);
+      margin-bottom: 16px;
+    }
+
+    .note-entry {
+      margin-bottom: 20px;
+    }
+
+    .note-ref {
+      font-family: var(--font);
+      font-size: 13px;
+      font-weight: 700;
+      color: var(--accent2);
+      margin-bottom: 4px;
+    }
+
+    .note-text {
+      font-size: 14px;
+      line-height: 1.7;
+      color: #c8c8d8;
+      white-space: pre-wrap;
+    }
+
+    .note-entry + .note-entry {
+      border-top: 1px solid var(--border);
+      padding-top: 16px;
+    }
+
+    .no-notes {
+      font-family: var(--font);
+      font-size: 13px;
+      color: var(--muted);
+      font-style: italic;
+    }
+
+    /* Loading state */
+    #loading {
+      display: none;
+      align-items: center;
+      gap: 8px;
+      font-size: 13px;
+      color: var(--muted);
+    }
+
+    .spinner {
+      width: 14px; height: 14px;
+      border: 2px solid var(--border);
+      border-top-color: var(--accent);
+      border-radius: 50%;
+      animation: spin 0.6s linear infinite;
+    }
+
+    .verse-inline {
+      color: var(--accent);
+      font-style: italic;
+      font-family: 'Inter', sans-serif;
+      font-size: 0.95em;
+      background: rgba(0, 163, 255, 0.05);
+      padding: 2px 6px;
+      border-radius: 4px;
+      margin: 0 4px;
+    }
+  </style>
+</head>
+<body>
+
+<header>
+  <div class="logo">✦</div>
+  <h1>Estudio Bíblico NBLA <span>— Biblia de Estudio de la Reforma</span></h1>
+</header>
+
+<div class="main">
+  <!-- SIDEBAR: BIBLIOTECA -->
+  <div class="panel sidebar">
+    <div class="panel-label">Biblioteca de Notas</div>
+    <div class="search-wrap">
+      <input type="text" id="book-search" placeholder="Buscar libro..." oninput="filterBooks()">
+    </div>
+    <div id="book-list" class="book-list">
+      <div class="placeholder">Cargando libros...</div>
+    </div>
+  </div>
+
+  <!-- INPUT -->
+  <div class="panel">
+    <div class="panel-label">Texto de estudio</div>
+    <textarea id="input" placeholder="Pega aquí el texto de tu estudio bíblico...
+
+Ejemplo:
+En Salmos 1:2 vemos que el justo medita en la ley del Señor...
+Como dice Romanos 8:28, todas las cosas ayudan a bien..."></textarea>
+    <div class="actions">
+      <button onclick="procesarTexto()">Procesar →</button>
+      <button class="secondary" onclick="copiarSalida()">Copiar resultado</button>
+      <div id="loading"><div class="spinner"></div> Buscando notas...</div>
+      <span id="status"></span>
+    </div>
+  </div>
+
+  <!-- OUTPUT -->
+  <div class="panel">
+    <div class="panel-label">Resultado con notas</div>
+    <div class="output-wrap" id="output">
+      <div class="placeholder">El resultado aparecerá aquí con las notas de referencia al final.</div>
+    </div>
+  </div>
+</div>
+
+<script>
+// ---- BOOK NAME NORMALIZATION MAP ----
+const BOOK_MAP = {
+  // OT
+  'gen': 'Génesis', 'gén': 'Génesis', 'génesis': 'Génesis', 'genesis': 'Génesis',
+  'ex': 'Éxodo', 'éx': 'Éxodo', 'exo': 'Éxodo', 'exodo': 'Éxodo', 'éxodo': 'Éxodo',
+  'lev': 'Levítico', 'levitico': 'Levítico', 'levítico': 'Levítico',
+  'num': 'Números', 'núm': 'Números', 'numeros': 'Números', 'números': 'Números',
+  'deu': 'Deuteronomio', 'deut': 'Deuteronomio', 'deuteronomio': 'Deuteronomio',
+  'dt': 'Deuteronomio',
+  'jos': 'Josué', 'josue': 'Josué', 'josué': 'Josué',
+  'jue': 'Jueces', 'juec': 'Jueces', 'jueces': 'Jueces',
+  'rut': 'Rut', 'rt': 'Rut',
+  '1 sam': '1 Samuel', '1sam': '1 Samuel', '1samuel': '1 Samuel', 'samuel': '1 Samuel',
+  '2 sam': '2 Samuel', '2sam': '2 Samuel', '2samuel': '2 Samuel',
+  '1 rey': '1 Reyes', '1rey': '1 Reyes', '1re': '1 Reyes', '1reyes': '1 Reyes', '1 r': '1 Reyes', 'reyes': '1 Reyes',
+  '2 rey': '2 Reyes', '2rey': '2 Reyes', '2re': '2 Reyes', '2reyes': '2 Reyes', '2 r': '2 Reyes',
+  '1 cr': '1 Crónicas', '1cr': '1 Crónicas', '1cro': '1 Crónicas', '1cronicas': '1 Crónicas', '1crónicas': '1 Crónicas', 'cronicas': '1 Crónicas', 'crónicas': '1 Crónicas',
+  '2 cr': '2 Crónicas', '2cr': '2 Crónicas', '2cro': '2 Crónicas', '2cronicas': '2 Crónicas', '2crónicas': '2 Crónicas',
+  'esd': 'Esdras', 'esdras': 'Esdras',
+  'neh': 'Nehemías', 'nehemias': 'Nehemías', 'nehemías': 'Nehemías',
+  'est': 'Ester', 'ester': 'Ester',
+  'job': 'Job',
+  'sal': 'Salmos', 'salm': 'Salmos', 'salmo': 'Salmos', 'salmos': 'Salmos', 'ps': 'Salmos', 'psa': 'Salmos',
+  'pro': 'Proverbios', 'prov': 'Proverbios', 'proverbios': 'Proverbios', 'pr': 'Proverbios',
+  'ecl': 'Eclesiastés', 'eclesiastes': 'Eclesiastés', 'eclesiastés': 'Eclesiastés', 'qo': 'Eclesiastés',
+  'cnt': 'Cantares', 'can': 'Cantares', 'cantares': 'Cantares', 'ct': 'Cantares', 'cantar': 'Cantares',
+  'is': 'Isaías', 'isa': 'Isaías', 'isaias': 'Isaías', 'isaías': 'Isaías',
+  'jer': 'Jeremías', 'jeremias': 'Jeremías', 'jeremías': 'Jeremías',
+  'lam': 'Lamentaciones', 'lamentaciones': 'Lamentaciones',
+  'ez': 'Ezequiel', 'eze': 'Ezequiel', 'ezequiel': 'Ezequiel',
+  'dn': 'Daniel', 'dan': 'Daniel', 'daniel': 'Daniel',
+  'os': 'Oseas', 'oseas': 'Oseas',
+  'jl': 'Joel', 'joel': 'Joel',
+  'am': 'Amós', 'amos': 'Amós', 'amós': 'Amós',
+  'ab': 'Abdías', 'abd': 'Abdías', 'abdias': 'Abdías', 'abdías': 'Abdías',
+  'jon': 'Jonás', 'jonas': 'Jonás', 'jonás': 'Jonás',
+  'mi': 'Miqueas', 'miq': 'Miqueas', 'miqueas': 'Miqueas',
+  'nah': 'Nahum', 'nahum': 'Nahum',
+  'hab': 'Habacuc', 'habacuc': 'Habacuc',
+  'sof': 'Sofonías', 'sofonias': 'Sofonías', 'sofonías': 'Sofonías',
+  'hag': 'Hageo', 'hageo': 'Hageo',
+  'zac': 'Zacarías', 'zacarias': 'Zacarías', 'zacarías': 'Zacarías',
+  'mal': 'Malaquías', 'malaquias': 'Malaquías', 'malaquías': 'Malaquías',
+  // NT
+  'mt': 'Mateo', 'mat': 'Mateo', 'mateo': 'Mateo',
+  'mr': 'Marcos', 'marc': 'Marcos', 'marcos': 'Marcos', 'mc': 'Marcos',
+  'lc': 'Lucas', 'luc': 'Lucas', 'lucas': 'Lucas',
+  'jn': 'Juan', 'juan': 'Juan',
+  'hch': 'Hechos', 'hec': 'Hechos', 'hechos': 'Hechos', 'act': 'Hechos',
+  'ro': 'Romanos', 'rom': 'Romanos', 'romanos': 'Romanos',
+  '1 cor': '1 Corintios', '1cor': '1 Corintios', '1co': '1 Corintios', '1corintios': '1 Corintios',
+  '2 cor': '2 Corintios', '2cor': '2 Corintios', '2co': '2 Corintios', '2corintios': '2 Corintios',
+  'ga': 'Gálatas', 'gal': 'Gálatas', 'galatas': 'Gálatas', 'gálatas': 'Gálatas',
+  'ef': 'Efesios', 'efe': 'Efesios', 'efesios': 'Efesios',
+  'fil': 'Filipenses', 'filip': 'Filipenses', 'filipenses': 'Filipenses',
+  'col': 'Colosenses', 'colosenses': 'Colosenses',
+  '1 tes': '1 Tesalonicenses', '1ts': '1 Tesalonicenses', '1tesalonicenses': '1 Tesalonicenses', 'tesalonicenses': '1 Tesalonicenses',
+  '2 tes': '2 Tesalonicenses', '2ts': '2 Tesalonicenses', '2tesalonicenses': '2 Tesalonicenses',
+  '1 tim': '1 Timoteo', '1ti': '1 Timoteo', '1timoteo': '1 Timoteo', 'timoteo': '1 Timoteo',
+  '2 tim': '2 Timoteo', '2ti': '2 Timoteo', '2timoteo': '2 Timoteo',
+  'tit': 'Tito', 'tito': 'Tito',
+  'flm': 'Filemón', 'filem': 'Filemón', 'filemon': 'Filemón', 'filemón': 'Filemón',
+  'heb': 'Hebreos', 'hebreos': 'Hebreos',
+  'stg': 'Santiago', 'sant': 'Santiago', 'santiago': 'Santiago',
+  '1 ped': '1 Pedro', '1pe': '1 Pedro', '1pedro': '1 Pedro', 'pedro': '1 Pedro',
+  '2 ped': '2 Pedro', '2pe': '2 Pedro', '2pedro': '2 Pedro',
+  '1 jn': '1 Juan', '1jn': '1 Juan', '1juan': '1 Juan',
+  '2 jn': '2 Juan', '2jn': '2 Juan', '2juan': '2 Juan',
+  '3 jn': '3 Juan', '3jn': '3 Juan', '3juan': '3 Juan',
+  'jud': 'Judas', 'judas': 'Judas',
+  'ap': 'Apocalipsis', 'apo': 'Apocalipsis', 'apoc': 'Apocalipsis', 'apocalipsis': 'Apocalipsis', 'rev': 'Apocalipsis',
+};
+
+// ---- CONFIG & STATE ----
+const BIBLE_ORDER = [
+  "Génesis", "Éxodo", "Levítico", "Números", "Deuteronomio", "Josué", "Jueces", "Rut", "1 Samuel", "2 Samuel", "1 Reyes", "2 Reyes", "1 Crónicas", "2 Crónicas", "Esdras", "Nehemías", "Ester", "Job", "Salmos", "Proverbios", "Eclesiastés", "Cantares", "Isaías", "Jeremías", "Lamentaciones", "Ezequiel", "Daniel", "Oseas", "Joel", "Amós", "Abdías", "Jonás", "Miqueas", "Nahum", "Habacuc", "Sofonías", "Hageo", "Zacarías", "Malaquías",
+  "Mateo", "Marcos", "Lucas", "Juan", "Hechos", "Romanos", "1 Corintios", "2 Corintios", "Gálatas", "Efesios", "Filipenses", "Colosenses", "1 Tesalonicenses", "2 Tesalonicenses", "1 Timoteo", "2 Timoteo", "Tito", "Filemón", "Hebreos", "Santiago", "1 Pedro", "2 Pedro", "1 Juan", "2 Juan", "3 Juan", "Judas", "Apocalipsis"
+];
+
+let NOTES_CACHE = {}; // bookName -> { ref -> text }
+let VERSES = null;
+
+// ---- UI INITIALIZATION ----
+if (document.readyState === 'loading') {
+  window.addEventListener('DOMContentLoaded', renderBookList);
+} else {
+  renderBookList();
+}
+
+// Helper to get folder name from book name
+function getFolderName(bookName) {
+  if (!bookName) return "";
+  return bookName.toLowerCase()
+    .normalize("NFD").replace(/[\u0300-\u036f]/g, "") // remove accents
+    .replace(/\s+/g, '_'); // spaces to underscores
+}
+
+// Fetch and parse a book's .md file
+async function loadBookNotes(bookName) {
+  if (!bookName) return null;
+  if (NOTES_CACHE[bookName]) return NOTES_CACHE[bookName];
+  
+  const folder = getFolderName(bookName);
+  const possibleUrls = [
+    `../data/notas/${folder}/${folder}_notas.md`,
+    `./data/notas/${folder}/${folder}_notas.md`,
+    `data/notas/${folder}/${folder}_notas.md`
+  ];
+  
+  let text = null;
+  for (const url of possibleUrls) {
+    try {
+      const resp = await fetch(url);
+      if (resp.ok) {
+        text = await resp.text();
+        break;
+      }
+    } catch (e) {
+      console.warn(`Failed to fetch from ${url}`);
+    }
+  }
+
+  if (!text) return null;
+    
+  const parsed = {};
+  // Split by ### followed by any space or directly the book name
+  const parts = text.split(/###\s*/);
+  parts.shift(); // Remove content before first ###
+  
+  parts.forEach(part => {
+    const lines = part.split(/\r?\n/);
+    const refLine = lines[0].trim();
+    if (!refLine) return;
+    
+    // Join content and remove the separator lines
+    const content = lines.slice(1).join('\n')
+      .replace(/---+\s*$/gm, '') // remove trailing separators
+      .replace(/---+/g, '\n')     // replace internal separators with newlines
+      .trim();
+      
+    if (content) {
+      parsed[refLine] = content;
+    }
+  });
+  
+  NOTES_CACHE[bookName] = parsed;
+  return parsed;
+}
+
+function renderBookList() {
+  const listEl = document.getElementById('book-list');
+  listEl.innerHTML = BIBLE_ORDER.map(book => `
+    <div class="book-item" data-name="${book}" onclick="mostrarNotasLibro('${book}')">
+      <span>${book}</span>
+      <span class="book-count" style="display:none">0</span>
+    </div>
+  `).join('');
+}
+
+function filterBooks() {
+  const query = document.getElementById('book-search').value.toLowerCase();
+  const items = document.querySelectorAll('.book-item');
+  items.forEach(item => {
+    const name = item.dataset.name.toLowerCase();
+    item.style.display = name.includes(query) ? 'flex' : 'none';
+  });
+}
+
+async function mostrarNotasLibro(bookName) {
+  // Highlight active
+  document.querySelectorAll('.book-item').forEach(i => i.classList.toggle('active', i.dataset.name === bookName));
+  
+  const outputEl = document.getElementById('output');
+  const statusEl = document.getElementById('status');
+  
+  outputEl.innerHTML = `<div class="placeholder"><div class="spinner"></div> Cargando notas de ${bookName}...</div>`;
+  
+  const bookNotes = await loadBookNotes(bookName);
+  
+  if (!bookNotes || Object.keys(bookNotes).length === 0) {
+    outputEl.innerHTML = `<div class="placeholder">No hay notas registradas para ${bookName}.</div>`;
+    return;
+  }
+
+  const sortedRefs = Object.keys(bookNotes).sort((a,b) => {
+    const parse = (s) => {
+      const m = s.match(/(\d+):(\d+)/);
+      return m ? [parseInt(m[1]), parseInt(m[2])] : [0,0];
+    };
+    const [ca, va] = parse(a);
+    const [cb, vb] = parse(b);
+    return ca !== cb ? ca - cb : va - vb;
+  });
+
+  const html = `
+    <div class="notes-section" style="border-top:none; padding-top:0">
+      <div class="notes-header">Notas de Estudio: ${bookName}</div>
+      ${sortedRefs.map(ref => `
+        <div class="note-entry">
+          <div class="note-ref">${ref}</div>
+          <div class="note-text">${bookNotes[ref].replace(/\r?\n/g, '<br>')}</div>
+        </div>
+      `).join('')}
+    </div>
+  `;
+  
+  outputEl.innerHTML = html;
+  statusEl.textContent = `Mostrando ${sortedRefs.length} notas de ${bookName}`;
+  statusEl.className = 'ok';
+}
+
+async function loadVerses() {
+  if (VERSES) return VERSES;
+  const resp = await fetch('./nbla_verses.json');
+  if (!resp.ok) throw new Error('No se pudo cargar el texto NBLA.');
+  VERSES = await resp.json();
+  return VERSES;
+}
+
+// ---- REFERENCE DETECTION ----
+// Matches patterns like: Sal 1:2, Salmos 1:2-4, Romanos 8:28, 1 Corintios 13:4-7, etc.
+const REF_REGEX = /\b((?:\d\s?)?(?:[A-ZÁÉÍÓÚÑ][a-záéíóúñA-ZÁÉÍÓÚÑ]+\.?))\.?\s+(\d+):(\d+)(?:-\d+)?/g;
+
+function normalizeBook(raw) {
+  if (!raw) return null;
+  const key = raw.toLowerCase().replace(/\./g, '').replace(/\s+/g, ' ').trim();
+  // Handle cases like "1Tes" or "1 Tes"
+  const cleanedKey = key.replace(/^(\d)\s*/, '$1 ');
+  return BOOK_MAP[cleanedKey] || BOOK_MAP[key] || null;
+}
+
+function findReferences(text) {
+  const refs = [];
+  const seen = new Set();
+  
+  // 1. Find all book mentions to set context
+  const bookMentions = [];
+  const potentialBookRegex = /\b((?:\d\s?)?[A-ZÁÉÍÓÚÑ][a-záéíóúñA-ZÁÉÍÓÚÑ]+\.?)\b/g;
+  let bm;
+  while ((bm = potentialBookRegex.exec(text)) !== null) {
+    const norm = normalizeBook(bm[1]);
+    if (norm) {
+      bookMentions.push({ norm, pos: bm.index, end: bm.index + bm[0].length, raw: bm[1] });
+    }
+  }
+
+  // 2. Find all Chapter:Verse patterns
+  const digitRefRegex = /(\d+)\s*:\s*(\d+)(?:\s*[\-\–\—]\s*\d+)?/g;
+  let dr;
+  while ((dr = digitRefRegex.exec(text)) !== null) {
+    const pos = dr.index;
+    const chapter = dr[1];
+    const verse = dr[2];
+    
+    let bookNorm = null;
+    let bookMatch = null;
+    
+    // Look for book mention immediately before or last seen
+    for (let i = bookMentions.length - 1; i >= 0; i--) {
+      const mention = bookMentions[i];
+      if (mention.pos < pos) {
+        // If it's "close" (only dots/spaces between), it's the specific book for this ref
+        const gap = text.substring(mention.end, pos);
+        if (/^[.\s]*$/.test(gap)) {
+           bookNorm = mention.norm;
+           bookMatch = mention;
+           break;
+        }
+        // Otherwise, it's just the context
+        if (!bookNorm) bookNorm = mention.norm;
+      }
+    }
+    
+    if (bookNorm) {
+      const key = `${bookNorm} ${chapter}:${verse}`;
+      // For display purposes, use the book name + chapter:verse
+      // If we found a bookMatch immediately before, we include it in the 'raw' to replace
+      let finalRaw = dr[0];
+      let finalPos = dr.index;
+      if (bookMatch && text.substring(bookMatch.end, dr.index).length < 10) {
+          finalRaw = text.substring(bookMatch.pos, dr.index + dr[0].length);
+          finalPos = bookMatch.pos;
+      }
+
+      if (!seen.has(key + "@" + finalPos)) {
+        seen.add(key + "@" + finalPos);
+        refs.push({ key, bookNorm, chapter, verse, raw: finalRaw, pos: finalPos });
+      }
+    }
+  }
+  // Sort refs by position to facilitate string reconstruction
+  return refs.sort((a, b) => a.pos - b.pos);
+}
+
+// ---- MAIN PROCESS ----
+async function procesarTexto() {
+  const input = document.getElementById('input').value.trim();
+  const statusEl = document.getElementById('status');
+  const loadingEl = document.getElementById('loading');
+  const outputEl = document.getElementById('output');
+
+  if (!input) {
+    statusEl.textContent = 'Pega un texto primero.';
+    statusEl.className = 'err';
+    return;
+  }
+
+  loadingEl.style.display = 'flex';
+  statusEl.textContent = '';
+  outputEl.innerHTML = '';
+
+  const refs = findReferences(input);
+  if (refs.length === 0) {
+    loadingEl.style.display = 'none';
+    statusEl.textContent = 'No se detectaron referencias bíblicas.';
+    return;
+  }
+
+  // Load necessary data on demand
+  let verses;
+  try {
+    verses = await loadVerses();
+    // Load .md files for all unique books mentioned
+    const uniqueBooks = [...new Set(refs.map(r => r.bookNorm))];
+    await Promise.all(uniqueBooks.map(b => loadBookNotes(b)));
+  } catch(e) {
+    loadingEl.style.display = 'none';
+    statusEl.textContent = 'Error al cargar datos.';
+    statusEl.className = 'err';
+    return;
+  }
+
+  // --- Build body: replace each reference with inline verse text ---
+  let bodyText = "";
+  let lastIdx = 0;
+  const embeddedVerses = new Set();
+
+  for (const ref of refs) {
+    // Append text before the reference, preserving paragraphs
+    const segment = input.substring(lastIdx, ref.pos);
+    bodyText += segment.replace(/\r?\n/g, '<br>');
+    
+    const verseText = verses[ref.key];
+    // Only embed the full verse text the FIRST time it appears
+    if (verseText && !embeddedVerses.has(ref.key)) {
+      bodyText += `<span class="ref-tag" title="${ref.key}">${ref.raw}</span> <em class="verse-inline">&ldquo;${verseText}&rdquo;</em>`;
+      embeddedVerses.add(ref.key);
+    } else {
+      bodyText += `<span class="ref-tag" title="${ref.key}">${ref.raw}</span>`;
+    }
+    lastIdx = ref.pos + ref.raw.length;
+  }
+  // Append remaining text and convert newlines
+  bodyText += input.substring(lastIdx).replace(/\r?\n/g, '<br>');
+
+  // --- Build notes section at the end ---
+  const foundNotes = [];
+  const notFoundRefs = [];
+  const processedNotes = new Set();
+
+  for (const ref of refs) {
+    if (processedNotes.has(ref.key)) continue;
+    processedNotes.add(ref.key);
+
+    const bookNotes = NOTES_CACHE[ref.bookNorm];
+    const noteText = bookNotes ? bookNotes[ref.key] : null;
+    
+    if (noteText) {
+      foundNotes.push({ ref: ref.key, text: noteText });
+    } else {
+      notFoundRefs.push(ref.key);
+    }
+  }
+
+  let notesHTML = '';
+  if (foundNotes.length > 0) {
+    notesHTML = `<div class="notes-section">
+      <div class="notes-header">Notas de Referencia — Biblia de Estudio de la Reforma</div>
+      ${foundNotes.map(n => `
+        <div class="note-entry">
+          <div class="note-ref">${n.ref}</div>
+          <div class="note-text">${n.text.replace(/\r?\n/g, '<br>')}</div>
+        </div>
+      `).join('')}
+      ${notFoundRefs.length > 0 ? `<div class="no-notes">Sin nota disponible para: ${notFoundRefs.join(', ')}</div>` : ''}
+    </div>`;
+  } else if (refs.length > 0) {
+    notesHTML = `<div class="notes-section"><div class="no-notes">No se encontraron notas para las referencias detectadas.</div></div>`;
+  }
+
+  outputEl.innerHTML = `<div class="out-body">${bodyText}</div>${notesHTML}`;
+
+  loadingEl.style.display = 'none';
+  const total = foundNotes.length;
+  const detected = refs.length;
+  statusEl.textContent = detected === 0
+    ? 'No se detectaron referencias bíblicas.'
+    : `${detected} refs detectadas — ${total} con nota de estudio`;
+  statusEl.className = total > 0 ? 'ok' : '';
+}
+
+// ---- COPY ----
+async function copiarSalida() {
+  const el = document.getElementById('output');
+  if (!el || el.innerText.includes('El resultado aparecerá')) return;
+
+  try {
+    // Create a clone to modify styles for Light Mode (Google Docs) without affecting the app UI
+    const clone = el.cloneNode(true);
+    
+    // Set base colors for the whole block
+    clone.style.color = '#222';
+    clone.style.backgroundColor = '#fff';
+    clone.style.fontFamily = 'Arial, sans-serif';
+
+    // Apply specific styles for Google Docs compatibility
+    clone.querySelectorAll('.ref-tag').forEach(s => {
+      s.style.color = '#4a42b1';
+      s.style.fontWeight = 'bold';
+      s.style.textDecoration = 'none';
+      s.style.backgroundColor = '#f0f0ff';
+      s.style.padding = '0 4px';
+    });
+    
+    clone.querySelectorAll('.verse-inline').forEach(s => {
+      s.style.color = '#333';
+      s.style.fontStyle = 'italic';
+    });
+
+    clone.querySelectorAll('.notes-section').forEach(s => {
+      s.style.borderTop = '1px solid #ddd';
+      s.style.marginTop = '20px';
+      s.style.paddingTop = '15px';
+    });
+
+    clone.querySelectorAll('.notes-header').forEach(s => {
+      s.style.color = '#856404';
+      s.style.fontWeight = 'bold';
+      s.style.fontSize = '12px';
+      s.style.marginBottom = '10px';
+    });
+
+    clone.querySelectorAll('.note-ref').forEach(s => {
+      s.style.color = '#4a42b1';
+      s.style.fontWeight = 'bold';
+      s.style.fontSize = '14px';
+    });
+
+    clone.querySelectorAll('.note-text').forEach(s => {
+      s.style.color = '#1a1a1a';
+      s.style.fontSize = '14px';
+      s.style.lineHeight = '1.6';
+      s.style.whiteSpace = 'pre-wrap';
+      s.style.marginBottom = '15px';
+    });
+
+    const html = clone.innerHTML;
+    const text = el.innerText;
+
+    const blobHtml = new Blob([html], { type: 'text/html' });
+    const blobText = new Blob([text], { type: 'text/plain' });
+    const data = [new ClipboardItem({
+      'text/html': blobHtml,
+      'text/plain': blobText
+    })];
+
+    await navigator.clipboard.write(data);
+
+    const btn = document.querySelector('button.secondary');
+    const originalText = btn.textContent;
+    btn.textContent = '¡Copiado para Docs!';
+    btn.style.borderColor = '#6dbf7a';
+    btn.style.color = '#6dbf7a';
+    setTimeout(() => {
+      btn.textContent = originalText;
+      btn.style.borderColor = '';
+      btn.style.color = '';
+    }, 2000);
+  } catch(e) {
+    console.error('Error Clipboard API:', e);
+    try {
+      await navigator.clipboard.writeText(el.innerText);
+      alert('Copiado como texto plano.');
+    } catch(e2) {
+      alert('No se pudo copiar.');
+    }
+  }
+}
+
+// Ctrl+Enter to process
+document.addEventListener('keydown', e => {
+  if ((e.ctrlKey || e.metaKey) && e.key === 'Enter') procesarTexto();
+});
+</script>
+</body>
+</html>

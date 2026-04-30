@@ -1,0 +1,981 @@
+# Notas de Estudio - Daniel
+
+### Daniel 1:1
+El tercer año. 605 a. C. Nabucodonosor derrotó a una coalición de Asiria y Egipto en Carquemis e inició el ascenso de Babilonia al poder internacional. Después de la batalla de Carquemis, Nabucodonosor avanzó contra Joacim (2 R. 24:1, 2; 2 Cr. 36:5–7) y tomó cautivos a algunos judíos, entre ellos Daniel. Esta fue la primera de tres invasiones de Judá por parte de Nabucodonosor. La segunda fue en 597 a. C. (2 R. 24:10–14), y la tercera en 586 a. C. (2 R. 25:1–24). En el libro de Jeremías, el ataque de Nabucodonosor se fecha en el cuarto año de Joacim en lugar del tercero (Jer. 25:1; 46:2). La diferencia se produce porque en la cronología babilónica, que aparentemente utilizó Daniel, el reinado del rey se contaba oficialmente desde el primer día del año nuevo siguiente, en lugar de desde la fecha real de su ascenso al trono. Nabucodonosor, rey de Babilonia. Nabucodonosor condujo a los babilonios a la victoria en Carquemis como príncipe heredero y comandante del ejército. Poco después de esta victoria, asumió el trono de Babilonia cuando murió su padre Nabopolasar (626–605 a. C.). El reinado de Nabucodonosor (605–562 a. C.) es el contexto histórico de gran parte de Jeremías, Ezequiel y Daniel.
+
+---
+
+### Daniel 1:2
+El Señor entregó... en su mano. La derrota de Israel a manos de los babilonios no se puede explicar simplemente mediante el análisis de factores militares y políticos. Dios está obrando en los asuntos de las naciones, y el mensaje a la audiencia original de Daniel es que Él ha usado a los babilonios para juzgar a Su propio pueblo por sus transgresiones (2 R. 17:15, 18-20; 21:12-15; 24:3, 4). En virtud de los términos del pacto hecho en el monte Sinaí, el Señor amenazó con exiliar a su pueblo si le era infiel (Levítico 26:33, 39). El largo período que permanecieron en la tierra a pesar de su infidelidad es una señal de la misericordia del Señor. Su infidelidad culminó con la destrucción de Jerusalén y el exilio de la mayoría de la población restante por parte de Nabucodonosor en el año 586 a. C. Los vasos de la casa de Dios. Estos mismos vasos del templo son sacados por Belsasar para su fiesta en Daniel 5 y serán devueltos a Judá con los exiliados en el tiempo de Ciro (Esdras 1:7). el tesoro de su dios. Marduk (o Bel) es el dios principal del Imperio Babilónico. Panteón (cf. Jer. 50:2).
+
+---
+
+### Daniel 1:4
+jóvenes sin defecto. Al igual que los vasos del templo y los sacrificios, tienen que ser perfectos para presentarse ante la presencia del rey. El exilio de estos descendientes reales y nobles cumple la profecía de Isaías al rey Ezequías en 2 Reyes 20:17, 18. Literatura y lengua de los caldeos. La literatura babilónica se escribía en acadio, utilizando caracteres en forma de cuña impresos con un punzón sobre tablillas de arcilla blanda que luego se cocían para que quedaran permanentes. Los arqueólogos han descubierto miles de estas tablillas. Los babilonios adoraban a muchos dioses y su cultura estaba llena de magia, hechicería y astrología. El idioma comercial común de Babilonia era el arameo, que se usaba especialmente en la corte del rey durante la época de Daniel (véase 2:4 y nota). Daniel 1:4
+
+---
+
+### Daniel 1:5
+la comida que comía el rey. El rey Joaquín recibió más tarde una provisión similar durante el gobierno del rey babilonio Evil-merodac (2 R 25:27-30). Estas provisiones están diseñadas para crear una cultura de dependencia del rey.
+
+---
+
+### Daniel 1:6
+Daniel, Ananías, Misael y Azarías. Estos nombres hebreos contienen la palabra “Dios” ( el ) o una forma abreviada del nombre del pacto de Dios, “Yahvé” (nota del Salmo 50:1). Daniel significa “mi juez es Dios”; Ananías, “Yahvé es misericordioso”; Misael, “¿Quién es lo que es Dios?”; y Azarías, “Yahvé ha ayudado”.
+
+---
+
+### Daniel 1:7
+Beltsasar... Sadrac... Mesac... Abednego. Entre las sugerencias sobre el significado de estos nombres se encuentran: Beltsasar, “Que Bel proteja su vida” (Bel es otro nombre de Marduk, el dios principal de Babilonia; cf. 4:8); Sadrac, “el mandato de Aku” (el dios lunar sumerio); Mesac, “¿Quién es lo que es Aku?”; y Abednego, “siervo de Nebo”. (un dios babilónico). Estos cambios de nombre son un paso más en el intento de Babilonia de reestructurar su identidad religiosa y cultural.
+
+---
+
+### Daniel 1:8
+No se contaminaría. No se da la razón por la que Daniel llegó a la conclusión de que él y sus amigos se contaminarían con la comida del rey. Tal vez se trate de una violación de las leyes dietéticas de Moisés (Levítico 11; 17). Sin embargo, no parece que se abstuvieran permanentemente de la comida babilónica, como se requeriría si se tratara de la obediencia a las leyes kosher. Es más probable que se trate de una manera concreta de afirmar su dependencia del Señor al hacer un voto de lealtad. Comer sólo alimentos que crecen naturalmente y beber sólo agua en lugar de consumir la rica comida y el vino que les proporcionaba el rey.
+
+---
+
+### Daniel 1:9
+Dios le dio favor a Daniel. Esta es una respuesta específica a la oración de Salomón en la dedicación del templo en 1 Reyes 8:50.
+
+---
+
+### Daniel 1:15
+“Su apariencia era mejor, es decir, estaban más gordos, un resultado inesperado de un estilo de vida de bajas calorías. La obediencia de Daniel y sus amigos a Dios y su negativa a comprometer su fe en un ambiente pagano son recompensadas con la bendición de Dios (cf. Dt. 8:3; Mt. 4:4).
+
+---
+
+### Daniel 1:17
+Dios les dio conocimiento. La bendición de Dios no se limita al bienestar físico, sino que también incluye un desarrollo intelectual sobresaliente durante sus tres años de educación en Babilonia. De este modo, les permite ser una bendición para sus vecinos paganos y edificar la ciudad en la que se encuentran (cf. Jer. 29:5-7) mientras permanecen fieles a sus creencias. Visiones y sueños. En vista de lo que sigue en el libro (caps. 2; 4; 5), Daniel se distingue de sus compañeros por su capacidad para interpretar sueños y visiones, de forma muy similar a la que tenía José en la corte del faraón (Gén. 40:8; 41:16).
+
+---
+
+### Daniel 1:18
+Al final del tiempo. Es decir, después de los tres años mencionados en el versículo 5.
+
+---
+
+### Daniel 1:20
+los magos y encantadores. El término traducido “magos” también se usa en Génesis 41:8, 24 y Éxodo 7:11. La palabra traducida “encantadores” aparece solo aquí y en 2:2 y puede traducirse como “adivino” o “conjurador”. Cualquiera que sea el medio que estos consejeros reales utilicen para obtener conocimiento, Daniel y sus amigos pueden demostrar una perspicacia superior en los asuntos sobre los que fueron interrogados.
+
+---
+
+### Daniel 1:21
+hasta el primer año del rey Ciro. Babilonia cayó ante Ciro en el año 539 a. C., sesenta y seis años después de que Daniel fuera llevado cautivo a Babilonia. Daniel vivió durante todo el período de cautiverio babilónico. Ciro emitió un decreto en el primer año de su reinado que permitía a los judíos regresar a su tierra y llevarse consigo los utensilios del templo que habían sido confiscados por Nabucodonosor (Esdras 1:7-11). La declaración no significa que Daniel murió en el primer año de Ciro (10:1), pero el Señor fue fiel al proteger a Daniel durante todo el exilio. Los reinos pueden surgir y caer, pero el Señor preserva a los Suyos.
+
+---
+
+### Daniel 2:1
+En el segundo año. Dado que el sistema babilónico cuenta oficialmente el reinado de Nabucodonosor desde el primer día del año después de su ascenso al trono, su “segundo año” podría significar el fin de los tres años de preparación de Daniel (1:5). De lo contrario, los acontecimientos ocurrieron durante su preparación. El sueño lo abandonó. En el antiguo Oriente Próximo se creía ampliamente que los dioses hablaban a los seres humanos en sueños. Los sueños de un rey tenían un significado especial para el destino de todo el pueblo.
+
+---
+
+### Daniel 2:2
+magos... encantadores. Véase la nota sobre 1:20. hechiceros... caldeos. Los “hechiceros” practican la adivinación o la brujería (Éx. 22:18; Deut. 18:10; Is. 47:9, 12; Jer. 27:9). Aquí, “caldeos” probablemente significa una clase de adivinos y astrólogos, más que el nombre de un grupo étnico (como en 1:4; 3:8; 5:30; 9:1). Estos son parte del personal especializado de Nabucodonosor de intérpretes de sueños.
+
+---
+
+### Daniel 2:4
+Arameo. Desde aquí hasta el final del capítulo 7, el texto está escrito en arameo en lugar de hebreo. Esdras 4:8– 6:18; 7:12–26 también están escritos en arameo. Se ha especulado mucho sobre por qué estos versículos están en arameo, pero no se ha llegado a ninguna conclusión generalmente aceptada.
+
+---
+
+### Daniel 2:5
+Dadme a conocer el sueño. Normalmente, el rey les contaría el sueño a sus consejeros para que le sugirieran una interpretación. Aquí, Nabucodonosor formula una prueba para ver si los consejeros de la corte tienen acceso al conocimiento oculto que afirman tener. Si no pueden contarle el sueño, entonces no confiará en su interpretación (cf. v. 9) y los ejecutará.
+
+---
+
+### Daniel 2:11
+difícil. Los sabios confiesan que no pueden hacer lo que el rey pide. Sólo los dioses tienen tal poder, pero los dioses, protestan, no revelan tales cosas a nadie (cf. Éxodo 8:18, 19). Son adivinos, no profetas: disciernen patrones en los acontecimientos, pero no afirman tener acceso a las mentes de los dioses. De hecho, en su teología, tal conocimiento es imposible ya que los dioses son los únicos que tienen ese poder. Los dioses no habitan entre los hombres. El Dios de Israel es único en este aspecto (véase Is. 57:13).
+
+---
+
+### Daniel 2
+todos los sabios de Babilonia. La furiosa respuesta de Nabucodonosor amplía el grupo sujeto al castigo para incluir a toda la clase de los sabios, incluidos Daniel y sus amigos. Con una confianza notable, Daniel pide una cita para ver al rey, aunque todavía no ha recibido revelación de Dios. rey de reyes... cuarto reino. Desde el historiador judío Josefo (que escribió en el primer siglo d. C.) se ha entendido ampliamente que los cuatro reinos son los imperios de Babilonia, Medo-Persia, Grecia y Roma. Otros entienden que son Babilonia, Media, Persia y Grecia, una secuencia que concuerda con la visión crítica liberal de que el libro fue escrito durante el período de ascendencia griega en el Medio Oriente. La apelación de Darío a la única “ley de los medos y los persas” (6:12; cf. 5:28) concuerda con el primer orden de imperios. La única identificación segura entre las partes de la imagen y los imperios mundiales específicos es Nabucodonosor (Babilonia) como la cabeza de oro. Es plausible que el cuatro represente aquí la completitud: en lugar de tratar de describir reinos particulares, la secuencia describe la constante tendencia descendente en la historia mundial, no hacia una mayor gloria y unidad sino hacia una mayor deshonra y caos hasta que el reino de Dios llegue a la tierra y la llene con su gloria. La roca que aplasta a todos los reinos de este mundo es Cristo (Lucas 20:18). Él es el misterio de los siglos, Aquel en quien Dios unirá todas las cosas en su glorioso reino (Efesios 1:9, 10).
+
+---
+
+### Daniel 2:18
+buscad la misericordia del Dios del cielo. Daniel también se da cuenta de que la sabiduría humana no es suficiente para satisfacer la demanda del rey (v. 11 nota). Sólo la revelación divina puede proporcionar la respuesta. Afortunadamente, a diferencia de los dioses de los babilonios, el Dios de Daniel es capaz y está dispuesto a revelar lo que sucederá en el futuro (Is. 44:8; 45:21; Amós 3:7).
+
+---
+
+### Daniel 2:20
+Véase la nota teológica “La voluntad de Dios”.
+
+---
+
+### Daniel 2:21
+quita reyes y pone reyes. Daniel alude al contenido del sueño.
+
+---
+
+### Daniel 2:22
+Él revela cosas profundas y ocultas. Job 28 es una imagen cuidadosamente dibujada de la sabiduría como algo “escondido a los ojos de todos” (Job 28:21) e inaccesible sin Dios.
+
+---
+
+### Daniel 2:24
+No destruyas a los sabios. Daniel insta al rey a ser misericordioso con los sabios a pesar de que se ha descubierto su incapacidad para entender el sueño.
+
+---
+
+### Daniel 2:25
+He encontrado. Arioc está ansioso por reclamar crédito por encontrar a alguien que pueda interpretar el sueño del rey.
+
+---
+
+### Daniel 2:28
+un Dios en los cielos que revela los misterios. Tal como lo hizo José en Egipto (Gén. 40:8; 41:16), Daniel atribuye a Dios su conocimiento del sueño. El Dios de Daniel le ha revelado a este joven lo que la astrología, la magia y el ocultismo no pueden descubrir. en los últimos días. Esta expresión parece tener un significado que va desde el “tiempo del fin” o eschaton (griego; cf. Ezequiel 38:16) hasta simplemente el futuro en general (Gén. 49:1; Deut. 4:30; 31:29). Aquí se abarca toda la historia mundial desde Nabucodonosor en adelante.
+
+---
+
+### Daniel 2:32
+oro... hierro... barro. Hay una disminución progresiva del valor de los materiales en la imagen desde la cabeza hasta los pies.
+
+---
+
+### Daniel 2:34
+Sus pies de hierro y barro cocido. Algunos intérpretes consideran que la mezcla de hierro y barro en los pies de la imagen representa una segunda fase del cuarto reino diferente de las piernas de hierro sólido (cf. vv. 41–43)
+
+---
+
+### Daniel 2:43
+se mezclarán... pero... no se mantendrán unidos. Los elementos del cuarto reino no pueden conservar su unión. Una posible interpretación de la imagen es que el hierro representa la cultura y las leyes de la Roma imperial, mientras que la arcilla representa las tradiciones políticas y sociales divergentes de sus muchas partes. El cuarto reino, aunque fuerte, es tan temporal como los que lo preceden y carece de la gloria de los reinos anteriores. Daniel 2:43
+
+---
+
+### Daniel 2:44
+aquellos reyes. La interpretación más natural es que los reyes son los gobernantes de los cuatro poderes que componen la imagen que acabamos de describir. La otra posibilidad es que sean una secuencia de varios gobernantes del cuarto reino solamente. Un reino que jamás será destruido. El reino eterno es el reino de nuestro Señor Jesucristo (Is. 9:7; Lc. 1:33; Heb. 1:8; Ap. 11:15). Este reino fue inaugurado y predicado en la primera venida de Cristo (Mt. 12:28; 24:14; Marcos 1:15) pero no llega en su plenitud hasta Su segunda venida. Véase la nota teológica “El Reino de Dios” en la pág. 1823.
+
+---
+
+### Daniel 2:46
+El rey Nabucodonosor cayó... pagó Homenaje a Daniel. En una inversión de papeles, Daniel es exaltado a una posición de honor por la intervención del Señor en su favor, desde la cual él y sus amigos podrán promover la paz y el bienestar de la ciudad de Babilonia donde Dios los ha colocado (Jer. 29:5-7). Para la reacción del rey, cf. Hch. 14:11; Ap. 22:8.
+
+---
+
+### Daniel 2:47
+Dios de dioses. La declaración de Nabucodonosor no significa necesariamente que reconozca al Señor del pacto de Israel, Yahvé, como el único Dios. Su exclamación es que Yahvé es superior a otros dioses. Señor de reyes. Nabucodonosor confiesa que el Dios de Israel es supremo sobre los gobernantes y reinos humanos. Este es el tema unificador de Daniel 1–6. (Introducción: Características y Temas Principales).
+
+---
+
+### Daniel 2:48
+provincia de Babilonia. El Imperio babilónico está dividido en provincias. Daniel es nombrado gobernante (cf. 3:2) de la provincia donde se encuentra la ciudad capital. José y Mardoqueo también ascendieron como judíos al poder político en una tierra extranjera. Véase Génesis 41:37–44 (José) y Ester 8:1, 2 (Mardoqueo)
+
+---
+
+### Daniel 3:1
+Una imagen de oro. Aunque las estrechas proporciones podrían sugerir un obelisco más que una estatua, al monumento se le llama “imagen”. Probablemente se trata de una figura que está de pie sobre un pedestal. El oro probablemente sea un enchapado, ya que la fabricación de la imagen es muy similar a la descrita en Is. 40:19; 41:7; Jer. 10:3–9. Refleja la enorme estatua que Nabucodonosor vio en su sueño en el cap. 2, excepto que está hecha completamente de oro, como si Nabucodonosor estuviera afirmando que no habrá otros reinos después del suyo. No está claro si la imagen representa al propio Nabucodonosor o a uno de sus dioses. Él lo creó. Ocho veces en este capítulo se nos dice que esta es la imagen que... Nabucodonosor lo erigió, dejando claro que era simplemente un ídolo hecho por el hombre, no un dios con poderes trascendentes. La llanura de Dura, probablemente a unos diez kilómetros al sur de Babilonia. Puesto que está situada en una llanura de Babilonia (lit. “Babel”) y tiene el propósito de unificar a sus diversos súbditos, recuerda a la torre de Babel de Génesis 11).
+
+---
+
+### Daniel 3:2
+sátrapas... funcionarios. No se conocen las responsabilidades precisas de estos diferentes funcionarios provinciales. Cinco de los siete términos son de origen persa, lo que quizás indica que Daniel no termina de escribir el relato hasta después del comienzo del gobierno persa en el año 539 a. C. Se reúnen los líderes de todo el vasto imperio de Nabucodonosor, lo que deja en claro que la unidad del imperio debe tener sus raíces en la adoración común de esta estatua.
+
+---
+
+### Daniel 3:5
+cuerno... arpa. De los seis términos para instrumentos musicales, los tres traducidos como “lira”, “arpa” y “gaita” son préstamos del griego. Esto no es sorprendente, ya que el intercambio internacional de músicos e instrumentos musicales en las cortes reales tiene una larga historia. La presencia de estos tres términos griegos en Daniel no establece que el relato se haya escrito después de la época de Alejandro Magno, como a veces se argumenta. Sin embargo, la variedad diversa de instrumentos puede ser un intento de reunir diferentes tradiciones musicales de todo el imperio en esta nueva adoración centralizada.
+
+---
+
+### Daniel 3:6
+Un horno de fuego ardiente. En Babilonia se utilizaban hornos para cocer ladrillos (Gén. 11:3). La ejecución por quema no era algo desconocido (Jer. 29:22; cf. Heródoto 1:86; 4:69; 2 Mac. 7).
+
+---
+
+### Daniel 3:7
+todos los pueblos, naciones y lenguas. Parece que el ídolo de Nabucodonosor ha logrado revocar la maldición sobre la torre de Babel.
+
+---
+
+### Daniel 3:8
+Caldeos. Véase la nota sobre 2:2; aquí “Caldeos” puede indicar nacionalidad babilónica o que estos hombres son adivinos. Los informantes tienen prejuicios contra los judíos (v. 12; cf. Est. 3:5, 6), posiblemente porque están celosos de la posición privilegiada que ocupan Daniel, Sadrac, Mesac y Abednego (nota 1:7). Los acusan de rebelión e ingratitud hacia Nabucodonosor. Es de suponer que Daniel no está presente en este Ocasión.
+
+---
+
+### Daniel 3:15
+¿Quién es el dios? Desde la perspectiva politeísta de Nabucodonosor, no existe ningún dios capaz de tal liberación. Sin saberlo, Nabucodonosor desafía el poder del Dios de Israel (cf. 2 Rey. 18:33–35).
+
+---
+
+### Daniel 3:17
+Él librará... Pero si no... Estos versículos expresan el tema central del capítulo. La idea no es que Dios siempre protegerá a Su pueblo del daño físico (Is. 43:1, 2). Él puede hacerlo y ciertamente es capaz de hacerlo. La idea central es que el pueblo de Dios debe ser obediente a Él sin importar las consecuencias.
+
+---
+
+### Daniel 3
+“Se calentó siete veces más”. Probablemente se trate de una hipérbole, que significa “lo más caliente posible”. Es irónico que el resultado sea la muerte de los propios soldados de Nabucodonosor, mientras que Dios protege a Sus siervos.
+
+---
+
+### Daniel 3:25
+un hijo de los dioses. No se explica cómo Nabucodonosor reconoce a la cuarta persona en el horno como un ser divino (v. 28 nota). Tal vez la aparición milagrosa sea en sí misma razón suficiente para la conclusión.
+
+---
+
+### Daniel 3:26
+El Dios Altísimo. Este es un título que expresa la autoridad universal de Dios. Como en los versículos 29 y 2:47, tal confesión en los labios de un pagano no es un reconocimiento de que el Señor de Daniel es el único Dios, sino solo que Él es supremo sobre otros dioses (4:2, 17, 34). Todavía habla del Señor como “su Dios” (v. 28), no el suyo. Para un judío, hay un solo Dios (4:24–32; 5:18, 21; 7:18–27).
+
+---
+
+### Daniel 3:28
+El ángel. El “ángel” puede ser identificado con el Ángel del Señor (Gén. 16:7); si es así, es una manifestación visible de Dios mismo (Éx. 3:2). Dios prometió Su presencia cuando Israel caminó por el fuego, y en este incidente se muestra fiel a esa promesa (Is. 43:1– 3).
+
+---
+
+### Daniel 4:1
+El rey Nabucodonosor. Este incidente final en el Libro de Daniel asociado con Nabucodonosor debe ubicarse a fines del reinado de cuarenta y tres años del rey, cuando sus proyectos de construcción están completos y su El poder está en su apogeo (cf. vv. 4, 30). Representa el reino más poderoso de la tierra (vv. 10-12 nota) como opuesto al gobierno del Dios Altísimo. Los registros babilónicos de largos períodos de ausencia y actos blasfemos del rey Nabonido (que reinó entre 556 y 539 a. C.; nota 5:1) se parecen en algunos aspectos al relato de Daniel sobre Nabucodonosor. Otra composición llamada la “Oración de Nabonido” se ha descubierto entre los Rollos del Mar Muerto, documentos escondidos antes del año 70 d. C. por una comunidad judía de Qumrán y encontrados en 1947. Esta “Oración” también es similar a lo que Daniel dice sobre Nabucodonosor. Nabonido es apartado de la sociedad durante siete años y se le restablece con la ayuda de un exiliado judío después de confesar sus pecados. Sin embargo, su aflicción se describe como una forma de enfermedad de la piel en lugar de una enfermedad mental.
+
+---
+
+### Daniel 4:2
+el Dios Altísimo. Véanse las notas sobre 2:47; 3:26. La narración comienza al final de la historia con la carta que Nabucodonosor escribe a todos los pueblos, naciones y lenguas, el mismo grupo reunido ante la imagen de oro en el capítulo 3. Las señales y maravillas mencionadas aquí incluyen la liberación de Sadrac, Mesac y Abednego en el capítulo anterior. Lo que es diferente es que ahora estas han sido hechas “por mí”. Por primera vez, el propio Nabucodonosor se convierte en testigo de Dios. Daniel 4:2
+
+---
+
+### Daniel 4:3
+¡Qué grande! La confesión de Nabucodonosor en este versículo y en los versículos 34 y 35 comunica el tema central del libro de Daniel, es decir, la soberanía absoluta del Dios de Israel. DANIEL 4:3
+
+---
+
+### Daniel 4:6
+Véanse las notas sobre 1:20; 2:2.
+
+---
+
+### Daniel 4:8
+Beltsasar. Véase la nota sobre 1:7. En el marco narrativo, escrito después de los acontecimientos descritos en el capítulo, Nabucodonosor lo llama por su nombre judío, Daniel, mientras que en las conversaciones relatadas del pasado lo llama Beltsasar. El espíritu de los dioses santos. El Espíritu Santo es el autor inmediato del extraordinario poder de Daniel para conocer e interpretar los secretos (nota 2:19). Las palabras de Nabucodonosor concuerdan con esto, aunque es posible que estuviera pensando en otro dios que conocía en lugar del Dios de Daniel.
+
+---
+
+### Daniel 4
+un árbol. Véase Ezequiel 31 para una descripción extensa de Asiria usando la imagen de un árbol. Se utilizan imágenes similares tanto de individuos y naciones justos e impíos Sal. 1:3; 37:35; 52:8; 92:12; Jer. 11:16, 17; 17:8.
+
+---
+
+### Daniel 4:11
+Su cima llegaba hasta el cielo. Esto se parece a la torre de Babel de Génesis 11:4. El término “cielo” es un término clave en este capítulo. Aunque el reino de Nabucodonosor se extiende desde la tierra hasta el cielo, el cielo condena su orgullo y le recuerda que su poder e incluso su cordura son dones de Dios. En esta sección también se han observado muchas alusiones al Jardín del Edén en Génesis 1-3.
+
+---
+
+### Daniel 4:13
+vigilante. Nombre que se usa para referirse a un ángel solo aquí en el AT. Alude al hecho de que los enviados de Dios observan constantemente las actividades de los hombres y están listos para intervenir para llevar a cabo el juicio del Señor (cf. Zacarías 1:8–17).
+
+---
+
+### Daniel 4:15
+Deja el tronco. Aunque Nabucodonosor es juzgado y humillado, no es destruido. Atado con una atadura de hierro y bronce. Esto simboliza la esclavitud de la locura de Nabucodonosor.
+
+---
+
+### Daniel 4:16
+La mente de una bestia. La enfermedad mental en la que una persona se imagina a sí misma como un animal se llama “zoantropía” (una combinación de las palabras griegas para “animal” y “hombre”). El que se considera a sí mismo en términos de dios ha perdido su propia humanidad. Que pasen sobre él siete períodos de tiempo. Esto significa siete períodos de duración no especificada (cf. vv. 23, 25), como estaciones, años o meses. El número siete representa la plenitud en la Biblia, por lo que este es un período completo de juicio.
+
+---
+
+### Daniel 4:22
+Tú eres, oh rey. Con esta declaración, muy similar a la de Natán a David (2 Sam. 12:7), Daniel aplica el sueño a Nabucodonosor.
+
+---
+
+### Daniel 4:25
+Con las bestias será tu morada. Daniel explica con gran detalle cómo la mente de Nabucodonosor se desmoronará, perderá su trono y su dignidad de ser humano creado para gobernar a los animales y no para imitarlos. El Altísimo gobierna. El propósito de la humillación de Nabucodonosor es obligarlo a reconocer la soberanía de Dios.
+
+---
+
+### Daniel 4:26
+tu reino será confirmado por A Nabucodonosor se le promete que, a pesar de la gravedad y la duración de su enfermedad, recuperará su trono cuando reconozca la soberanía de Dios. El cielo gobierna. Esta es la primera vez en la Biblia donde se usa “cielo” como un sustituto de “Dios” (4:37). Cf. Mt. 5:3 con Lc. 6:20.
+
+---
+
+### Daniel 4:27
+Que mi consejo te sea grato. El sueño representa una advertencia. Si Nabucodonosor hace caso del sueño y se humilla, los acontecimientos que ha previsto no tienen por qué suceder. Pero Nabucodonosor no se arrepiente.
+
+---
+
+### Daniel 4:29
+Desde este punto de observación , Nabucodonosor puede ver los Jardines Colgantes de Babilonia, una de las Maravillas del Mundo Antiguo, y la muralla exterior de Babilonia, que es lo suficientemente ancha como para que varios carros de guerra pasen por encima. No es de extrañar que una vista como esa alimente su orgullo.
+
+---
+
+### Daniel 4:34
+El Señor demuestra en la vida de Nabucodonosor que Él es capaz de humillar a los orgullosos y exaltar a los humildes, lo que lleva a Nabucodonosor a reconocer Su grandeza. El perseguidor del pueblo de Dios y el destructor de Jerusalén es puesto en su lugar. Aunque Nabucodonosor confiesa la soberanía de Dios, no confiesa su creencia en que el Dios de Israel es el único Dios.
+
+---
+
+### Daniel 5:1
+El rey Belsasar. El nombre “Belsasar” Belsasar significa “Bel, protege al rey” (no debe confundirse con “Beltasar”, el nombre babilónico dado a Daniel; nota 1:7). De fuentes babilónicas sabemos que Belsasar fue puesto a cargo de los asuntos en Babilonia mientras su padre, Nabonido, el último rey de Babilonia, pasaba largos períodos de tiempo en Tema en Arabia. Los babilonios eran famosos por sus fastuosos festines. Los eventos de este capítulo tienen lugar en 539 a. C., el año de la caída de Babilonia ante los persas, muchos años después de la muerte de Nabucodonosor en 563 a. C.
+
+---
+
+### Daniel 5:2
+cuando probó el vino. Bajo la Bajo la influencia del vino, Belsasar comete un acto sacrílego. Su padre. El padre inmediato de Belsasar fue Nabonido, no Nabucodonosor. No es raro que en hebreo se utilicen los términos “padre” (vv. 11, 13, 18) e “hijo” (v. 22) como equivalentes de “predecesor” y “sucesor” (notas del texto).
+
+---
+
+### Daniel 5:4
+Alabaron a los dioses. Los vasos del templo se contaminan, no solo por su uso profano, sino también por su uso para honrar a los dioses falsos de Babilonia.
+
+---
+
+### Daniel 5:5
+frente al candelabro. Aquí son claramente visibles para todos, aunque no fáciles de entender.
+
+---
+
+### Daniel 5:6
+Sus miembros se debilitaron. Literalmente, “se aflojaron los nudos de sus coyunturas”, lo que puede significar que también perdió el control de sus funciones corporales.
+
+---
+
+### Daniel 5:7
+los encantadores, los caldeos y los astrólogos. Véanse las notas sobre 1:20; 2:2; cf. 2:27; 4:7. Me muestra su interpretación. Una vez más, un rey necesita la ayuda de Daniel para entender un mensaje de Dios destinado a él (nota 2:5). púrpura era muy caro en la antigüedad, por lo que sólo las personas más ricas podían permitirse usar ropa de este color. Tercer gobernante, es decir, cercano en poder a Nabonido y Belsasar (nota 5:1). “Tercer gobernante” es una designación oficial de un alto cargo, no necesariamente el tercero literal en la línea de sucesión al trono.
+
+---
+
+### Daniel 5:10
+La reina. Es poco probable que se trate de una esposa de Belsasar, puesto que ya está presente en el banquete (vv. 2, 3). Probablemente se la deba identificar como la reina madre, una de las pocas mujeres que tenían un poder significativo en las cortes reales antiguas (cf. 1 R 15:3; 2 R 11:1–3; 24:12; Jer 13:18).
+
+---
+
+### Daniel 5:11
+el espíritu de los dioses santos. Véase la nota sobre 4:8. No es sorprendente que la reina madre esté más familiarizada con la vida y la prominencia de Daniel que Belsasar. Daniel ya tiene ochenta años en ese momento (539 d. C.). AC) Fue llevado a Babilonia siendo joven sesenta y seis años antes (605 AC; nota 1:1).
+
+---
+
+### Daniel 5:12
+que se encuentra en este Daniel. Esta dotación divina puede entenderse como la presencia del Espíritu de Dios en un individuo o simplemente como la posesión de un espíritu extraordinario característico de ese individuo. Beltsasar. Véase nota sobre 1:7.
+
+---
+
+### Daniel 5:13
+Uno de los exiliados de Judá. El discurso de Belsasar a Daniel tiene como objetivo recordarle a Daniel su lugar apropiado en la estructura de poder babilónica. Ignora el papel de Daniel en la época de Nabucodonosor y la evaluación positiva que la reina madre hizo de él.
+
+---
+
+### Daniel 5:16
+tercer gobernante del reino. Véase la nota sobre el versículo 7.
+
+---
+
+### Daniel 5:17
+Que tus ofrendas sean para ti. La respuesta de Daniel omite las formas deferentes de tratamiento que se acostumbran en la corte babilónica. Es posible que esté rechazando la oferta de recompensa de Belsasar porque es consciente de que es solo por la misericordia de Dios que puede responder a la petición del rey, y no quiere usar el papel que Dios le dio como un medio de beneficio personal (cf. Gn. 14:23; 1 S. 9:7 nota). Pero, ¿por qué entonces las acepta antes (2:48) y después (v. 29)? Algunos intérpretes creen que aquí está evitando la presión real para modificar el ominoso mensaje (Nm. 22:18; Miq. 3:5, 11). O tal vez Daniel ya conoce el mensaje que está a punto de interpretar: que Belsasar no tiene poder para entregar los regalos que está prometiendo, ya que en la misma noche que Daniel da la interpretación perderá su reino y su vida. DANIEL 5:17
+
+---
+
+### Daniel 5:18
+Nabucodonosor, vuestro padre. Véase la nota sobre el v. 2. A diferencia de Nabucodonosor, que fue humillado y luego volvió al poder, Belsasar no se ha humillado.
+
+---
+
+### Daniel 5:21
+El Dios Altísimo gobierna. Esta declaración resume la teología del libro (Introducción: Características y Temas Principales).
+
+---
+
+### Daniel 5:22
+Y tú, su hijo. Véase la nota sobre el versículo 2. Aunque ya sabías todo esto, porque el rey tiene menos excusa para su orgullo que su padre Nabucodonosor, el tiempo de la misericordia ha pasado (compara un caso diferente en 1 Tim. 1:13).
+
+---
+
+### Daniel 5:24
+Entonces. La escritura en la pared es la respuesta de Dios al desafío arrogante presentado por el orgullo de Belsasar y su desafío al Dios que mostró Su existencia y soberanía en el tiempo de Nabucodonosor.
+
+---
+
+### Daniel 5:25
+Mene, Mene, Tekel y Parsin. El arameo, al igual que el hebreo, suele escribirse sin vocales, por lo que esta inscripción tan breve resulta ambigua para los testigos.
+
+---
+
+### Daniel 5:26
+Mene. La palabra aramea puede ser un verbo que significa “contado” o un sustantivo que significa “mina”, una unidad de dinero. Daniel la lee como el verbo que significa que la duración del reinado de Belsasar ha sido determinada por Dios y está por terminar (Jer. 50:18).
+
+---
+
+### Daniel 5:27
+Tekel. Esta palabra también es un verbo o un sustantivo. Daniel la lee como un verbo que significa “pesó”, lo que significa que Belsasar no ha estado a la altura de los estándares de justicia de Dios.
+
+---
+
+### Daniel 5:28
+Peres. Esta palabra, el singular de “parsin”, Suena como la palabra aramea para Persia y significa “dividida”. Si los presentes en el banquete entienden los tres términos como sustantivos que indican varias unidades decrecientes de dinero —mina, o sesenta siclos; tekel , un siclo; peres, medio siclo (es decir, “dividido”)— no es sorprendente que no puedan entender la inscripción. Medos y persas. Véase Introducción: Fecha y ocasión.
+
+---
+
+### Daniel 5:29
+Belsasar dio la orden. Al igual que Nabucodonosor, Belsasar honra a Daniel (2:48), pero a diferencia de su predecesor, no honra al Dios de Daniel (2:46, 47). Dada la profecía, es una recompensa vacía.
+
+---
+
+### Daniel 5:30
+Belsasar... fue asesinado. No se sabe exactamente cómo murió Belsasar. Sin embargo, los historiadores griegos Heródoto y Jenofonte informan que Babilonia fue tomada en un ataque sorpresa por los persas mientras los babilonios estaban en festejos y danzas.
+
+---
+
+### Daniel 5:31
+Darío el medo. Desde hace mucho tiempo se ha alegado que esta y otras referencias a Darío el medo en el libro de Daniel (6:1, 6, 9, 25, 28; 9:1; 11:1) son errores históricos. Para este análisis, véase la nota sobre 6:1. Sesenta y dos. La mina probablemente pesaba sesenta siclos. Esto, junto con el siclo y dos medios siclos (nota del v. 25), da un total de sesenta y dos; dado que esta es la edad de Darío, la mina podría ser una referencia a él en la profecía.
+
+---
+
+### Daniel 6:1
+Darío. Véase la nota sobre 5:31. No se hace referencia a Darío el Medo en las fuentes históricas que han sobrevivido fuera de la Biblia, y no hay intervalo entre Belsasar y Nabonido (nota de 5:1) y la ascensión al trono de Ciro de Persia. Los comentaristas han sugerido varias identificaciones para “Darío el Medo”: (1) un nombre de trono para Ciro, el fundador del Imperio Persa (nota del v. 28); (2) un título; (3) una designación para Gobrias, un general que desertó de Nabucodonosor para unirse a Ciro y más tarde capturó Babilonia. Ciro nombró a Gobrias gobernador de los territorios que los persas tomaron de los babilonios. sátrapas. Véase nota sobre 3:2. Una de sus responsabilidades es supervisar la recaudación y entrega de tributos, lo que brinda amplias oportunidades para la corrupción.
+
+---
+
+### Daniel 6:3
+Había en él un espíritu excelente. Véase 1:17; 4:8; 5:12.
+
+---
+
+### Daniel 6:5
+la ley de su Dios. Sin quererlo, los adversarios de Daniel afirman no sólo su integridad moral sino también la naturaleza visible de su piedad y compromiso con el Dios de Israel.
+
+---
+
+### Daniel 6:7
+La falsa implicación es que Daniel está de acuerdo con la propuesta. Estos funcionarios son hipócritas en su aparente devoción a Darío. Su plan es un intento de manipularlo para sus propios fines. Cualquier dios u hombre... excepto para ti. Darío ve la propuesta como algo más político que religioso, y sirve para consolidar su autoridad sobre los territorios recién conquistados. Es una versión más sutil del edicto de Nabucodonosor en el capítulo 3. VOLVER DANIEL 6:7
+
+---
+
+### Daniel 6:8
+la ley de los medos y de los persas. La inmutabilidad de su ley está atestiguada en escritos extrabíblicos, así como en el libro de Ester. Siempre es posible que el rey emita un contraedicto, pero eso significa una pérdida de prestigio para el rey. El efecto del decreto es crear un conflicto para Daniel entre la lealtad a Dios y la obediencia al gobierno humano.
+
+---
+
+### Daniel 6:10
+hacia Jerusalén. Daniel está cumpliendo la oración de Salomón en la dedicación del templo, que anticipaba que los exiliados orarían hacia Jerusalén desde la tierra de su exilio y pedirían al Señor que les mostrara favor (1 R. 8:46-50). De rodillas. En las Escrituras, estar de pie es la postura habitual en la oración (1 Crónicas 12:1-13). 23:30; Neh. 9:2–5), mientras que arrodillarse, una señal de humildad, ocurre en circunstancias de particular solemnidad (1 R. 8:54; Esd. 9:5; Sal. 95:6; Luc. 22:41; Hch. 7:60; 9:40). Como ya lo había hecho anteriormente. Evidentemente, los hábitos de oración de Daniel son de conocimiento público, lo que lo convierte en un blanco fácil.
+
+---
+
+### Daniel 6:12
+¿No firmasteis un edicto? Antes de acusar a Daniel, los sátrapas piden al rey que confirme su edicto, para que le resulte más difícil evitar su entrada en vigor cuando tenga que condenar a Daniel.
+
+---
+
+### Daniel 6:13
+Uno de los exiliados de Judá. Esta identificación étnica de Daniel quizás indica prejuicio hacia los judíos por parte de los otros funcionarios (3:8); subraya sus orígenes humildes en lugar de su posición actual de responsabilidad y poder.
+
+---
+
+### Daniel 6:14
+Darío se propuso liberar a Daniel. Inmediatamente, Darío se dio cuenta de que había sido víctima de la intriga de sus propios funcionarios para tenderle una trampa a Daniel. Su lealtad a Daniel se mantuvo inquebrantable. VOLVER DANIEL 6:14
+
+---
+
+### Daniel 6:16
+Que tu Dios... te libre. En contra de su propia voluntad, Darío se ve obligado a cumplir con el decreto que emitió. Darío no puede hacer nada para ayudar a Daniel, pero pide que el Dios de Daniel intervenga en favor de su fiel siervo.
+
+---
+
+### Daniel 6:17
+lo selló con su propio sello. Los anillos de sello y los sellos cilíndricos eran utilizados por los asirios, babilonios y persas. El anillo o cilindro se presionaba en arcilla blanda para dejar la marca del dueño del El sello. Romper los sellos era una violación de la ley, y en este caso un sello intacto asegura que nadie intervenga para rescatar a Daniel.
+
+---
+
+### Daniel 6:19
+Al amanecer , Darío sale a investigar el destino de Daniel lo antes posible.
+
+---
+
+### Daniel 6:22
+Mi Dios envió a su ángel. Posiblemente, aunque no necesariamente en el contexto, el Ángel del Señor. Véase la nota sobre 3:28. Yo fui hallado inocente. El nombre de Daniel significa “Dios es mi juez” y aquí se demuestra que es cierto: Dios lo vindica al protegerlo de los leones. Parece que Daniel pasó una noche más tranquila en el foso de los leones que el rey rodeado de todos los lujos de la realeza.
+
+---
+
+### Daniel 6:23
+El rey... ordenó. Darío puede rescatar a Daniel sin violar el decreto ya que sus exigencias se han cumplido. No hay ningún mal. Cf. 3:25.
+
+---
+
+### Daniel 6:24
+aquellos hombres que habían acusado maliciosamente Daniel fue llevado. Bajo la antigua ley del Cercano Oriente, las personas que presentaban acusaciones falsas contra otra sufrían el mismo destino que habían buscado para el acusado (véase Deuteronomio 19:16- 21). Como parte de la responsabilidad del pacto, el veredicto afectaba a las familias de los acusadores, así como a los hombres mismos. Su experiencia con los leones es exactamente opuesta a la de Daniel, lo que demuestra que el Juez divino está de acuerdo con el veredicto del rey terrenal.
+
+---
+
+### Daniel 6:26
+Un decreto. Cf. 2:47; 3:28, 29; 4:2, 3, 34–37; 5:18–29. Como en las narraciones anteriores, Dios muestra su control soberano de la naturaleza y la historia, los reinos y los reyes. El decreto es un testimonio elocuente del “Dios viviente” y su reino indestructible. Es un reconocimiento oficial del Dios de Daniel, aunque no necesariamente refleja la fe personal de parte de Darío.
+
+---
+
+### Daniel 6:28
+Daniel prosperó. El favor de Dios sostiene a Daniel y preserva su autoridad durante todo el exilio hasta que el Imperio babilónico es reemplazado por los persas. Toda la vida de Daniel transcurre metafóricamente en un foso de leones, pero Dios lo protege. Darío... Ciro. Sobre la relación entre Darío y Ciro, véase la nota sobre 6:1. Algunos han interpretado a Darío el Medo como uno y el mismo Ciro el Persa, basándose en una traducción de una partícula conjuntiva en arameo que es explicativo (aunque normalmente se traduce como “y”). En este caso, el versículo se traduciría mejor como “Así que este Daniel prosperó en el reinado de Darío , está (o incluso ) en el reinado de Ciro el persa”. Hay un precedente para tal construcción en 1 Crónicas 5:26: “De modo que el Dios de Israel despertó el espíritu de Pul rey de Asiria, es decir, el espíritu de Tiglat-pileser”.
+
+---
+
+### Daniel 7:1
+el primer año de Belsasar. Véase la nota sobre 5:1. La administración de Belsasar bajo Nabonido puede haber comenzado al mismo tiempo que la ascensión al trono de su padre (556 a. C.) o unos años después. En cualquier caso, las visiones de los capítulos 7 y 8 tienen lugar cronológicamente entre los acontecimientos de los capítulos 1 y 2. 4 y 5, en los días en que los babilonios gobernaban el mundo.
+
+---
+
+### Daniel 7:2
+Los cuatro vientos del cielo. Cuatro es el número de completitud en la Biblia, por lo que los cuatro vientos del cielo representan vientos que soplan desde los cuatro puntos cardinales, en lugar de un peligro que proviene de una dirección en particular. El gran mar. El mar es una figura común de la inquietud y la peligrosa agitación de los hombres y las naciones pecadoras (véase v. 17; cf. Is. 17:12, 13; 57:20). También es el hogar de monstruos malignos como el Leviatán (Sal. 74:13, 14).
+
+---
+
+### Daniel 7:3
+Cuatro grandes bestias. Estas cuatro “bestias” pueden representar cuatro reinos (vv. 17, 23) o, como los cuatro vientos del cielo (v. 2), pueden representar todos los reinos futuros. La identificación que se hace aquí corresponde estrechamente a los cuatro reinos del sueño de Nabucodonosor en el cap. 2. Para un análisis de la identificación de los cuatro reinos, véase la nota sobre 2:37–40 y la Introducción: Fecha y ocasión.
+
+---
+
+### Daniel 7:4
+como un león. El “león” con “alas de águila” Es un símbolo apropiado para el Imperio babilónico (cf. Jer. 50:44; Eze. 17:3, 12). Los leones alados con rostros humanos son comunes en el arte babilónico y se colocan a la entrada de importantes edificios públicos en la era de Daniel. También es una mezcla impura de ave y bestia. Le arrancaron las alas. Quizás se trate de una referencia a la humillación de Nabucodonosor y su posterior restauración tras un período de siete años de locura (cap. 4).
+
+---
+
+### Daniel 7:5
+Otra bestia... como un oso. El segundo reino está simbolizado como una “bestia” con un apetito voraz. Si representa a Medo-Persia, el lado elevado puede representar el estatus superior de Persia, y las “tres costillas”, las conquistas de Persia sobre Lidia (546 a. C.), Babilonia (539 a. C.) y Egipto (525 a. C.). Véase la nota sobre 8:3.
+
+---
+
+### Daniel 7:6
+otro, como un leopardo. El tercer imperio está simbolizado por el “leopardo”, conocido por su rapidez. Alejandro Magno (356–323 a. C.) conquistó el Imperio persa con gran rapidez. Alejandro murió repentinamente a los treinta y tres años, y el imperio que estableció se dividió en cuatro partes (Macedonia bajo Casandro, Tracia y Asia Menor bajo Lisímaco, Siria bajo Seleuco y Egipto bajo Ptolomeo). Sin embargo, muchos otros imperios también han sido militarmente rápidos y feroces, por lo que la identificación del leopardo con Alejandro, aunque probable, sigue siendo incierta.
+
+---
+
+### Daniel 7:7
+una cuarta bestia. Esta última “bestia” no puede identificarse con ningún animal terrenal. Es sumamente poderosa y aterradora, con grandes dientes de hierro que aplastan a sus enemigos. Muchos intérpretes creen que esta última bestia simboliza a Roma, el reino que finalmente asimila las diversas partes del reino griego dividido. Tenía diez cuernos. Se ha pensado que los “diez cuernos” simbolizan diez reyes o reinos asociados con el Imperio Romano (v. 24). Algunos intérpretes sugieren que se espera una segunda fase del cuarto reino, un Imperio Romano revivido. Según la visión de Daniel, los diez cuernos saldrán de la cuarta bestia —el cuarto reino— de una sola vez o uno después del otro (2:44 nota; cf. Apoc. 1:11). 13:1–10; 17:3, 12).
+
+---
+
+### Daniel 7:8
+Otro cuerno, uno pequeño. Los diez cuernos son anteriores en el tiempo al “cuerno pequeño” que arranca tres de ellos, lo que simboliza otra fase del cuarto reino. Muchos intérpretes sugieren que el cuerno pequeño representa de alguna manera al Anticristo (2 Tes. 2:3, 4, 8). Si es así, esta es la primera referencia en las Escrituras al Anticristo. Sin embargo, en ausencia de cualquier instrucción clara del ángel intérprete en lo que sigue, todas las identificaciones deben seguir siendo tentativas.
+
+---
+
+### Daniel 7:9
+El Anciano de Días tomó asiento. El título “Anciano de días” aparece en la Biblia sólo en este capítulo (vv. 13, 22). Es una designación para Dios en el trono y el juicio divino. blanco como la nieve... como lana pura. Su vestimenta simboliza pureza radiante, mientras Su cabello representa la sabiduría que viene con la edad. Su trono... sus ruedas. La representación del trono de Dios se asemeja a la visión de Ezequiel del carro del trono de Dios, subrayando el tema del juicio (Ezequiel 10:13). 1:15–28)
+
+---
+
+### Daniel 7:11
+Se establece un contraste entre la destrucción completa del cuarto reino y la medida de continuidad concedida a los reinos anteriores a medida que su gente y sus costumbres fueron absorbidas por los reinos posteriores.
+
+---
+
+### Daniel 7:13
+con las nubes del cielo. En otras partes del Antiguo Testamento, solo Dios viene en las nubes (Sal. 104:3; Is. 19:1). Por consiguiente, el “hijo del hombre” tiene su origen en el cielo y viene por iniciativa divina. uno como un hijo de hombre. La frase equivalente se usa para Daniel en 8:17 y muchas veces para Ezequiel, contemporáneo de Daniel (p. ej., Ezequiel 2:1, 3, 6). En contraste con las “bestias” anteriores que han gobernado mal la tierra, el hijo del hombre gobernará como Dios lo quiso antes de la caída de la humanidad (Gén. 1:26-28; Sal. 8:4-6). La expresión “Hijo del Hombre” se usa sesenta y nueve veces en los Evangelios Sinópticos y doce veces en el Evangelio de Juan para referirse a Cristo. Es el título que Jesús usó con más frecuencia para referirse a Sí mismo. Lingüísticamente, la frase aramea aquí traducida como “hijo del hombre” significa “un ser humano” en oposición a las “bestias” que lo anteceden o un ser divino. A la luz de la aplicación de la frase a Jesús, es probable que se refiera a ambos. El “hijo del hombre” de Daniel es un gobernante divino-humano, específicamente el Dios-hombre, Jesucristo.
+
+---
+
+### Daniel 7:14
+Todos los pueblos... le servirán. El “hijo del hombre” es Cristo, el Mesías, y la palabra traducida “servir” implica actos de adoración. Jesús aplicó este pasaje a Sí mismo, lo que provocó que los líderes religiosos de su época lo acusaran de blasfemia (Mateo 26:64, 65; Marcos 14:62-64). un dominio eterno. Se le da la soberanía de Dios y ejerce el gobierno simbolizado por la piedra que cayó en el sueño de Nabucodonosor (2:34, 35, 44, 45).
+
+---
+
+### Daniel 7:16
+él... me hizo saber la Interpretación de las cosas. En contraste con las especulaciones de los comentaristas, el ángel le dice a Daniel exactamente lo que significa la visión. En otras palabras, todas nuestras interpretaciones de la visión deben terminar declarando el contenido de los versículos 17 y 18.
+
+---
+
+### Daniel 7:17
+Estas cuatro grandes bestias son cuatro reyes. Curiosamente, el ángel identifica a los animales como reyes, no como reinos. No explica quiénes son estos reyes, lo que sugiere que identificarlos no es esencial para captar el significado de la visión.
+
+---
+
+### Daniel 7:18
+los santos del Altísimo. Véanse los versículos 21, 22, 25, 27. Los “santos” no son ángeles, sino creyentes en Dios que participarán en el reino de Cristo (Mt. 19:28; 1 Co. 6:1–3; 2 Ti. 2:12; Ap. 22:5). El punto principal de la visión es que a pesar de la presencia constante de gobernantes y poderes antagónicos (Babilonia, Medo-Persia, Grecia, Roma y muchos otros estados nacionales e imperios), los santos del Altísimo finalmente triunfarán junto con el Hijo del Hombre.
+
+---
+
+### Daniel 7:19
+Deseaba saber la verdad acerca de la La cuarta bestia. La atención de Daniel se centra en la identidad de la cuarta bestia; sin embargo, la respuesta del ángel intérprete terminará volviendo al punto planteado en los versículos 17 y 18.
+
+---
+
+### Daniel 7:21
+hizo guerra contra los santos. A Daniel se le da información adicional sobre la hostilidad del cuerno pequeño, posiblemente el Anticristo (v. 8), hacia el pueblo de Dios (cf. Ap. 13:7). Sin embargo, dado que muchos anticristos preceden al Anticristo (1 Juan 2:18), no es sorprendente que varios gobernantes históricos como Antíoco IV Epífanes hayan oprimido a los santos de maneras similares. El mensaje de la visión es relevante para el pueblo de Dios en muchos contextos antes del tiempo del fin.
+
+---
+
+### Daniel 7:22
+hasta que vino el Anciano de Días. Aunque el Anticristo prevalecerá por un tiempo contra el pueblo de Dios, al final caerá bajo el juicio de Dios (Zac. 14:1–4; Ap. 13:7–17; 19:20).
+
+---
+
+### Daniel 7:25
+por un tiempo, tiempos y medio tiempo. La palabra “tiempo” es la misma que se usa en 4:16 y 4:23, y, como aparece allí, puede significar un año. Algunos intérpretes toman este versículo como una referencia a la última mitad de la septuagésima semana de 9:24–27. Otros no asignan una duración específica a la expresión, sino que la toman como un período de tiempo que se acorta porque Dios interviene. Se trata de “tres tiempos y medio” en lugar de un período completo de juicio, que sería “siete tiempos” (véase 4:16).
+
+---
+
+### Daniel 7:27
+los santos del Altísimo. Véase la nota sobre el v. 18. El triunfo final de los santos a través de la persecución duradera es el tema central Tema del capítulo.
+
+---
+
+### Daniel 8:1
+Daniel vuelve a escribir en hebreo en los últimos cinco capítulos. Utilizó el arameo en 2:4–7:28 (nota 2:4). 8:1 En el tercer año del reinado del rey Belsasar, es decir, dos años después del sueño de Daniel en el capítulo 7 (nota 7:1).
+
+---
+
+### Daniel 8:2
+Vi... estuve. Daniel tiene un viaje visionario como el de Ezequiel (Ezequiel 3:10-15). En Susa, la capital. En tiempos de Daniel, Susa era la capital de Elam, alrededor del año 230 d. C. millas (370 km) al este de Babilonia. No está claro si Elam es independiente o está alineada con Babilonia o Media. Sin embargo, más tarde, como una de las tres ciudades reales, Susa se convierte en el centro diplomático y administrativo del Imperio persa (cf. Nehemías 1:1; Ester 1:2). El canal de Ulai. Este canal cerca de Susa conecta dos ríos que desembocan en el Golfo Pérsico.
+
+---
+
+### Daniel 8:3
+un carnero... dos cuernos. Según el v. 20, el carnero y sus cuernos representan a los reyes del Imperio Medopersa. A diferencia del cap. 7. El ángel intérprete aclara el significado histórico de esta visión. Uno era más alto que el otro y... apareció el último. La historia medopersa aclara el simbolismo. Los medos se independizaron de Asiria después de 612. Los persas estaban bajo el control de los medos, pero finalmente cobraron importancia cuando Ciro de Anshan derrotó a su señor medo en el 550 a. C. Ciro (que reinó entre 559 y 530 a. C.) se autodenominó “rey del mundo”. Daniel 8:3
+
+---
+
+### Daniel 8:4
+avanzando hacia el oeste y el norte y hacia el sur, es decir, con la espalda hacia el oriente de donde vino (Is. 41:2). Ciro tomó primero Asia Menor, luego el norte y el sur de Mesopotamia. Los gobernantes posteriores extendieron el control medopersa mucho más al este. se volvió grande. El Imperio Persa llegó a ser más grande que cualquier otro imperio anterior en la historia del antiguo Cercano Oriente.
+
+---
+
+### Daniel 8:5
+desde el oeste... la cabra tenía una cuerno llamativo. Según el versículo 21, el macho cabrío representa a Grecia y a la gran El cuerno entre sus ojos es el primer rey. El simbolismo representa claramente el ascenso de el Imperio griego bajo Alejandro Magno (356-323 a. C.). a través de... toda la tierra, sin tocar el suelo. Estas palabras describen La asombrosa velocidad y extensión de las conquistas de Alejandro (nota 7:6). En sólo tres Años después derrotó al poderoso Imperio Persa.
+
+---
+
+### Daniel 8:8
+el macho cabrío se hizo muy grande. El imperio de Alejandro superó rápidamente al imperio persa en tamaño. En el año 327 a. C., Alejandro se trasladó al este, a lo que hoy es Afganistán, y luego al Indo. Río en el actual Pakistán. El gran cuerno fue quebrado. Alejandro murió en Babilonia a la edad de treinta años . tres. En su lugar surgieron cuatro cuernos prominentes. Según el versículo 2 , estos Los cuernos son cuatro reinos que surgieron del imperio de Alejandro pero que fueron inferior a él en fuerza. Después de un tiempo de lucha interna, cuatro de los soldados de Alejandro Los generales tomaron porciones del Imperio griego como sus propios reinos. Véase la nota sobre 7:6.
+
+---
+
+### Daniel 8:9
+Un cuerno pequeño. Según el versículo 23, este es un “cuerno pequeño”. El “cuerno” simboliza a un gobernante malvado que surgirá en uno de los cuatro reinos griegos. reinos después de un largo intervalo de tiempo (“al final de su reino ”). Las descripciones de las acciones de este gobernante (vv. 9–14; 23–25) indican que él es Antíoco IV Epífanes, gobernante del reino seléucida del 175 al 164 a. C. Este cuerno debe distinguirse del “pequeño” de 7:8 si ese capítulo se refiere al período romano y no al griego. Hacia la tierra gloriosa, es decir, hacia Palestina.
+
+---
+
+### Daniel 8:10
+el ejército del cielo. El “ejército del cielo” o las “estrellas” (cf. Jer 33,22) simbolizan al pueblo de Dios (cf. 12,3; Gn 15,5) o un ejército celestial (Is. 14:13; véase también 2 Mac. 9:10). El ataque contra el pueblo de Dios equivale a un atentado contra el cielo mismo. Arrojó a la tierra una parte del ejército y una parte de las estrellas. Esta es una Representación simbólica de la severa persecución del pueblo de Dios bajo Antíoco . IV Epífanes, que intentó abolir su culto tradicional y su forma de vida. y helenizarlos por la fuerza (cf. vv. 11:21–35 y 1 Mac. 1: 10–64 para detalles adicionales; cf. también Introducción al período intertestamentario).
+
+---
+
+### Daniel 8:11
+tan grande como el Príncipe de los ejércitos . Por “Príncipe” se entiende Dios (véase v. 25, donde la designación es “Príncipe de príncipes”). Antíoco IV tomó el nombre de Epífanes (“Dios manifestado”) y se consideraba una manifestación de Zeus. Se suprimió el holocausto continuo. Véanse los versículos 12, 13 y 11:31. Antíoco IV prohibió sumariamente todas las ceremonias y el culto a Dios en el templo de Jerusalén y en las ciudades de Judá. El lugar de su santuario fue destruido. Antíoco IV entró en el Lugar Santísimo y saqueó los vasos de plata y oro. Erigió un altar a Zeus Olímpico sobre el altar de Dios en el atrio del templo y allí sacrificó cerdos (nota 11:31).
+
+---
+
+### Daniel 8:12
+a causa de las transgresiones. El templo de Jerusalén fue destruido en tiempos de Daniel a causa de los pecados del pueblo de Dios; aquí se le dice a Daniel que volvería a ocurrir un ciclo similar. Echad por tierra la verdad. Entre sus transgresiones, Antíoco IV destruyó copias de las Escrituras (1 Mac. 1:56, 57). Actuará y prosperará. La visión describe el aparente éxito de las malas acciones de Antíoco IV, el cuerno pequeño.
+
+---
+
+### Daniel 8:14
+Para 2.300 tardes y mañanas. Compárese la “visión de las tardes y las mañanas” en el v. 26. Algunos intérpretes la entienden simplemente como una referencia a los sacrificios vespertinos y matutinos como ofrendas separadas (cf. Éx. 29:38–42). Sobre esta base, representa 1.150 días, ya que estos sacrificios vespertinos y matutinos emparejados se consideran tradicionalmente una sola ofrenda. Otros la entienden simplemente como una expresión para 2.300 días. Dado que las persecuciones de Antíoco IV podrían vincularse con cualquiera de una serie de incidentes que comenzaron tan temprano como 171 a. C. y terminaron con la rededicación del templo en 164 a. C., es difícil decir qué interpretación de la frase es preferible. El múltiplo del número veintitrés puede ser simplemente simbólico para un período fijo como en los apocalipsis extrabíblicos (cf. las sesenta y nueve [23 x 3] semanas en 9:25, 26). Llamarlos “tardes y mañanas” Recuerda los días de la creación en Génesis 1, cuyo orden el cuerno pequeño parece decidido a destruir. También sugiere que Dios tiene un calendario preciso para el período de sufrimiento de sus santos, aunque los humanos no pueden descifrar sus planes. Entonces el santuario será restaurado. El templo fue purificado y rededicado bajo el liderazgo de Judas Macabeo en diciembre de 164 a. C. (nota 11:34; cf. Zac. 9:13–17).
+
+---
+
+### Daniel 8:16
+Gabriel. Este ángel se menciona cuatro veces en las Escrituras (9:21; Lucas 1:19, 26). El nombre significa “poderoso de Dios”. o “Dios es poderoso”.
+
+---
+
+### Daniel 8:17
+Hijo del hombre. Véase la nota sobre 7:13. El “hombre fuerte de Dios” se dirige a este distinguido “mortal”. El tiempo del fin. Véase también el versículo 19 (“el tiempo señalado del fin”). Esta expresión no es necesariamente escatológica (refiriéndose al fin de la historia). Aparece en 11:27, 35 en contextos que claramente no son escatológicos. Aquí puede referirse al fin de las persecuciones de Antíoco IV.
+
+---
+
+### Daniel 8:19
+La indignación. El tiempo de “la indignación” puede referirse al período del juicio de Dios sobre Israel durante su sometimiento a los babilonios, los persas y los griegos.
+
+---
+
+### Daniel 8:20
+ram. Ver notas sobre los versículos 3 y 4.
+
+---
+
+### Daniel 8:21
+Cabra... cuerno. Ver notas sobre los versículos 5 y 8. VOLVER DANIEL 8:21
+
+---
+
+### Daniel 8:22
+Véase la nota sobre el versículo 8.
+
+---
+
+### Daniel 8:23
+Véanse las notas sobre los versículos 9–14. Algunos intérpretes perciben al Anticristo en las descripciones del “cuerno pequeño” de este capítulo. Antíoco IV es visto como un tipo que apunta hacia una manifestación posterior del poder satánico en la persona del Anticristo. Daniel 8:23
+
+---
+
+### Daniel 8:25
+Príncipe de príncipes. Esta es una referencia a Dios (nota del v. 11). No fue obra de nadie. Antíoco IV murió de un trastorno físico o nervioso en 164 A.C. Para relatos de su muerte, véase 1 Mac. 6:1–16 y 2 Mac. 9.
+
+---
+
+### Daniel 8:26
+sellar la visión. El término “sellar” puede significar autenticar o certificar algo, o cerrar para mantenerlo confidencial y a salvo. El segundo sentido parece ser el más adecuado en este contexto (nota 6:17). Se refiere a muchos días a partir de ahora. Las palabras “a partir de ahora” han sido proporcionadas por los traductores. Las conquistas de Alejandro (333– 323 a. C.) ocurrieron más de dos siglos después de la visión de Daniel (c. 550 a. C.). Las actividades de Antíoco IV fueron aproximadamente un siglo y medio después de Alejandro (171–164 a. C.). Daniel 8:26
+
+---
+
+### Daniel 8:27
+Daniel no entiende del todo la visión, pero reconoce que describe un largo período de sufrimiento para su pueblo en el futuro. Como lo hicieron los demás profetas, se identifica con el sufrimiento de su pueblo (cf. Ezequiel 3:14, 15). Daniel se dedicó a los asuntos del rey. Daniel sigue buscando el bienestar de la ciudad terrenal donde Dios lo colocó.
+
+---
+
+### Daniel 9:1
+Daniel relata la revelación que recibió acerca de la profecía de Jeremías sobre los setenta años de desolación de Jerusalén (Jer. 25:11, 12; 29:10). Sigue la oración de Daniel confesando la pecaminosidad del pueblo de Dios y la justicia de la desolación de Jerusalén, y su búsqueda del favor de Dios para la restauración de la ciudad y el templo. 9:1 El primer año de Darío hijo de Asuero. Véase la nota sobre 6:1. La palabra “Asuero” (no la misma persona mencionada en Ester. 1:1) puede ser un título real en lugar de un nombre personal. El primer año de Darío fue 539 a. C.
+
+---
+
+### Daniel 9:2
+las desolaciones de Jerusalén... setenta Los intérpretes difieren en cuanto a las fechas de inicio y fin del período de setenta años, y en si debe entenderse como un número redondo para una vida humana o exactamente setenta años. Algunos datan el período a partir del 586 a. C. (la destrucción de Jerusalén por Nabucodonosor) hasta el 516 a. C., cuando se completó la restauración del templo bajo Zorobabel (Esdras 6:13-18). Otros sitúan el comienzo de este período en el año del cautiverio del propio Daniel (605 a. C.; nota 1:1), lo que sugiere que Daniel reconoce que el fin de los setenta años es inminente. De cualquier manera, está claro que la oración de Daniel está motivada por la lectura de la profecía de Jeremías, especialmente en vista de la caída de Babilonia, que Jeremías anticipó. Daniel ve que dos cosas deben suceder según Jeremías (25:11, 12; 29:10-14): la caída de Babilonia y la restauración del pueblo a la Tierra Prometida. La primera ha sucedido en el momento de la oración de Daniel, pero la segunda no. Por lo tanto, Daniel suplica al Señor que cumpla la segunda. Dios responde a la oración con una respuesta a esto y aún más.
+
+---
+
+### Daniel 9:3
+Ayuno, cilicio y ceniza. Estas son señales de arrepentimiento y duelo por el pecado.
+
+---
+
+### Daniel 9:4
+La oración de Daniel está arraigada en una comprensión del pacto de la relación del Señor con Su pueblo (bendición por la obediencia, maldición por la desobediencia, especialmente los versículos 5, 7, 11, 12, 14; cf. Lev. 26:14-45; Deut. 28:15–68; 30:1–5). Para una oración similar, véase Nehemías 9. La oración tiene cuatro partes: (1) adoración (v. 4); (2) una confesión de pecado (vv. 5–11); (3) reconocimiento de la justicia de Dios en Su juicio sobre el pecado (vv. 11–14); y (4) una súplica por la misericordia de Dios basada en la preocupación por Su nombre, reino y voluntad (vv. 15–19). La oración se basa en las promesas de Dios (v. 2) y se ofrece en un espíritu de contrición y humildad (v. 3). Es un modelo de los elementos apropiados para una oración eficaz.
+
+---
+
+### Daniel 9:21
+Gabriel. Véase la nota sobre 8:16. La llegada de Gabriel es una prueba de que la oración de Daniel ha sido escuchada y su petición del favor del Señor ha sido aprobada.
+
+---
+
+### Daniel 9:24
+La interpretación de estos versículos es objeto de debate en muchos puntos. Hay dos enfoques fundamentales para la interpretación de las “semanas” (lit. “sietes”): como períodos simbólicos de tiempo o como períodos literales de tiempo. En la perspectiva simbólica, los setenta años de castigo (v. 2) se multiplican siete veces de acuerdo con las maldiciones del pacto (Lev. 26:18, 21, 24, 28). Jubileos , un libro judío del período intertestamentario, también estructura toda la historia en períodos de 490 años. Los partidarios de la perspectiva literal se dividen en tres categorías. Al igual que con otras profecías de Daniel, algunos comentaristas interpretan los versículos con referencia a la época de Antíoco IV. Otros intérpretes pueden dividirse en dos categorías: (1) aquellos que interpretan el pasaje como si se centrara principalmente en los acontecimientos asociados con la primera venida de Cristo y poco después (perspectiva de la primera venida); (2) aquellos que interpretan el pasaje como si hiciera referencia a acontecimientos asociados tanto con la primera como con la segunda venida de Cristo, lo que requiere un intervalo de tiempo no especificado entre las dos (perspectiva de la segunda venida). Dentro de cada una de estas amplias categorías, los intérpretes individuales difieren en detalles específicos. 9:24 Setenta semanas. La mayoría de los intérpretes consideran las unidades de “setenta semanas” (lit., “setenta sietes”) como representación de 490 años (nota 9:24–27). Estas llamadas setenta semanas de años se dividen entonces en tres subunidades de 49 años (“siete semanas”, v. 25); 434 años (“sesenta y dos semanas”, v. 26); y 7 años (“una semana”, v. 27). Los intérpretes difieren sobre si estas subunidades deben verse como una secuencia continua o como si tuvieran intervalos de tiempo entre ellas. Más importante aún, el punto principal de la respuesta de Gabriel es que la petición de Daniel para que Dios se ocupe del pecado y la maldad del pueblo del Señor será respondida afirmativamente, aunque no de inmediato. Los setenta años de los que habló Jeremías y que ahora están llegando a su fin se extenderán a un período más largo de “setenta veces siete” años (cf. Mt. 18:22). Nótese que se deben lograr seis propósitos dentro de las “setenta semanas”. Estos se dividen en tres pares: (1) el primer y segundo propósitos tratan del pecado de la comunidad del antiguo pacto; (2) el tercer y cuarto propósitos tratan de la inauguración del período mesiánico; y (3) el quinto y sexto propósitos expresan que todo se cumplirá. Daniel 9:24
+
+---
+
+### Daniel 9:25
+la salida de la palabra. El término Hb. La palabra traducida “palabra” puede significar tanto “palabra” como “mandato”. Esta ambigüedad ha dado lugar a múltiples interpretaciones para el comienzo de las “setenta semanas”: (1) Algunos intérpretes entienden que se trata del decreto emitido por Artajerjes I en el séptimo año de su reinado (457 a. C.; Esdras 7:12-26). Cuarenta y nueve años después (408 a. C.) (2) Otros comentaristas entienden que las “setenta semanas” comenzaron en el año 587 a. C., el tiempo de la predicción de Jeremías (su “palabra”) de que Jerusalén sería reconstruida (Jer. 31:38; 32:15, 37, 44). Cuarenta y nueve años después sería el año 538 a. C., el año en que Ciro permitió a los judíos cumplir la profecía de Jeremías al regresar a Palestina (Esd. 1:1–4). (3) Desde la antigüedad, muchos intérpretes también han entendido las “setenta semanas” simbólicamente. Los defensores de este punto de vista notan un patrón sabático en los seis propósitos de las setenta semanas (nota 9:24), que culminan en la obra del Mesías descrita en la semana final. a la venida de un ungido, un príncipe. Los defensores de la interpretación (1) en la nota anterior entienden que “ungido” es una referencia a Jesús. Uniendo las “siete semanas” (cuarenta y nueve años) y las “sesenta y dos semanas” (434 años) como una secuencia continua, se obtienen 483 años, desde el 457 a. C. hasta el 27 d. C., o aproximadamente el comienzo del ministerio público de tres años de Cristo. Otros toman los 483 años como comenzando con el “mandamiento” de Artajerjes I en el año vigésimo de su reinado (444 d. C.). AC; Neh. 2:1), en lugar del séptimo año de su reinado (Esdras 7:12–26) en 457 AC. Utilizando un año lunar de 360 días (como en el calendario judío), este enfoque llega a una fecha para la crucifixión en el año 33 d. C. Esta fecha para la crucifixión es posible pero no segura. Los defensores de la interpretación (3) en la nota anterior también creen que Jesús es el “ungido”, aunque la cronología específica en este versículo se entiende simbólicamente. Los defensores de la interpretación (2) en la nota anterior entienden que “ungido” se refiere a Ciro (también llamado el “ungido” del Señor; Is. 45:1). Esta perspectiva separa las “siete semanas” y las “sesenta y dos semanas”. Las “siete semanas” transcurren entre la destrucción de Jerusalén en 586 a. C. y el decreto de Ciro en 538 a. C. Las “sesenta y dos semanas” (434 años) es el tiempo en que la ciudad debe ser reconstruida, en algún momento entre 538 a. C. y 70 d. C. (la destrucción de Jerusalén a manos del general romano Tito). Esta perspectiva requiere un intervalo de tiempo entre los dos períodos de “semanas”.
+
+---
+
+### Daniel 9:26
+Después de las sesenta y dos semanas, ungido Uno será cortado. Muchos intérpretes entienden que esto se refiere a la crucifixión de Cristo. Según la interpretación (2) en la primera nota sobre 9:25, el “ungido” del v. 26 es Cristo, y el “ungido” del v. 25 es Ciro. El pueblo del príncipe. Algunos intérpretes piensan que los asaltantes son los ejércitos de Tito que destruyeron Jerusalén en el año 70 d. C. Algunos partidarios de la teoría de la segunda venida (nota 9:24-27) argumentan que, si bien los asaltantes son los ejércitos de Tito, el “príncipe” mismo es el Anticristo. Esta identificación proporciona una transición a la interpretación de la segunda venida del v. 27. Sin embargo, parece más plausible que las referencias al “ungido” y al “príncipe que viene” en el v. 26 apunten ambas al “príncipe ungido que viene” en el v. 25. En esa teoría, el príncipe es Jesús, y el pueblo que destruyó Jerusalén son los judíos de su época, cuyo rechazo de Cristo condujo a la destrucción de su propio templo (véase Lucas 19:37-46).
+
+---
+
+### Daniel 9:27
+hará un pacto fuerte con Muchos por una semana. Los defensores de la perspectiva de la primera venida (nota 9:24-27) entienden que el “ungido” “hará un pacto fuerte”, es decir, vivirá su ministerio público, expiará el pecado e inaugurará la nueva justicia prometida en el v. 24. En esta perspectiva, el que hará el pacto fuerte no es otro que el Dios identificado en Is. 9:6 como “Dios fuerte” (las palabras hebreas traducidas “fuerte” y “poderoso” están relacionadas). Además, hay superposiciones significativas de vocabulario entre Is. 10:20-23 (otro pasaje mesiánico) y el lenguaje de este versículo. Los defensores de la perspectiva de la segunda venida (nota 9:24-27) postulan un intervalo de tiempo entre los vv. 26 y 27 y entienden que el “príncipe” “hará un pacto fuerte”. El “príncipe” es identificado como el Anticristo, quien establecerá un pacto con el pueblo judío reunido en la tierra de Israel durante un período de “tribulación” (12:1; Mateo 24:21; Apocalipsis 7:14) de siete años (la septuagésima “semana”). El fin del sacrificio. Según los defensores de la teoría de la primera venida (9:24-27) Nota: esto se refiere a la terminación del sistema de sacrificios del Antiguo Testamento, que se produjo con la muerte de Cristo. Según los defensores de la teoría de la segunda venida, esto es una referencia a la prohibición del Anticristo de “sacrificios y ofrendas” (tal vez en referencia a la práctica religiosa en general) por parte del pueblo judío reunido después de tres años y medio (Apocalipsis 11:2; 12:6, 14) del período de tribulación. El que causa desolación. Esto prevé una abominación culminante que resulta en la destrucción del templo en Jerusalén. Según la perspectiva de la primera venida (nota 9:24-27), esto describe la eliminación del Mesías designado por Dios en la cruz, lo que llevó a la destrucción de Jerusalén que ocurrió en el año 70 d. C. Según la perspectiva de la segunda venida, este pasaje describe una catástrofe que sobrevendrá al templo de Jerusalén reconstruido en relación con las actividades de El Anticristo, poco antes de la segunda venida de Cristo. Frases similares a “abominación desoladora” que aparecen en Daniel 8:13; 11:31; 12:11 (véanse las notas), así como en 1 Macabeos 1:54, son referencias claras a las actividades de Antíoco IV. Jesús se refirió a esta “abominación” en su profecía de acontecimientos que todavía estaban por suceder en su propio tiempo (Mateo 24:15; Marcos 13:14).
+
+---
+
+### Daniel 10:1
+El profeta revela una visión final sobre el futuro reinado de Antíoco IV Epífanes, pero mira más allá de su reinado hacia otro que culmina al final de los tiempos. Los tres capítulos forman una sola visión. 10:1 El tercer año de Ciro. 537 a. C. Véase la nota sobre 1:21. Los exiliados repatriados regresaron a la tierra para reconstruir el templo (Esdras 1:1–4; 3:8), pero pronto tendrían que cesar sus esfuerzos temporalmente (Esdras 4:24).
+
+---
+
+### Daniel 10:2
+El duelo. Daniel probablemente se lamenta por el estado de Jerusalén, y se abstiene voluntariamente de alimentos selectos como la carne y el vino para identificarse con las pruebas de sus hermanos y hermanas en Judá (Neh. 1:4; Is. 61:3, 4; 64:8–12; 66:10).
+
+---
+
+### Daniel 10:5
+Un hombre vestido de lino. Los versículos 5 y 6 dan una descripción detallada de un ángel, tal vez el que habló con Gabriel (8:16), o el mismo Gabriel (9:21). Su apariencia es muy similar a la de la gloria del Señor, que refleja como uno de los asistentes divinos (Ezequiel 1:26-28; Apocalipsis 1:12-16). Para otras referencias a ángeles, véase Jueces 13:6; Ezequiel 9:2, 3; 10:2; Lucas 24:4.
+
+---
+
+### Daniel 10:7
+Gran temblor. Véase Isaías 6:5; Lucas 5:8.
+
+---
+
+### Daniel 10:8
+No me quedaron fuerzas. Daniel estaba abrumado incluso por la forma reflejada de la gloria divina. Sin embargo, el ángel lo trató con gentileza, poniéndolo primero sobre manos y rodillas antes de permitirle ponerse de pie, y se dirigió a él como un hombre muy amado por Dios.
+
+---
+
+### Daniel 10:12
+He venido a causa de tus palabras. La visión y revelación que recibe Daniel llega como respuesta directa a sus oraciones.
+
+---
+
+### Daniel 10:13
+El príncipe del reino de Persia Me resistieron. Este “príncipe” es un ser espiritual malvado pero poderoso (cf. Is. 24:21; Lc. 11:14-26) que está influyendo en el gobierno persa. Miguel. Un ser representado en otras partes de las Escrituras como comandante de los santos ángeles (Judas 9; Apocalipsis 12:7; cf. 2 Reyes 6:15-17). Aquí hay un vistazo de las batallas espirituales libradas en los lugares celestiales y que afectan los acontecimientos en la tierra (cf. Efesios 6:12; Apocalipsis 12:7-9). El poder de los ángeles caídos está limitado por Dios, como se deja claro aquí y en otras partes de las Escrituras (Job 1:12; 2:6). El “príncipe del reino de Persia” podía retrasar al ángel que vino a Daniel, pero no podía impedirle que llevara a cabo su misión.
+
+---
+
+### Daniel 10:20
+el príncipe de Persia. Véase la nota sobre el versículo 13. El príncipe de Grecia. Este ángel afecta los asuntos del reino griego (v. 13). Nota). Aunque tanto Persia como Grecia gobernarán al pueblo de Dios después de la vida del profeta, Daniel debe entender que el poder de ellos está limitado por el poder de Dios.
+
+---
+
+### Daniel 10:21
+El libro de la verdad. Una metáfora del conocimiento y control de Dios sobre toda la historia. Ninguno... excepto Miguel. El interés de Miguel por proteger al pueblo de Dios (nota del v. 13; cf. 12:1) corresponde al interés del mensajero angelical, que está directamente interesado en los propósitos de Dios.
+
+---
+
+### Daniel 11:1
+en el primer año de Darío el medo. Dos años antes (nota 10:1), el ángel que habla con Daniel ayudó a Miguel (nota 10:13), tal vez en relación con el decreto persa que permitía a los judíos regresar a su tierra natal. El pueblo de Dios puede estar seguro de que no está solo en su conflicto espiritual.
+
+---
+
+### Daniel 12:4
+La revelación dada a Daniel en 11:2–12:4 consta de tres partes: 11:2–20 describe con detalles precisos la historia del antiguo Cercano Oriente desde el tiempo de Daniel hasta el tiempo de Antíoco IV Epífanes; 11:21–35 describe el gobierno de Antíoco IV; y 11:36– 12:4 aparentemente describe el tiempo del Anticristo. En Isaías 44:6, 7, el Señor afirma Su capacidad de declarar de antemano lo que sucederá en el futuro; aquí ese poder se muestra para animar a Daniel acerca del control soberano del Señor sobre cada giro y vuelta de la historia mundial. 11:2 Tres reyes más: Cambises (529-523 a. C.), Pseudo-Esmerdis (Gaumata), 523-522 a. C. y Darío I (522-486 a. C.) un cuarto. Jerjes I, 485–464 a. C., conocido en el AT como Asuero. Sus riquezas. Véase Ester. 1:4. contra el reino de Grecia. Jerjes emprendió varias campañas contra Grecia a partir del año 480 a. C., pero fue derrotado en la batalla de Salamina. Sellar el libro. Sellar el libro lo preserva inalterado mientras espera su cumplimiento (nota de 8:26). Los sabios saben dónde encontrar esta sabiduría, mientras que los necios corren de un lado a otro buscando respuestas en vano (véase Amós 8:12).
+
+---
+
+### Daniel 11:3
+Se levantará un rey poderoso. Alejandro Magno, 336–323 a. C. Véanse las notas sobre 7:6; 8:5, 8.
+
+---
+
+### Daniel 11:4
+Su reino será quebrantado. Véanse las notas sobre 7:6; 8:8.
+
+---
+
+### Daniel 11:5
+el rey del sur. Ptolomeo I Sóter, 322–285 a. C. Uno de sus príncipes. Seleuco I Nicátor, 312–280 a. C. Seleuco rompió con Ptolomeo, se convirtió en rey de Babilonia y controló territorios desde el río Indo en el este hasta Siria en el oeste.
+
+---
+
+### Daniel 11:6
+Estos versículos contienen predicciones detalladas de las relaciones entre el rey del norte (el reino seléucida) y el rey del sur (el reino ptolemaico). La sección trata de los acontecimientos que involucraron a Laodicea y Berenice (vv. 6-9), la carrera de Antíoco III (vv. 10-19) y el reinado de Seleuco IV (v. 20). 11:6 La hija del rey. Berenice, hija de Ptolomeo II Filadelfo, 285–246 a. C. hacer un acuerdo. Alianza matrimonial (hacia el año 250 a. C.) entre Antíoco II Teos (261–246 a. C.) de Siria y Ptolomeo II de Egipto. Él y su brazo no resistirán. Laodice, la ex esposa de Antíoco II, encabezó una conspiración que resultó en la muerte por envenenamiento de Berenice, Antíoco II y su hijo pequeño.
+
+---
+
+### Daniel 11:7
+Un vástago de sus raíces. Ptolomeo III Evergetes, 246–221 a. C., hermano de Berenice (nota del v. 6). Entra en la fortaleza. Ptolomeo III atacó el reino seléucida y ejecutó a Laodice. (véase nota del versículo 6), y regresó a Egipto con un botín considerable. Daniel 11:7
+
+---
+
+### Daniel 11:9
+este último. Seleuco II Calínico (246–226 AC), hijo de Laodice, dirigió una campaña infructuosa contra el reino ptolemaico en el año 240 AC.
+
+---
+
+### Daniel 11:10
+Sus hijos. Seleuco III Cerauno, 226– 223 a. C.; Antíoco III el Grande, 223-187 a. C. haremos la guerra. Antíoco III comenzó a luchar contra los Ptolomeos en el año 219 a.C. y durante un tiempo obtuvo el control de Palestina y el oeste de Siria. Su fortaleza. Probablemente se refiere a Rafia, una fortaleza ptolemaica en el sur Palestina, donde se libró una importante batalla en el año 217 a. C.
+
+---
+
+### Daniel 11:11
+el rey del sur. Ptolomeo IV Filopator, 221–203 a. C. contra el rey del norte. Antíoco III. Antíoco sufrió grandes pérdidas, más de 14.000 hombres, en la batalla de Rafia en el 217 a. C.
+
+---
+
+### Daniel 11:13
+el rey del norte. En alianza con Filipo V de Macedonia, Antíoco III reunió un ejército aún más grande para invadir el reino ptolemaico. Ptolomeo IV murió en circunstancias misteriosas y fue sucedido por Ptolomeo V Epífanes, 203–181 a. C., su hijo de cuatro años. VOLVER DANIEL 11:13
+
+---
+
+### Daniel 11:15
+Tome una ciudad bien fortificada. La victoria de Antíoco III sobre el general egipcio Scopas en Sidón en 198 a. C. marcó el fin del gobierno ptolemaico en Palestina.
+
+---
+
+### Daniel 11:16
+La tierra gloriosa. Palestina. Véase los versículos 41, 45; 8:9.
+
+---
+
+### Daniel 11:17
+No se mantendrá ni será para él Después de que su padre, Antíoco III, diera a Cleopatra en matrimonio a Ptolomeo V, ella se alineó con la causa egipcia y buscó la ayuda romana contra el intento de su padre de tomar las ciudades costeras de Asia Menor que estaban controladas por Egipto.
+
+---
+
+### Daniel 11:18
+un comandante. El general romano Lucio Cornelio Escipión, quien derrotó a Antíoco III en varias batallas y lo obligó a ceder el Asia Menor al control romano (la Paz de Apamea, 188 A.C.). En esta época nació el segundo hijo de Antíoco III, que se convirtió en Antíoco IV. Epifanes fue llevado como rehén a Roma.
+
+---
+
+### Daniel 11:20
+En su lugar, uno. Seleuco IV Filopator, 187–175 a. C. (el hijo mayor de Antíoco III). Tributo para la gloria del reino. Para un relato del intento de Heliodoro de recaudar estos impuestos para Seleuco, véase 2 Macabeos 3:7–40.
+
+---
+
+### Daniel 11:21
+una persona despreciable. Antíoco IV Epífanes (175-164 a. C.), que no era el sucesor legítimo de su hermano Seleuco IV, ya que éste tenía un hijo. Véanse las notas sobre 8:9-14. Es un personaje particular foco de atención debido a su persecución del pueblo judío.
+
+---
+
+### Daniel 11:22
+el príncipe del pacto. Quizás se trata de una referencia al asesinato en el año 171 a. C. del sumo sacerdote Onías III por parte de partidarios de Antíoco IV con base en Jerusalén (véase 2 Mac. 4:32-43).
+
+---
+
+### Daniel 11:25
+el rey del sur. Ptolomeo VI Filometor, 181–146 a. C., hijo de Ptolomeo V y Cleopatra, y sobrino de Antíoco (nota del v. 17). No podrá resistir. Antíoco IV derrotó a Ptolomeo VI en Pelusio, en la frontera de Egipto (cf. 1 Mac. 1:16-19).
+
+---
+
+### Daniel 11:28
+volverá... su corazón estará dispuesto... Contra la santa alianza. En respuesta a las intrigas que se tramaban en Jerusalén contra sus partidarios, Antíoco IV saqueó el templo cuando regresó de Egipto a Antioquía de Siria (cf. 1 Mac. 1:20-28).
+
+---
+
+### Daniel 11:29
+hacia el sur. Antíoco IV invadió Egipto nuevamente en el año 168 a. C.
+
+---
+
+### Daniel 11:30
+Las naves de Quitim vendrán. Los ejércitos romanos bajo el mando de Cayo Popilio Laenas obligaron a Antíoco IV a retirarse de Egipto. Tomar medidas contra el pacto sagrado. Antíoco IV decidió exterminar la religión judía. Véase la nota sobre 8:11.
+
+---
+
+### Daniel 11:31
+la abominación desoladora. La profanación del templo en diciembre de 168 a. C. por Antíoco IV (cf. 1 Mac. 1:54, 59; 2 Mac. 6:2). Véanse las notas sobre 8:11; 9:27; 12:11.
+
+---
+
+### Daniel 11:32
+El pueblo que conoce a su Dios. Daniel habla de aquellos que se opusieron a los helenistas y estaban dispuestos a morir por su fe (1 Macabeos 1:60-63).
+
+---
+
+### Daniel 11:34
+recibirán un poco de ayuda. Posiblemente se trate de una referencia a Matatías, un sacerdote anciano, y a sus cinco hijos (Juan, Simón, Judas, Eleazar y Jonatán) que libraron una guerra de guerrillas contra la helenización forzada (imposición de las costumbres griegas) de los judíos. Matatías murió en el año 166 a. C. Sus hijos, conocidos como los Macabeos, continuaron la lucha y lograron la victoria. Bajo Judas Macabeo, en diciembre de 164 a. C., cuando se purificó el templo y se restauraron los sacrificios diarios (1 Macabeo 4:36-39).
+
+---
+
+### Daniel 11:35
+el fin... el tiempo señalado. Ver nota sobre 8:17.
+
+---
+
+### Daniel 12:3
+Ciertos detalles de 11:36– 12:3 no pueden armonizarse con los eventos que rodean la muerte de Antíoco IV. Por esta razón, algunos intérpretes entienden que estos versículos describen al Anticristo, quien, al igual que Antíoco IV, perseguirá al pueblo de Dios justo antes de la segunda venida de Cristo (cf. 12:1–3). Estos versículos describen el carácter del Anticristo, sus actividades y el destino del pueblo de Dios. Esta interpretación requiere un intervalo de tiempo entre los eventos descritos en 11:21–35 y los de 11:36–12:3. En consecuencia, otros intérpretes han entendido los versículos 36-39 como un resumen de las políticas religiosas de Antíoco; los versículos 40-45 como una descripción de cómo su ambición condujo a su derrota; y 12:1-3 como una anticipación de su derrota. La invasión anticipada de la Tierra Santa puede presentarse como un paralelo a la invasión anterior de Nabucodonosor, utilizando los nombres de las naciones de ese tiempo, perdonando a los antiguos enemigos de Israel (v. 41), y culminando en la derrota anticipada del mismo Egipto (vv. 42, 43; cf. Ezequiel 29). En su momento de mayor orgullo, Antíoco fue destruido en el Monte Sión en el corazón de la Tierra Santa (vv. 44, 45). La derrota de Antíoco en 12:1-3 se describe en términos del fin absoluto de la historia. Debido a las dificultades para interpretar 11:40–12:3, es difícil discernir cuán literales o metafóricos son, y su interpretación debe ser especulativa. La interpretación de que se refiere al futuro Anticristo se seguirá en las notas restantes. 11:36 hasta que se cumpla la indignación. Tal como sucedió con Antíoco IV (8:17) nota; 11:35), el tiempo de persecución está sujeto al control de Dios.
+
+---
+
+### Daniel 11:40
+En el tiempo del fin. Aquí “fin” Tiene un sentido escatológico y se refiere al fin de esta era presente (8:17). nota)
+
+---
+
+### Daniel 11:41
+tierra gloriosa. Palestina (cf. vv. 16, 45; 8:9).
+
+---
+
+### Daniel 11:45
+Su fin. Véase Joel 3; Zacarías 14:1–4; 2 Tes. 2:8; Ap. 16:13–16; 19:11–21.
+
+---
+
+### Daniel 12:1
+Miguel. Véase la nota sobre 10:13. El pueblo de Dios no quedará solo en su hora de mayor necesidad. Un tiempo de angustia. Este tiempo de angustia sin precedentes se identifica a veces con la “gran tribulación” predicha por Jesús (Mateo 24:21; Marcos 13:19). Tu pueblo será librado. Esta liberación no es necesariamente del martirio (v. 2), sino del poder de Satanás, entendido como sus intentos de destruir la fe de la gente durante el tiempo de angustia.
+
+---
+
+### Daniel 12:2
+vida eterna... y vida eterna... Desprecio. Este versículo es una clara predicción de la resurrección corporal de los piadosos y los impíos para el juicio final (Mateo 25:46; Juan 5:28, 29). Esto es lo que hace que valga la pena perseverar en tiempos de gran persecución, incluso si a los fieles les cuesta un doloroso martirio (véase 11:33).
+
+---
+
+### Daniel 12:6
+¿Hasta cuándo... hasta cuándo...? Resultado. Éstas son las preguntas clave que se hacen quienes sufren persecución extrema, y lo que sigue responde a estas preguntas. Un tiempo, tiempos y la mitad de un tiempo. Véase la nota sobre 7:25. El período de persecución está limitado por Dios. El desmoronamiento del poder del pueblo santo. El progreso de la obra de Dios siempre se produce a través de la debilidad, no de la fuerza.
+
+---
+
+### Daniel 12:10
+Sean refinados... actúen malvadamente. En respuesta a la pregunta del versículo 8, el ángel declara que el resultado de estas cosas será la perseverancia de los santos a través de los fuegos refinadores de la persecución, mientras que los malvados muestran claramente su verdadera naturaleza. Estos atributos ya se han visto en las experiencias de Daniel y sus amigos.
+
+---
+
+### Daniel 12:11
+la abominación desoladora es establecerse. Véase la tercera nota sobre 9:27. La actividad similar de Antíoco IV prefigura esta actividad del Anticristo (8:13). 1.290 días. El significado de estos períodos de tiempo es oscuro. Tres años y medio son 1.260 días de un año de 360 días, o 1.278 días de un año de 365 días, y por lo tanto, si “Un tiempo, tiempos y la mitad de un tiempo” representa tres años y medio, períodos que son aproximadamente los mismos. La identificación como tres tiempos y medio se centra en el hecho de que se trata de un período de juicio limitado en lugar de siete tiempos (como en 4:16). Llamarlo 1.290 días le recuerda al lector que se trata de un período de tiempo preciso que Dios ha planeado hasta el día de hoy.
+
+---
+
+### Daniel 12:12
+días. Justo cuando los fieles sienten que han llegado al límite absoluto de su resistencia y que no pueden aguantar más, se les pide que permanezcan fieles unos días más. La oscuridad de este número subraya el hecho de que las cuestiones relativas al momento del fin son un gran misterio para todos los seres humanos, incluso para aquellos con la sabiduría y la perspicacia de Daniel (véase v. 10), pero están bajo el control de Dios.
+
+---

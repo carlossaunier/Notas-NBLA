@@ -1,0 +1,1286 @@
+# Notas de Estudio - Romanos
+
+### Romanos 1:1
+Pablo. Las cartas antiguas comenzaban con la fórmula general: “A a B le envía saludos”. Al usar su nombre romano, Pablo le da significado cristiano a esta fórmula tanto en su autodescripción (vv. 1–6) como en el estilo de su saludo (vv. 7, 8). sirviente. Alguien que está totalmente a disposición de un amo (nota de texto). Apóstol. Mensajero oficial del evangelio. Véase la nota sobre 2 Corintios 1:1. Evangelio de Dios. El evangelio es el mensaje de las buenas nuevas de salvación en Jesús; es el mensaje “de” Dios, lo que significa que Dios es tanto la fuente como el tema del evangelio. Aquí y en otros pasajes, el trinitarismo de Pablo sale a la superficie (1:3, 4; 5:1–5; 8:3, 4, 9–11, 16, 17; 14:17, 18; 15:16, 30). Los siguientes versículos explican la comprensión que tenía Pablo del evangelio.
+
+---
+
+### Romanos 1:2
+que había prometido de antemano. El evangelio fue anunciado en forma de promesa en la predicación de los profetas registrada en la Biblia, en la que se basa la presentación apostólica del evangelio (3:21; 16:25–27).
+
+---
+
+### Romanos 1:3
+Una descripción de las dos etapas (humillación y exaltación) del ministerio del Salvador, en lugar de sus dos naturalezas (humanidad y deidad). Aunque Él es el Hijo de Dios, es “descendiente de David” para compartir nuestra debilidad, pero fue transformado por el “Espíritu de santidad” en la resurrección, y fue llevado a una nueva época de su existencia humana personal (1 Cor. 15:45; 2 Cor. 13:4).
+
+---
+
+### Romanos 1:5
+Pablo ve a Cristo como el autor de su salvación y también de su llamado a ser apóstol de los gentiles (11:13, 14; Hechos 9:15; Efesios 3:8).
+
+---
+
+### Romanos 1:7
+Roma. Capital del imperio. No tenemos conocimiento seguro de la fundación de la iglesia romana, aunque los visitantes de Los romanos estaban entre aquellos que oyeron el evangelio predicado el día de Pentecostés (Hechos 2:10). Amados por Dios y llamados a ser santos. Los términos utilizados en el saludo de los cristianos profesantes resultarán ser notas clave de la carta misma, ya que se explican en detalle el llamado, el amor, la gracia y la paz de Dios.
+
+---
+
+### Romanos 1:8
+Doy gracias a mi Dios. La gratitud por la obra de gracia de Dios en otros fue una característica constante de la vida de Pablo (1 Cor. 1:4; Fil. 1:3; Col. 1:3; 1 Tes. 1:2; 2 Tes. 1:3; 2 Tim. 1:3; Flm. 4). En todo el mundo se había difundido la noticia de la presencia de cristianos en su ciudad capital por todo el imperio.
+
+---
+
+### Romanos 1:9
+Les menciono. La oración constante de Pablo es una expresión de su servicio de todo corazón y su deseo de ser útil espiritualmente. Ora en total sumisión a la voluntad de Dios (vv. 9–12; cf. Ef. 1:15; Fil. 1:9; Col. 1:9; 1 Tes. 1:3; 2 Tes. 1:11; 2 Tim. 1:3).
+
+---
+
+### Romanos 1:11
+don espiritual. Aquí el término no se usa en la forma en que Pablo lo usa en 1 Cor. 12:1; Pablo tiene en mente más bien el beneficio que fluye del ejercicio de los dones funcionales en el ministerio hacia los demás.
+
+---
+
+### Romanos 1:12
+El ministerio cristiano tiene como finalidad el fortalecimiento mutuo de todo el cuerpo de Cristo (Efesios 4:15, 16).
+
+---
+
+### Romanos 1:13
+A menudo se hace referencia a la intención de Dios. No existe registro de estas numerosas ocasiones, pero véase Hechos 19:21; 23:11 para ver la sensación de Pablo de ser impulsado por Dios hacia Roma. lo impidieron. Véase Hechos 16:6, 7 para las interrupciones en los planes de Pablo causadas ya sea por el consejo interno del Espíritu Santo o por declaraciones proféticas. entre el resto de los gentiles. Esto sugiere que Pablo pensaba en los romanos Iglesia como predominantemente aunque no exclusivamente gentil (cf. 11:13).
+
+---
+
+### Romanos 1:14
+bajo obligación. La planificación de Pablo (v. 13) y su expectativa (v. 14) están arraigadas en un sentido de obligación divina (1 Cor. 9:16, 17) Se le ha dado el evangelio para todos los gentiles (11:13, 14): no sólo para los que hablaban griego (“griegos”) y se consideraban cultos, sino también para los que no hablaban griego (“bárbaros”) a quienes los griegos y los romanos despreciaban por su habla primitiva. Cf. Ef. 3:1–8.
+
+---
+
+### Romanos 1:16
+No me avergüenzo del evangelio. Aunque el evangelio es una locura para los cultos y la cruz parece débil en contraste con el poder de Roma, Pablo ve su mensaje como sabiduría y poder divinos (1 (Co 1:22–25, 30). poder del mensaje del evangelio por medio del Espíritu Santo es esencial para la vida, ya que la humanidad está en esclavitud al pecado y a Satanás, es culpable ante la justicia de Dios (1:18–3:20) y es totalmente incapaz de hacer nada espiritualmente debido al pecado (5:6; 8:5–9; cf. Ef. 2:1–3). no es merecida, pero no se disfruta universalmente. Se recibe únicamente por medio de la fe en Cristo. Al judío primeramente. Esto fue cierto en términos de la historia de la redención (2:9, 10; Juan 4:22; cf. Marcos 7:24-30), pero también fue el modelo de la labor misionera de Pablo. Por lo tanto, al visitar las ciudades del mundo romano, comenzó por exponer las Escrituras en las sinagogas donde fuera posible, y predicó a Cristo como el cumplimiento de las promesas del Antiguo Testamento (Hechos 9:20; 13:5, 14; 14:1; 17:1, 17; 18:4, 19, 26; 19:8). A lo largo de Romanos, Pablo es cuidadoso en defender la validez de la Privilegios dados por Dios a su propio pueblo (3:1, 2; 9:4, 5; 11:24).
+
+---
+
+### Romanos 1:17
+justicia de Dios. Esta es una frase clave en Romanos (3:21; 5:19; 10:3), explicada regularmente en la carta como “justicia… por (o de) la fe” (3:22; cf. 9:30; 10:6). Se refiere a la justicia de Cristo que se le imputa al que cree. Esta imputación de justicia a los pecadores que creen es totalmente coherente con la justicia personal de Dios (cf. 3:25, 26). Como juez justo y recto (2:5-16), Dios, basándose únicamente en el mérito de la obediencia y muerte de su Hijo, justifica o declara justos a los pecadores mediante la verdadera fe en Cristo y no por algo que hayan hecho, estén haciendo o vayan a hacer (3:21-26; 5:10). La lectura que hizo Lutero de este versículo tuvo un impacto decisivo en su comprensión de la justificación. De fe para fe. La justicia de la justificación se recibe exclusivamente por la fe, no por las obras, por lo que llega a todos los que tienen fe, sea cual sea su raza. como está escrito. Hab. 2:4 proporciona la base bíblica y el resumen de lo que sigue, indicando que el camino de la justificación solo por la fe ya era conocido en el Antiguo Testamento. Viviremos. Toda la vida cristiana, desde el principio hasta el fin, se vive en la confianza. y la dependencia del Dios que justifica misericordiosamente al pecador.
+
+---
+
+### Romanos 1:18
+ira. La justa retribución del Juez divino y la repulsión personal evocada por el mal moral. El juicio de Dios no se limita al futuro; su antagonismo hacia el pecado ya se manifiesta en el mundo y sus efectos son visibles incluso ahora. La revelación de la misericordia de Dios (v. 17) sólo es comprensible en el contexto de la revelación de la justa ira de Dios. impiedad e injusticia. El orden puede ser significativo, ya que la decadencia moral sigue a la rebelión teológica. O Pablo puede estar usando las dos palabras juntas para expresar una idea: impiedad malvada. la verdad pero no se la encuentre, sino que, al verse confrontada con la verdad (que se “percibe claramente”, v. 20), la humanidad caída busca obstaculizar y obstruir su influencia, y por lo tanto “está sin “excusa” (v. 20). La “excusa” en cuestión es una apelación a la ignorancia.
+
+---
+
+### Romanos 1:19
+Lo que se puede conocer acerca de Dios. Pablo enfatiza la realidad y universalidad de la revelación divina, que es perpetua (“desde la creación”, v. 20) y perspicua (“claramente percibida”, v. 20). La invisibilidad, la eternidad y el poder divinos se expresan en y a través del orden creado (véase la nota teológica “Revelación divina” en la p. 850). El Dios invisible se revela a través del medio visible de la creación y la providencia. Esta revelación es manifiesta; no está oscurecida sino que se ve claramente.
+
+---
+
+### Romanos 1:21
+Conocieron a Dios. Aquí Pablo enfatiza que la humanidad no sólo tiene la oportunidad de conocer a Dios a través de la revelación general, sino que la revelación produce conocimiento real. La impiedad de los seres humanos es su negativa a reconocer, aprobar o deleitarse en lo que cognitivamente saben que es verdad. Aunque en un nivel profundo no pueden evitar la conciencia de su Creador personal, las personas se niegan a honrarlo como Dios o darle gracias. La consecuencia de rechazar a Dios es que sus mentes y corazones se han oscurecido. La negativa a honrar a Dios conduce a la frustración de todas las actividades intelectuales. ROMANOS 1:21
+
+---
+
+### Romanos 1:22
+Se hicieron pasar por sabios y se hicieron Los necios... cambiaron la gloria del Dios inmortal. La arrogancia intelectual ante Dios muestra un sentido inverso de los valores; la adoración a Dios se cambia por la devoción a ídolos hechos por el hombre y que reflejan al hombre. El instinto indeleble de adoración dado por Dios se pervierte al estar centrado en el objeto equivocado (v. 25).
+
+---
+
+### Romanos 1:24
+Dios los entregó. El juicio implica la eliminación de las restricciones divinas tanto sobre las acciones pecaminosas como sobre sus consecuencias (vv. 26, 28).
+
+---
+
+### Romanos 1:25
+adoraron y sirvieron a la criatura En lugar del Creador, el intercambio de la verdad de Dios por la mentira que desdibuja la distinción absoluta entre el Creador, quien es el único que merece adoración, y cada producto de su poder creativo y sabiduría, ya sean criaturas individuales o el universo en su conjunto, es la fuente de todo pensamiento engañoso y práctica depravada que oscurece y desafía las distinciones por las cuales Él ha ordenado el orden de sus criaturas. Naturalezas y relaciones (vv. 26, 27).
+
+---
+
+### Romanos 1:26
+Dios juzga la perversión del instinto divinamente arraigado de adoración por parte del hombre caído, al entregar a los seres humanos pecadores a la perversión de otros instintos que les impiden funcionar correctamente. La Escritura considera todas las acciones homosexuales desde esta perspectiva (Levítico 18:22; 21:13). La consecuencia es la degradación del cuerpo (v. 24), el dominio de la lujuria, la desintegración de lo que es verdaderamente “natural” (es decir, conforme a la naturaleza humana creada por Dios; v. 26), y la esclavitud a pasiones incontrolables (v. 27).
+
+---
+
+### Romanos 1:28
+no tuvo a bien... Dios los entregó. El pecado trae consigo un desprecio por Dios y por lo que le agrada. Pone a uno en peligro de ser abandonado por Dios a una mente degradada y a un espíritu de libertinaje (vv. 29– 31) En griego, “no tuvieron a bien” y “degradaron” tienen la misma raíz: no “Aprobaban” reconocer a Dios, por lo que los condenó a una mentalidad que Él no “aprobaba”.
+
+---
+
+### Romanos 1:32
+Conocer el justo decreto de Dios. Pablo ve como evidencia de la culpa y la esclavitud del pecado el hecho de que el conocimiento del juicio divino ya no actúa como una restricción, sino que se convierte en un estímulo para una mayor rebelión en la forma de alentar a otros a pecar. Este texto confirma que la revelación de Dios en la naturaleza comunica Su carácter moral y un sentido del deber moral en la humanidad.
+
+---
+
+### Romanos 2:1
+A continuación, Pablo recurre a un representante imaginario de un grupo real e identificable de personas. Aunque menciona específicamente a los judíos solo en el versículo 17, probablemente ya los tenía en mente. Están de acuerdo con su declaración sobre la ira de Dios contra los impíos e injustos, pero suponen que se encuentran fuera de ese círculo que merece la ira (de ahí su severa advertencia en el v. 5). Pero la naturaleza de esta presunción, si no su forma específica, no se limita a los judíos, sino que se aplica al pueblo de Dios en todas las épocas. En este contexto, Pablo expone los principios del juicio divino que todos debemos afrontar. Este juicio se basa en la verdad (v. 2) y se caracteriza por la justicia (v. 5). Es conforme a las obras (v. 6), imparcial por naturaleza (v. 11) y se ejecuta por medio de Cristo (v. 16). Semejante juicio traerá una ruina agonizante a todos los pecadores (vv. 8, 9). 2:1 No hay excusa. Pablo desenmascara a quienes están de acuerdo con su exposición de la ira divina sobre el pecado (1:18–32) pero suponen que son inmunes a ella. Practican las mismas cosas. Por lo tanto, su juicio sobre los demás es en realidad una autocondenación (v. 3).
+
+---
+
+### Romanos 2:2
+Es correcto. Se relaciona con 1:18. El juicio justo de Dios se basa en la realidad de la respuesta o falta de respuesta del individuo a Él, no en otras consideraciones (como un simple conocimiento de la ley de Dios o un acuerdo verbal con sus normas, vv. 17–24).
+
+---
+
+### Romanos 2:4
+Presumen. Se niegan a reconocer que la bondad de Dios tiene como propósito producir dolor por el pecado y un alejamiento del mismo. Desprecian este propósito de la generosidad divina y, por lo tanto, muestran desdén por Dios mismo. Suponen que Su paciencia condona implícitamente su persistencia en la desobediencia. Véase la nota teológica “La bondad de Dios” en la pág. 991.
+
+---
+
+### Romanos 2:5
+atesorando ira. Presunción religiosa La ira proviene de un corazón duro, ya que la resistencia continua a los propósitos de Dios al mostrar su gracia es un rechazo de la voluntad de Dios y aumenta la culpabilidad al tiempo que se protesta por la inocencia. Así, por ejemplo, los pueblos que presenciaron los milagros de gracia de Jesús pero permanecieron incrédulos aumentaron su culpabilidad (Mateo 11:20-24). almacenado, apuntando hacia un castigo proporcional en el infierno.
+
+---
+
+### Romanos 2
+El fundamento del juicio será lo que las personas hayan sido o hecho (v. 6). Pablo no está negando aquí lo que enfatiza en otras partes: que la salvación es un don, no una recompensa (5:15, 17; 6:23). El juicio divino se basa en cada aspecto de la relación de una persona con Dios. Sólo aquellos que reciben la gracia buscan de hecho “la gloria y la honra y la inmortalidad” (v. 7). Otros son egoístas (v. 8), no honran a Dios. Pablo enseña que, si bien la salvación es por gracia, el juicio es según las obras (2 Cor. 5:10; Ap. 20:12-13). 15). Aparte de las obras obedientes de Cristo, imputadas a los creyentes por gracia mediante la fe, sólo hay un veredicto posible para “el judío primeramente y también el griego” (v. 9), y ese veredicto de culpabilidad garantiza el castigo de “ira y furor”. ... tribulación y angustia.” Los judíos estaban dispuestos a apelar a la ley de Moisés, que ellos tenían y los gentiles no. La implicación era que en este sentido Dios sí muestra “parcialidad” (v. 11). El papel de la ley es un tema principal en Romanos (3:27–31; 4:13–15; 5:13–15; 6:14, 15; 7:1–25; 13:8–10). 10) Aquí, en su primera discusión sobre el tema, Pablo muestra que lo que agrada a Dios no es el conocimiento de la ley sino la obediencia a la voluntad de Dios revelada en ella. Por lo tanto, “Dios no hace acepción de personas” (v. 11). 2:12 Todos los que han pecado. Esta categoría incluye a todos, como se explica claramente en 3:19, 20, 23. Ley. La ley de Moisés, resumida en los Diez Mandamientos (Éxodo 20:1-17; Deuteronomio 5:1-22). La ley mosaica ya revela la condenación de Dios al pecado, pero la causa del pecado se encuentra en nuestros corazones, es decir, profundamente arraigada en nuestra naturaleza, y no en La ley (7:13). La “obra de la ley” (v. 15) se refiere a los mandamientos morales de Dios accesibles a la conciencia de cada persona. El conocimiento de la “obra de la ley” reside en el corazón, porque la humanidad fue creada a imagen de Dios (Gén. 1:26, 27). Puesto que Dios juzga a las personas de acuerdo con normas que ellas conocen, una defensa basada en la ignorancia de la ley mosaica es irrelevante e ilegítima. No es el grado de revelación recibida, sino la respuesta a la revelación misma, como sea que se haya recibido, lo que resultará decisivo en el día en que Dios juzgará (v. 16). Pablo ahora se dirige directamente al reclamo judío de privilegio especial, tratando con más detalle la posesión de la ley (vv. 17-24) y la circuncisión (vv. 25-29). En relación con la ley, insiste en la afirmación del v. 1 de que los judíos eran culpables de los pecados por los cuales condenaban a otros. En relación con la circuncisión, argumenta que la señal sin la realidad que significa (la limpieza del corazón) carece de significado espiritual. 2:17–20 Pablo enumera los privilegios de los cuales se jactaban los judíos. Pablo está de acuerdo en que la recepción de la Palabra de Dios por parte de los judíos era una expresión de Su gracia especial (3:1, 2; 9:4, 5). Pero cometieron un error al pensar que tales bendiciones los hacían superiores a los judíos. Otros.
+
+---
+
+### Romanos 2:11
+No hay acepción de personas. Ni el juicio divino de condenación ni la posición correcta ante Dios se basan en el origen étnico ni en ninguna distinción natural o autogenerada dentro de la humanidad (9:6–13; Gálatas 6:15). La verdad de que Dios no muestra acepción de personas fue revelada en el Antiguo Testamento (Deuteronomio 10:17) y llegó a expresarse con mayor claridad en el Nuevo cuando el evangelio fue transmitido a los gentiles (Hechos 10:34, 35).
+
+---
+
+### Romanos 2:14
+Por naturaleza, hacemos lo que la ley exige. Nadie puede ser justificado sobre la base de la justicia personal, pero la presencia universal de normas morales en las sociedades humanas, y el sentido común de obligación hacia dichas normas, indican la constitución moral universal de la humanidad y el sentido de responsabilidad hacia Dios, un legado de nuestra creación a imagen de Dios (Gén. 1:26, 27; 9:6). Esto se evidencia por el hecho de que “su conciencia también da testimonio” (v. 15). Así, Pablo reprendió a los cristianos corintios por transgredir límites divinos que incluso los paganos observaban (1 Cor. 5:1).
+
+---
+
+### Romanos 2:16
+Mi evangelio. El evangelio que predica Pablo. En este evangelio, la mala noticia del juicio venidero precede a la buena noticia de la gracia. Por Cristo Jesús. Todo juicio ha sido puesto en sus manos (Mt. 7:21-23; 25:31- 33; Jn. 5:22; 2 Co. 5:10). Tal juicio será infalible, penetrando hasta “los pensamientos y las intenciones del corazón”; nada se le ocultará al Juez (Heb. 4:12, 13). Nadie dirá que es injusto que el ser humano sea juzgado por lo divino, ya que el agente del juicio será el Cristo encarnado, Él mismo un hombre (cf. Hch. 17:31).
+
+---
+
+### Romanos 2:21
+Las responsabilidades que acompañan al privilegio no se han cumplido. Pablo especifica los mandamientos contra el adulterio, el sacrilegio y el robo (Éxodo 20:4, 5, 14, 15).
+
+---
+
+### Romanos 2:25
+La circuncisión... de valor. El argumento de Pablo en el capítulo 2 llega ahora a su clímax. La condenación resulta de no obedecer a la revelación de cualquier tipo. Los judíos han transgredido la ley mosaica en particular, vaciando la circuncisión de su verdadero significado. Pablo reconoce el privilegio del judaísmo (9:4, 5) y de la circuncisión en particular (3:1, 2; 4:11). Pero la circuncisión física es una señal de santificación y renovación de vida (v. 25; Deut. 30:6). La realidad, no la señal, es lo vital y se puede poseer sin importar la etnia judía de uno (vv. 26, 27).
+
+---
+
+### Romanos 2:29
+Un judío es uno. La obra del Espíritu, que resulta en una vida centrada en Dios, hace que uno sea miembro del pueblo del pacto de Dios en el sentido más pleno y apropiado de la palabra. La “circuncisión” (v. 28) y el “código escrito” (v. 27) son incapaces de hacer esto. Como Pablo demostrará, su conclusión puede sorprender a los judíos a quienes se dirige, pero está arraigada en la enseñanza del AT mismo (Jer. 9:25, 26; Deut. 10:16; 30:6; cf. Rom. 1:13). 9:6)
+
+---
+
+### Romanos 3:1
+La declaración de Pablo de que no hay favoritismo para con Dios (2:11), y sus argumentos acerca de la posesión de la ley (17–24) y la circuncisión (25–29), no significan que no haya “ventaja” en ser judío, sino sólo que la desobediencia anula esa ventaja.
+
+---
+
+### Romanos 3:2
+las palabras de Dios. La frase se refiere al Antiguo Testamento y revela la convicción apostólica, aprendida del mismo Jesús, de que la inspiración de esas Escrituras se extiende a sus palabras (Mt. 4:4; Jn. 10:35).
+
+---
+
+### Romanos 3:3
+La respuesta de incredulidad no anula la fidelidad de Dios a las promesas de su Palabra. Él las cumple (9:6, 7; 2 Tim. 2:13), como lo subraya el Antiguo Testamento (Sal. 51:4). Pablo aborda más adelante el problema. De la incredulidad de los judíos en el evangelio (cap. 9-11).
+
+---
+
+### Romanos 3:5
+Aquí se presentan dos preguntas relacionadas. La primera pregunta expresa una objeción. Si la injusticia de las personas es una ocasión para que actúe la justicia de Dios, ¿no hace que sea injusto que Dios ejecute Su ira sobre la injusticia? La respuesta de Pablo es breve. Es una “dado” que Dios va a juzgar al mundo y que su juicio será justo. En la segunda pregunta, Pablo reduce la objeción a una conclusión absurda. Si Dios de algún modo acepta la injusticia que es ocasión para Su misericordia, ¿no debería aceptar aún más actos de injusticia de nuestra parte? Esta conclusión es absurda (6:1, 2, 15). Los buenos fines de Dios no justifican los malos medios de la humanidad (cf. Gn. 50:20). 3:5 Hablo como un hombre. Aunque sólo se expresa como una posibilidad en una discusión, la sugerencia de que Dios podría ser injusto refleja una mentalidad pecaminosa y exige una corrección inmediata.
+
+---
+
+### Romanos 3:6
+La justicia de Dios se manifestará en el juicio final. Obviamente, los pecadores no podrán excusarse diciendo que sus transgresiones hacen necesaria la manifestación de la justicia de Dios en el juicio, algo bueno. La justificación de los pecadores por parte de Dios no anula la verdad elemental de que Él juzgará al mundo con justicia, y no justifica a Su pueblo simplemente al pasar por alto nuestros pecados. Se requiere expiación, y esta expiación perfecta fue realizada por Cristo Jesús por Su pueblo (vv. 21–26).
+
+---
+
+### Romanos 3:8
+nos acusan calumniosamente. Por más tonta que parezca la conclusión falsa, parece que a Pablo se le acusó de enseñarla. En 5:20–6:1 se analiza un tema similar, pero no idéntico.
+
+---
+
+### Romanos 3:9
+¿Estamos en mejor situación que los judíos? A pesar del privilegio de recibir los oráculos de Dios, los judíos se han unido a los gentiles en la rebelión contra Dios y en la exposición a Su condenación (2:9; cf. 3:22, 23; Efe. 2:1–3).
+
+---
+
+### Romanos 3
+tal como está escrito. Esta es la redacción común en el NT cuando se apela a la autoridad de las Escrituras (1:17; 3:3). Aquí Pablo recopila una serie de pasajes del AT (Salmos 14:1–3; 5:9; 36:1; 140:3; 10:7; Proverbios 1:13). 1:16; Is. 59:7, 8) que, en conjunto, resaltan la pecaminosidad humana universal y la depravación y condenación de toda la humanidad.
+
+---
+
+### Romanos 3:18
+No hay temor de Dios. En el Antiguo Testamento, la esencia de una actitud apropiada hacia Dios es el “temor”, o reverencia devota, cuya ausencia es El ateísmo práctico.
+
+---
+
+### Romanos 3:19
+la ley. Aquí “ley” es una referencia a la Las Escrituras del Antiguo Testamento en general, ya que las citas de Pablo provienen de Salmos, Proverbios y Isaías (cf. 1 Cor. 14:21, Jn 10:34). dice. Otra indicación de que Pablo ve la Escritura como la voz viva de Dios. bajo la ley. Como en 2:12, la referencia es a aquellos que poseen la ley del AT. revelación, es decir, los judíos en particular. Como los gentiles están condenados por la “la obra de la ley escrita en sus corazones” (2:15) a través de la revelación general (1:21, 32), por lo que la posesión por parte de los judíos de la ley impartida a través de Moisés los convierte en responsables también, sin excusa ni defensa por su transgresión de ella. Toda boca... cerrada... hecha responsable. Ningún pecador, ya sea judío o Gentil, tiene motivos para apelar; nadie puede afirmar estar libre de culpa ante Dios. Todos están perdidos.
+
+---
+
+### Romanos 3:20
+Por medio de la ley viene el conocimiento de pecado. Véase la nota teológica “El triple uso de la ley” en la pág. 273. Mientras que la Los judíos apelan a su posesión de la ley como prueba de su posición privilegiada. delante de Dios, Pablo ha demostrado ahora que el pecado de cualquier judío queda al descubierto y condenado, no escondido y tolerado, por la ley (nótese la autodescripción de Pablo en 7:7–11). En el juicio final, todo argumento con un Dios perfectamente justo y omnisciente El juez será inútil.
+
+---
+
+### Romanos 3:21
+Habiendo mostrado la necesidad tanto de los judíos como de los judíos, y gentil por la justicia de Dios revelada en el evangelio (1:16 ), Pablo ahora explica cómo se proporciona en Cristo (vv. 21–26), y destaca dos de las implicaciones de esta disposición (vv. 27–31). 3:21 Pero ahora, como la ley de Moisés, considerada como exigencia, no puede salvar, la ley de Dios... La justicia que trae salvación viene “aparte de la ley”. Sin embargo, el evangelio es No es contrario a la ley de Moisés (1:2). El evangelio ya fue proclamado en tanto “la ley como los profetas” (1:1, 2; 4:1–25; 16:25–27) Pero “ahora ” (el tiempo lleno de significado redentor debido a la venida de Cristo, v. 26) La venida de Dios La justicia llega a su realización histórica a través de Cristo y su obra. Aparte de la ley. La justicia ante Dios no se logra por nuestros actos de obediencia a la ley. Sin embargo, Pablo insiste en que el evangelio no es contrario a la ley. la ley, sino que la sostiene mediante la obediencia a Cristo (v. 31) y la cumple mediante la renovación de los creyentes por el Espíritu (6:15; 8:3, 4; 13:8, 10).
+
+---
+
+### Romanos 3:22
+por la fe en Jesucristo para todos. Quienes creen. La justicia de Dios debe recibirse ahora que “se ha manifestado” (v. 21). Creer, para Pablo, implica conocer el contenido del evangelio, aceptar mentalmente su testimonio acerca de Cristo (10:14) y confiar y depender de Él como Salvador y Señor, lo cual se manifiesta en la obediencia (1:5). La justicia de Dios es exclusiva para aquellos que tienen fe e incluye a todos los que tienen fe (“no hay distinción, por cuanto todos pecaron”), sean judíos o gentiles (3:22, 23).
+
+---
+
+### Romanos 3:23
+No alcanzamos la gloria de Dios. Véase la nota teológica “La depravación humana” en la pág. 889. Una descripción conmovedora de las consecuencias del pecado. Creada a la imagen del Dios glorioso (Gén. 1:26, 27), la humanidad ha cambiado la gloria de Dios por la idolatría (1:23) y ha distorsionado la imagen divina (nota 1:25). Ahora las personas son moral y espiritualmente feas y depravadas. La gracia renueva y restaura la gloria perdida de la humanidad en los creyentes (5:2; 8:18; 1 Cor. 15:42–49; 2 Cor. 3:18; Ef. 4:24; Fil. 3:20, 21; Col. 3:10).
+
+---
+
+### Romanos 3:24
+justificado. En las Escrituras, la justificación es lo opuesto a la condenación (p. ej., Prov. 17:15). Es la declaración del pecador creyente de ser justo, es decir, recto, y se produce en virtud de la justicia imputada de Cristo, el “don de la justicia”, como lo llama 5:17 (cf. Filipenses 3:9). La justicia de Cristo ahora se considera legalmente como posesión del pecador. La justificación es definitiva e irreversible (8:1, 33, 34). Está basada en la obediencia de Cristo durante toda su vida, en la que cumplió los preceptos de la ley de Dios por nosotros, y en su muerte en la cruz, donde llevó la pena del juicio de Dios contra nosotros. Los creyentes están unidos solo por la fe a Cristo en su resurrección, que reivindicó su propia obediencia impecable a la ley de Dios (1 Timoteo 3:16): “resucitó para nuestra justificación” (4:25). Por lo tanto, los creyentes ahora comparten el mismo estatus de justos que el mismo Cristo resucitado, con quien están unidos ahora y para siempre (2 Cor. 5:21). Por su gracia, como un don. La repetición que hace Pablo de la misma idea con diferentes palabras subraya la iniciativa y la misericordia divinas al conceder gratuitamente la salvación. Redención. Libertad obtenida mediante el pago de un precio; en este caso, específicamente, liberación de la condición anterior de esclavitud en la culpa del pecado (Efesios 1:7). Esto se logra mediante la muerte de Cristo, el precio del rescate por la salvación de los creyentes. (Marcos 10:45; 1 Tim. 2:6; Heb. 9:15).
+
+---
+
+### Romanos 3:25
+a quien Dios puso como Propiciación. Cristo murió como sacrificio propiciatorio que satisface el juicio divino contra los pecadores y apacigua la ira del Padre contra ellos, logrando el perdón y la justificación. Martín Lutero reconoció que la palabra griega aquí traducida como “propiciación” ( hilast?rion ) también se usa en la Septuaginta en Éxodo 25:22, donde se traduce al español como “el propiciatorio”. Al hablarle a su pueblo, Dios dijo del propiciatorio: “Allí me encontraré con vosotros”. Romanos 3:25 le mostró a Lutero que Cristo es nuestro propiciatorio. Dios nos encuentra en la cruz. Por la fe. El énfasis del v. 22 se repite y, por lo tanto, se subraya. “Por” Indica el medio por el cual estamos vinculados a la justicia de Cristo. La fe es el instrumento, no el fundamento o la base, de la justificación. El fundamento es la vida perfectamente obediente de Cristo y su muerte propiciatoria. REGRESE A ROMANOS 3:25
+
+---
+
+### Romanos 3:26
+para mostrar su justicia. La justicia judicial de Dios se demuestra en el evangelio. Bajo el sistema sacrificial mosaico, el perdón se ofrecía a través de (pero no sobre la base de) sacrificios animales. Como reconoce el NT (Hebreos 9:11-15; 10:1-4), tales sacrificios no pueden sustituir los pecados de los humanos. El verdadero significado de los sacrificios del Antiguo Testamento se encontraba en la forma en que señalaban hacia Cristo, a través de quien Dios trataría con el pecado humano de una manera apropiada y final. En vista de lo que Él haría más tarde, Dios podía pasar por alto con justicia los “pecados anteriores” (v. 25); por ejemplo, justificando a Abraham (4:1-5) y a David (4:6-8) cuando creyeron en sus promesas acerca del Redentor que vendría. La obra de Cristo revela tanto la justicia de Dios (Él castiga el pecado en la persona de su propio Hijo; 8:32), como la justicia del camino de salvación de Dios por la “fe en Jesús” (v. 26). Al tratar con Cristo como portador del pecado y con la persona humana como pecadora, Dios no compromete su propia santidad ni la necesidad de expiar el pecado. Sin embargo, Él provee misericordiosamente una salvación que la humanidad es incapaz de obtener. En este sentido, Pablo ve la cruz como la manifestación de la gloriosa sabiduría de Dios (1 Cor. 1:23, 24).
+
+---
+
+### Romanos 3:27
+¿Qué sucede con nuestra jactancia? El punto planteado en 2:17, 23 resurge (cf. 3:19). Dado que tanto los judíos como los gentiles están bajo la ira por su pecado; y dado que la ley de Dios no excusa ni salva a los judíos, sino que más bien revela su condenación; y dado que el evangelio expone la En cuanto a la justificación, nadie, ni siquiera un judío, tiene motivos para jactarse (4:2, 3). De hecho, la jactancia “está excluida”, ya que la justificación se obtiene solo por la fe (vv. 27, 28, 30), no por los logros humanos.
+
+---
+
+### Romanos 3:28
+Justificado por la fe. Véase nota teológica. “La justificación por la fe” en la pág. 2078.
+
+---
+
+### Romanos 3:30
+Dios es uno. La salvación no viene por la posesión de la ley. Esto implica que la salvación está disponible para otros así como para los judíos. Pablo confirma esta verdad frente a la oposición judía apelando a la confesión fundamental de la religión del Antiguo Testamento, que Dios es uno (Deut. 6:4). Este principio ya estaba implícito en las demandas compuestas de los profetas del Antiguo Testamento contra las naciones por sus pecados y contra los judíos por los suyos (por ejemplo, Amós 1; 2). Pablo enfatiza que la justificación viene a los judíos (“los circuncidados”) y a los gentiles (“los incircuncisos”) de la misma manera: solo por la fe.
+
+---
+
+### Romanos 3:31
+¿Luego por esto anulamos la ley? La fe. Véase la nota teológica “Antinomianismo” en la pág. 2272. Pablo está rechazando la ley como el camino de la justificación. Pero como la ley como exigencia moral no fue dada a los pecadores para justificarlos (vv. 19, 20), el principio de la justificación por gracia mediante la fe no puede ser una contradicción de la ley. Como Pablo demuestra más adelante, el evangelio sostiene y promueve la ley como el camino en el que los justificados deben andar (13:8–10) y ahora pueden comenzar a andar por el poder del Espíritu (8:3, 4).
+
+---
+
+### Romanos 4:1
+Pablo confirma su argumento de que la justificación es solo por gracia mediante la fe solamente en Cristo (3:22–25) apelando a la vida de Abraham. Como padre espiritual de los judíos (v. 1), Abraham proporciona un caso de prueba para la doctrina de Pablo. Si puede demostrar que Abraham fue justificado solo por la fe, su exposición anterior se vuelve irrefutable en un contexto judío.
+
+---
+
+### Romanos 4:2
+Contrariamente a la visión judía de que Abraham fue considerado justo y sostenido en el pacto con Dios sobre la base de su obediencia y fidelidad, Pablo pretende demostrar que la declaración general en 3:27 es cierta en lo que respecta a Abraham en particular. Abraham no tenía nada “para gloriarse”, pues Génesis 15:6 prueba que fue por la fe, no por el cumplimiento de la ley, que fue considerado justo. Véase la nota teológica “Justificación por la fe” en la pág. 2078.
+
+---
+
+### Romanos 4:4
+Es un principio general que el salario se gana con el trabajo, no se recibe “como regalo”. Pero Génesis 15:6 no menciona las obras de Abraham, sino sólo la confianza que tenía en Dios. Aunque la fe fue una acción de Abraham, no contribuyó en nada a la justicia resultante de Abraham ante Dios, que fue el don mismo de Dios (v. 4). En este sentido, aunque la fe como instrumento de la justificación implica una actividad humana, no es una “obra” de mérito. La justicia de Dios le fue “contada” a Abraham por medio de la fe (vv. 3, 9) y no ganada por él. Al caracterizar a Dios como “el que justifica al impío”, Pablo incluye a Abraham entre los impíos, cuyas obras no proporcionan ninguna base para su justificación, una contradicción audaz de la tradición judía acerca de la justicia personal de Abraham, pero apoyada por el registro bíblico (Gén. 12:11- 20; 20:1–18). Véase la nota teológica “Fe y obras” en la pág. 2231.
+
+---
+
+### Romanos 4:6
+La correcta interpretación que hace Pablo de Génesis 15:6 se confirma con una apelación a las palabras de David en Salmos 32:1, 2. La bienaventuranza (la comunión con Dios junto con todo lo que conlleva y la salvación) no se gana, sino que es el efecto del don del perdón. Es por la obra de Cristo, no por la nuestra, que somos justificados. Cualquier mérito propio, incluso el bien que las personas redimidas hacen por el poder del Espíritu Santo, queda excluido.
+
+---
+
+### Romanos 4:9
+Pablo ahora aborda otra crítica a su argumento: Incluso si ha demostrado que la justicia viene por gracia mediante la fe en el caso de Abraham, ¿ha olvidado que Abraham fue el padre de los circuncidados (y, por lo tanto, no de los incircuncisos)? El apóstol proporciona una respuesta devastadora: Génesis 15:6 describe a Abraham antes de que fuera circuncidado (v. 10). La justicia significada y sellada para él por la circuncisión ya le había sido acreditada cuando todavía era incircunciso. Por lo tanto, él sirve como prototipo para todos los creyentes, tanto judíos como gentiles. Para el judío, sirve como prototipo porque su circuncisión indicaba su justificación; para el gentil, porque recibió la justificación sin la circuncisión. REGRESE A ROMANOS 4:9
+
+---
+
+### Romanos 4
+El argumento ahora se lleva un paso más allá. La promesa dada a Abraham fue que sería padre de una multitud que poseería la tierra de Canaán, y que también sería fuente de bendición para todas las naciones (Gén. 12:2, 3, 7). Pablo, sin embargo, interpreta la promesa de la tierra como algo más amplio que Canaán: Abraham sería “heredero del mundo”. La intención original de Dios para Israel era que fueran fieles y reflejaran la presencia de Dios desde el templo en todo el mundo, y así, la presencia de Dios en la Tierra Prometida se extendería a todo el mundo. En consecuencia, el mundo sería dominado por la presencia tabernáculo de Dios, y la Tierra Prometida llegaría a ser igual a la nueva tierra. Cristo es la Simiente de Abraham (Gál. 3:16), el verdadero Israel, y ya ha heredado el mundo entero y está reclamando sus pueblos mediante la predicación del evangelio, el medio por el cual salva a los suyos (Sal. 2:8; cf. Mateo 28:18, 19). Esta promesa fue recibida por Abraham por medio de la fe, “no... “por medio de la ley” (v. 13). Pablo asume la verdad de lo que demuestra en Gálatas 6:11-13. 3:17, que puesto que la ley vino 430 años después de la promesa, la recepción de las bendiciones prometidas a Abraham y a sus descendientes no puede depender de la ley. Si la herencia dependiera de la obediencia a la ley, la fe no tendría lugar en el esquema divino de las cosas y la promesa sería nula, puesto que la ley no puede producir la obediencia que requiere para su cumplimiento. Sólo “donde no hay ley” no hay “transgresión”; donde hay ley, “trae ira” (v. 15) Dada la verdad establecida de la pecaminosidad de todas las personas, es imposible que la promesa podía recibirse sobre la base del cumplimiento de la ley.
+
+---
+
+### Romanos 4:16
+Por eso depende de la fe. Puesto que la promesa en todos sus elementos se recibe por fe, también se apoya “en la gracia”. Si se apoyara en las obras, la promesa fracasaría; si se apoyara en la circuncisión, sólo los judíos podrían recibirla. Puesto que se apoya en la fe, y por lo tanto en la gracia (por la acción de Dios, no del hombre), está “garantizada” que llegará a la verdadera descendencia espiritual de Abraham: todos los creyentes, sean judíos o gentiles por nacimiento. REGRESE A ROMANOS 4:16
+
+---
+
+### Romanos 4:17
+como está escrito. Nuevamente Pablo apela a la Escritura (Gén. 17:5) para confirmar su exposición. En lugar de ser el padre de los judíos (los circuncidados, quienes se adhirieron imperfectamente a la ley; v. 16) solamente, ya estaba claro en Génesis que Abraham iba a ser el patriarca espiritual de todos los creyentes, judíos y gentiles por igual. Que la promesa de Dios sería recibida por judíos y gentiles por medio de la fe es evidente por el carácter del Dios en quien Abraham creyó, Aquel “que da vida a los muertos”. Esto se ve en la nueva vida que surgió del vientre aparentemente muerto de Sara (v. 19; Gén. 16:1, 2; 17:17–19), en la vida devuelta a Isaac cuando estaba bajo sentencia de muerte (Gén. 22), y finalmente en la vida restaurada en la resurrección de Cristo (4:24, 25). llama a la existencia a las cosas que no existen. Esto puede referirse a la creación del mundo por parte de Dios de la nada (ver Génesis 1; Is. 41:4; 48:13 para la creación convocada a la existencia por la palabra de Dios), al nacimiento de Isaac (en el que una nación emerge de un vientre estéril), o, más probablemente, a ambos actos del Señor. Quizás esto también alude a las palabras de Oseas 1:10; 2:23 (9:25, 26).
+
+---
+
+### Romanos 4:18
+En esperanza creyó. Confiando en el poder de Dios (v. 17), Abraham obtuvo la seguridad de que la promesa se cumpliría. Pablo indica que la verdadera fe se dirige hacia Dios y no hacia nuestras circunstancias, hacia la palabra divina y no hacia la situación humana. contra toda esperanza. En el curso natural de los acontecimientos y según los estándares de este mundo, la creencia de Abraham de que Sara daría a luz a su hijo (el primer requisito para recibir lo prometido) era una tontería, por las razones que se dan en el v. 19.
+
+---
+
+### Romanos 4:19
+Como de cien años. Véase Génesis 1:1-2. 17:1, 17.
+
+---
+
+### Romanos 4:20
+Se fortaleció en su fe. La risa de la duda fue la respuesta inicial de Abraham y Sara a la promesa aparentemente imposible de Dios de un hijo en su esterilidad y vejez (Gén. 17:17; 18:12, 13). Sin embargo, actuaron con fe, e Isaac (Hb. “se ríe”) fue concebido (Heb. 11:11, 12). Dio gloria a Dios. Dar gloria a Dios es un sello distintivo de la fe, ya que es dependencia del poder de Dios y confianza en su palabra de promesa (v. 21). La vida de fe de Abraham fue una en la que los atributos de Dios formaron el fundamento (1:20), y por lo tanto en la que se mostró la gloria de Dios (cf. 1:21). Fue a través de Ejerciendo esta clase de fe fue justificado (v. 22).
+
+---
+
+### Romanos 4:25
+La prueba de la justificación solo por la fe en el caso de Abraham lleva a Pablo de nuevo al fundamento de la justificación en la obra de Cristo (3:24-26). La muerte y la resurrección de Cristo son dos cosas indivisibles pero aspectos distintivos de su única obra salvadora. En su muerte, Cristo llevó la pena legal por nuestra culpa. Al resucitar a Jesús de entre los muertos, el Padre lo vindicó, anulando la sentencia de muerte y declarándolo justo. La reivindicación fundamenta nuestra justificación mediante nuestra unión con Cristo.
+
+---
+
+### Romanos 5
+Ahora se detallan las implicaciones de la justificación solo por gracia mediante la fe sola. La transición de la ira (1:18) a la gracia (3:21) transforma tanto el estado como la experiencia del creyente. En lugar de alejamiento (3:10-17), ahora hay paz (5:1); en lugar de no alcanzar la gloria de Dios por el pecado (3:23), hay esperanza de gloria (5:2); en lugar de sufrimiento como juicio, hay gozo en la tribulación por lo que Dios produce a través de ella (5:3); en lugar de incertidumbre temerosa, hay seguridad del amor de Dios (vv. 6-8) y gozo en Él (v. 11). 5:1 Tenemos paz. Véase la nota del texto. Numerosos manuscritos apoyan la frase “tengamos” Paz, pero los mejores manuscritos y el flujo del argumento de Pablo apoyan la primera versión. Que “ahora hemos recibido la reconciliación” (v. 11) implica que ya estamos en paz con Dios. Con la paz establecida en el evangelio, ahora tenemos acceso a la presencia de Dios. El muro de separación ha sido eliminado. Esta paz no es una tregua vigilada sujeta a nuevas guerras. Es una paz permanente, que marca no solo la ausencia de hostilidad sino también la presencia de compañerismo y comunión con Dios. Al igual que 8:1-4, 32, este pasaje destaca el propósito especial y la eficacia que Pablo atribuye regularmente a la muerte de Cristo. Es decir, Cristo murió específicamente “por nosotros” (v. 8) quienes ahora creemos y somos justificados por la fe, y Su muerte realmente logró para nosotros la “reconciliación” que “ahora hemos recibido” (v. 11). Véase la nota teológica “Expiación definitiva” en la pág. 1875. El “por tanto” de Pablo (v. 12) indica que lo que sigue está conectado en la mente de Pablo con lo que lo ha precedido, de modo que la comparación y el contraste que establece entre Adán y Cristo es su elaboración teológica sobre lo que ya se ha dicho. El énfasis de Pablo en el “uno El uso de la palabra “hombre” a lo largo del pasaje (vv. 12, 15– 17, 19) indica que él consideraba a Adán y a Cristo como individuos históricos que actuaban en representación de muchos otros como cabezas del pacto. En el caso de Adán, el foco de atención está en su “una sola transgresión” (vv. 16, 18 y nota del texto) por la cual todos sus descendientes naturales fueron perdonados. “Fueron constituidos pecadores” (v. 19). Eran solidarios con Adán como su representante ante Dios. Por lo tanto, cuando Adán pecó, su único pecado les fue imputado a todos ellos. De esta manera, fueron constituidos pecadores. 5:12 Así como el pecado entró en nosotros. Pablo comienza aquí una comparación que no concluye hasta los versículos 18-21. La comparación se interrumpe con una meditación que se extiende hasta el versículo 17. por medio de un solo hombre. La muerte no es algo natural a la humanidad, sino que es el resultado directo del pecado (Gén. 2:17). porque todos pecaron. El reino universal de la muerte es la consecuencia del pecado. Toda la humanidad (excepto Cristo) estuvo involucrada con Adán en su pecado en virtud de la imputación. Él nos representó ante el Señor en el Edén, y la culpa en la que incurrió fue imputada a sus descendientes, declarada o puesta en nuestras cuentas, de modo que nacemos culpables incluso antes de cometer cualquier acto de pecado personal. Todos pecaron en el reino universal de la muerte. pecado de Adán. Véase la nota teológica “La depravación humana” en la pág. 889.
+
+---
+
+### Romanos 5:2
+La esperanza. En el NT, la esperanza es la certeza de algo que todavía no se ha experimentado plenamente (8:24, 25) y es muy diferente de la incertidumbre y la ilusión. El amor de Dios que el Espíritu Santo derrama en los corazones de los creyentes garantiza aquí y ahora que esta esperanza no se verá frustrada (vv. 4, 5).
+
+---
+
+### Romanos 5:4
+Carácter. El carácter —la cualidad de ser aprobados mediante la prueba— se produce por la gracia del evangelio y se demuestra en la fe que persevera a través de la aflicción. Confirma nuestra confianza en que la gloria que esperamos algún día será nuestra (8:17–25).
+
+---
+
+### Romanos 5:6
+Cristo murió. La naturaleza y la vasta extensión de Este amor derramado (v. 5) se ve más vívidamente en la cruz. Allí Dios actuó “en el momento oportuno”, tanto en el sentido de que la muerte de Cristo tuvo lugar según el calendario divino (Juan 17:1; Hechos 2:23; Gálatas 4:4), como también porque nos sale al encuentro en el momento de nuestra más profunda necesidad. Este es el punto de Pablo cuando dice “todavía débiles” (v. 6), “aún pecadores” (v. 8), “mientras éramos enemigos” (v. 10).
+
+---
+
+### Romanos 5:9
+Mucho más. Pablo argumenta de lo mayor a lo menor. Si, cuando nuestra relación con Dios era de alejamiento, Dios quiso hacer por nosotros la obra de reconciliación, a costa del sufrimiento y la muerte de Su Hijo, ahora que nos ha dado la paz consigo mismo a través de esa muerte, no negará la salvación completa y final que es “por él” y por “su sangre”. Como Mediador ascendente. Reservar para la salvación final a quienes ya han sido justificados es simplemente el cumplimiento por parte de Dios de su propósito inicial de amor hacia ellos. La expresión decisiva y más costosa de este propósito amoroso fue la muerte reconciliadora de Cristo, que garantiza la justificación y glorificación de aquellos por quienes murió (8:29–32).
+
+---
+
+### Romanos 5:10
+reconciliados. Pablo es el único en el NT describe la obra de Cristo de llevar los pecados como reconciliación (11:15; 2 Cor. 5:18-20; Efe. 2:16; Col. 1:20, 22), aunque la idea ya está presente en el AT, especialmente en Oseas. El alejamiento de Dios de nosotros termina al eliminar la causa del alejamiento (nuestro pecado, culpa y condenación) por la muerte de Cristo (cf. 2 Cor. 5:21). En este sentido, la reconciliación es objetiva (2 Cor. 5:18, 19). Sin embargo, debe ser “recibida” (v. 11; cf. 2 Cor. 5:20), mediante el abandono de nuestras propias alienación y hostilidad, es decir, por el arrepentimiento y la fe en Cristo.
+
+---
+
+### Romanos 5:14
+La muerte reinó. Adán transgredió una prohibición específica en el Edén, y en el Sinaí, Dios volvió a dar muchos mandamientos específicos por medio de Moisés. Entre el Edén y el Sinaí, todas las personas estaban sujetas a la muerte incluso antes de que se diera la ley de Moisés, lo que demuestra que su condición de pecadores y su responsabilidad por el castigo del pecado se basaban en la transgresión de Adán y su imputación a ellos. un tipo del que había de venir. Adán, el primer hombre, fue la cabeza divinamente designada de toda la humanidad (exceptuando a Cristo), y su pecado hizo que perdieran la justicia todos aquellos a quienes representaba (“todos los hombres”, vv. 12, 18; los “muchos”, vv. 13). 15, 19). De la misma manera, Dios hizo a Cristo cabeza representativa de una nueva humanidad para que su obediencia hasta la muerte les consiguiera la justificación. Inherente a esta enseñanza está el pensamiento de que la restauración provista en la salvación debe seguir el modelo de la constitución original de la humanidad delante de Dios, pero de una manera en que Cristo triunfe donde Adán fracasó (1 Cor. 15:45–49; Heb. 2:14–18)
+
+---
+
+### Romanos 5:15
+Pero la dádiva no es como la transgresión. Pablo explica el contraste entre Cristo y Adán en los versículos 15-17. No sólo son antitéticas las acciones de los dos hombres, sino que la gracia de la obra de Cristo se ve como mayor que el pecado, el juicio y la condenación de Adán en la forma en que trae justificación, justicia y vida a las almas arruinadas (“mucho más”, versículos 15, 17).
+
+---
+
+### Romanos 5:16
+el juicio que sigue a una transgresión. Véase la nota teológica “Pecado original” en la pág. 17.
+
+---
+
+### Romanos 5:18
+Pablo vuelve al eje principal de su analogía, a saber, que existe un paralelo entre Adán y Cristo en el sentido de que la condenación y la justificación son los frutos directos de sus acciones. Sobre la base de las acciones de “uno”, “muchos” son constituidos pecadores o justos. Adán es la cabeza representativa de todas las personas, excepto Cristo, y todos pecaron y cayeron cuando él pecó. En contraste, “por la obediencia de un hombre”, aquellos a quienes Cristo representa son “hechos justos” en Él. Cristo es su Cabeza representativa, así como la raíz espiritual de la nueva humanidad, porque a través de Su resurrección ellos son “hechos justos” en Él. se les da un nuevo nacimiento y una esperanza viva (1 Ped. 1:3; Ef. 2:1–7).
+
+---
+
+### Romanos 5:20
+La ley vino. Fue dada como un elemento adicional (posterior a la caída) en los tratos de Dios con Su pueblo, para “abundar la transgresión”. Aunque el pecado ya estaba en el mundo antes de que se diera la ley (v. 13), la ley revela el pecado en su carácter específico como transgresión, una violación de una norma establecida. Tales faltas “abundan” porque las exigencias de la ley ocasionan ansias contrarias en los corazones de los pecadores (7:5, 8). Pero ante este aumento del pecado, “abundó sobremanera la gracia”, no sólo a la par de la transgresión, sino que la superó en la gran salvación realizada por medio de Cristo.
+
+---
+
+### Romanos 6:1
+La insistencia de Pablo en que el aumento del pecado se corresponde con el aumento de la gracia (5:20) conduce a la pregunta que ahora plantea y responde. Tan grande era su énfasis en la gratuidad de la gracia de Dios frente al pecado que su predicación había sido acusada de tener tendencias antinomianas, o de ignorar los requisitos éticos de la ley (3:8). Ahora Pablo señala que continuar en el pecado implicaría una contradicción con la nueva identidad del cristiano en Cristo, una identidad definida por nuestra unión con Él en Su muerte y resurrección. En vista de esta nueva identidad (v. 11), los cristianos deben negarse a permitir que la gracia de Dios se extienda a los pecadores. pecan al usurpar la autoridad en sus vidas, y en lugar de ello deben vivir toda la vida para Dios (vv. 12, 13) en la seguridad de que el pecado ya no es su amo, porque ya no están bajo la ley sino bajo la gracia como medio de su salvación.
+
+---
+
+### Romanos 6:2
+De ninguna manera. Expresión que se usa con frecuencia para expresar con estupor un rechazo a una conclusión totalmente inaceptable (3:31; 6:15; 7:7, 13; 9:14; 11:1, 11). Nosotros, los que morimos al pecado. El punto de Pablo es que los creyentes han sido realmente unidos a Jesucristo tanto en Su muerte como en Su resurrección, y que por lo tanto están libres del dominio del pecado. Continuar pecando como antes, sucumbiendo sin resistencia al dominio del pecado, no sólo es inapropiado para ellos sino realmente imposible. Desde 5:20 hasta 8:4, el pecado es presentado como la energía impulsora que produce actos pecaminosos, y es personificado como un capataz tiránico, que exige control y necesita ser resistido.
+
+---
+
+### Romanos 6:3
+El bautismo es la señal y el sello de la incorporación a Cristo y de la regeneración, la remisión de los pecados y la adopción. Como tal, proclama que quienes por la fe están unidos a Cristo en su muerte y resurrección han muerto al pecado y han resucitado a una nueva vida. Véase la nota teológica “Bautismo” más arriba.
+
+---
+
+### Romanos 6:6
+nuestro viejo hombre fue crucificado juntamente con él. Aunque el “viejo hombre” incluye la vida anterior a la conversión, incluye mucho más, y debe interpretarse a la luz de 5:12-21 como todo lo que éramos a través de nuestra unión con Adán. Debemos pensar en todo esto como si hubiéramos sido clavados en la cruz para morir. cuerpo de pecado. Tal vez en el sentido del pecado como masa o cuerpo, pero probablemente el cuerpo físico visto como la esfera en la que reinaba el pecado (cf. “cuerpo de muerte” en 7:24). dan fruto santo en su servicio (6:13, 22; 7:4; 12:1). Ya no somos “esclavizados al pecado”, ya que la existencia corporal dominada por los anhelos del pecado ha dado paso a una existencia corporal dominada por una pasión por la justicia y santidad (v. 18) por la presencia del Espíritu Santo (cf. 8,4-11).
+
+---
+
+### Romanos 6:7
+libre del pecado. Lit. “justificado”. Véase la nota del texto. Aquí el lenguaje tiene un matiz adicional de “liberado del”, pues Pablo está hablando del reino del pecado, y no meramente de su culpabilidad (vv. 17–22). Pablo personifica el pecado como un monarca (5:21); como un general que usa varias partes del cuerpo como armas (“instrumentos”, v. 13); y como un empleador que paga salarios (v. 23).
+
+---
+
+### Romanos 6:8
+también viviremos con él. Esto incluye la idea de una resurrección corporal futura, pero también implica una participación presente en la vida resucitada de Cristo como uno que está “vivo para Dios” (v. 11).
+
+---
+
+### Romanos 6:11
+Consideraos a vosotros mismos. Reconoced que Lo que se ha dicho en los versículos 1 al 10 ya es la verdad sobre ti mismo. ROMANOS 6:11
+
+---
+
+### Romanos 6:12
+No reine, pues, el pecado. Puesto que el reino del pecado ha sido quebrantado, se puede y se debe resistir todo intento de éste de recuperar el dominio. El cuerpo (v. 13), que una vez estuvo dominado por los deseos pecaminosos, ya no debe ser sometido a ellos.
+
+---
+
+### Romanos 6:13
+Presentaos a Dios. Pablo ve que el secreto de la santificación radica en entregar la persona completa a Dios, de lo cual se desprende la ofrenda de las diversas partes del cuerpo a Él en devoción como sacerdotes (12:1) y en lealtad como guerreros (“instrumentos” tiene connotaciones militares: “armas, armaduras”; 13:12; 2 Cor. 6:7; 10:4; Ef. 6:10–20). De la muerte a la vida. Todo esto debe hacerse en conciencia y como expresión deliberada de nuestra nueva identidad en Cristo y de nuestra participación en su vida de resurrección por medio del Espíritu Santo. REGRESE A ROMANOS 6:13
+
+---
+
+### Romanos 6:14
+el pecado no tendrá dominio sobre vosotros. Esta es una declaración indicativa, es decir, una declaración de lo que ya es verdad en todo cristiano genuino, y no un imperativo ni una exhortación. No bajo la ley, sino bajo la gracia. Pablo no está diciendo que el creyente está libre de la obligación de cumplir las exigencias de la ley (13:8-10; 12:1-2). Más bien, dice que, debido a que la posición del creyente ante Dios se basa en la justicia de Cristo y no en el cumplimiento de la ley propia, el principio rector en la vida del creyente es el reino de la gracia que lo libera del reino del pecado (5:21) y lo transforma a la semejanza de Cristo.
+
+---
+
+### Romanos 6:15
+El hecho de que el cristiano no esté bajo la ley sino bajo la gracia podría parecer una licencia para la negligencia moral. Pablo lo niega, ya que bajo el reinado de la gracia, los cristianos se han convertido en esclavos de Dios para la justicia. La libertad de la gracia es, por tanto, libertad para la obediencia. y servicio, no por licencia. Véase la nota teológica “Libre albedrío” en la pág. 1293. VOLVER ROMANOS 6:15
+
+---
+
+### Romanos 6:17
+Gracias a Dios. Aunque Pablo enfatiza la actividad del individuo en la conversión y en la vida cristiana (“presentaos”, v. 16; “obedientes”, v. 17), con gratitud atribuye todas las respuestas espirituales correctas a la gracia de Dios. Si bien el individuo es activo en la conversión, lo hace de una manera que no contribuye ni es meritoria, de modo que no se compromete ni la gracia divina ni la soberanía divina. El modelo de enseñanza al que se comprometieron. Lo opuesto a la esclavitud al pecado es el compromiso con el nuevo estilo de vida que produce la gracia. Lo que se tiene en cuenta aquí es el evangelio apostólico, que incluye el tipo de enseñanza que se da en los caps. 12–16, teniendo a Cristo mismo como modelo (cf. Ef. 4:20, 21).
+
+---
+
+### Romanos 6:19
+Hablo en términos humanos, Por vuestras limitaciones naturales. La ilustración de la esclavitud no puede revelar plenamente la naturaleza de la vida cristiana, especialmente en el contexto romano, porque puede transmitir duras connotaciones de esclavitud humana y no expresa plenamente la verdad de que el yugo de Cristo es suave (Mateo 11:28-30). Sin embargo, Pablo emplea la metáfora, tal vez creyendo que el mayor peligro es el de no cumplir con la responsabilidad moral personal hacia el Señor. conduce a más anarquía. El pecado no se detiene, sino que empeora.
+
+---
+
+### Romanos 6:23
+El triple contraste entre el salario, el pecado y la muerte y el don, Dios y la vida eterna, lleva el argumento de Pablo a un punto central memorable. En particular, el pecado “paga” a sus esclavos el salario que se han ganado, es decir, la muerte, mientras que Dios concede misericordiosamente a quienes confían en Cristo un don que nunca podrían ganar: la vida eterna.
+
+---
+
+### Romanos 7
+Pablo ahora amplía el tema de la La relación del creyente con la ley. Aunque la ley es santa, justa y buena (v. 12), la sujeción del pecador a la ley sólo resulta en condenación, porque la ley en su justicia descubre toda transgresión y fracaso. En esta sección, la relación del pecador con la ley se compara con el matrimonio. El punto de la comparación es que la muerte pone fin a estas relaciones, y el cónyuge viudo es libre para estar en una nueva relación. Debido a que el “matrimonio” con la ley fue roto por la muerte, el creyente no es una adúltera y no puede ser condenado por la ley. El creyente muere al unirse con Cristo en Su muerte, rompiendo la cadena de desobediencia y muerte que ataba al pecador a Adán en su destino (5:12-21). El otro lado de la ilustración es que la unión con Cristo en Su resurrección da al creyente una nueva relación, en la que se ofrece una obediencia verdadera, si bien todavía no perfecta, a Dios en amor y gratitud. En la nueva relación con Cristo, la energía del Espíritu asegura que habrá vida y fecundidad. El cambio repentino al tiempo presente en los vv. 14-25, en contraste con las declaraciones que describen el pasado en los vv. 7-10, 13, plantea la cuestión de si Pablo está describiendo ahora su experiencia presente. Existe una variedad de interpretaciones, incluyendo las siguientes: (a) Pablo está describiendo a la persona no regenerada; (b) Pablo está describiendo la experiencia de Israel bajo la ley mosaica (o quizás al judío en particular desde el punto de vista del evangelio); (c) Pablo está describiendo a un cristiano en una condición espiritual antinatural y malsana, que no aprovecha los recursos del Espíritu que mora en él; (d) Pablo está describiendo la experiencia de transición, posiblemente la suya propia, de alguien que ha sido despertado a su verdadera necesidad espiritual, pero que todavía no ha entrado en una experiencia completa de justificación por la fe; (e) Pablo se está describiendo a sí mismo y a los cristianos en general que, aunque están en Cristo y libres de la condenación de la ley, todavía no cumplen perfectamente los requisitos de la ley. La última perspectiva es la interpretación más probable. Explica el cambio de Pablo al tiempo presente mientras que su tema en los vv. 7–25 (la santa ley de Dios que estimula y expone el pecado) continúa, y en el autoanálisis de Pablo aquí hay elementos que se encuentran solo en personas que han sido unidas con Cristo resucitado a una nueva vida en el Espíritu (6:4–11; 7:6; 8:4–9). Pablo es consciente de que la ley de Dios es “espiritual” (v. 14). En realidad, se deleita en la ley de Dios, deseando cumplirla perfectamente (vv. 15-23), y le angustia que el pecado en él se oponga a ese deseo. Está agradecido ante la perspectiva de una futura liberación de esta frustración (v. 24; 8:23). Distingue entre su “mente”, que aspira a la obediencia, y su “carne”, que continúa pecando (v. 25). Todas estas observaciones muestran que Pablo está describiendo su experiencia como un nuevo hombre en Cristo, porque la persona no regenerada no experimenta tal lucha contra el pecado. En cambio, La gente no regenerada peca sin control (3:9–18). En realidad, Pablo está describiendo un conflicto profundo que todo cristiano encuentra inherente a su vida en Cristo (Gálatas 5:17, 18): Cristo mora en él (Gálatas 2:20), pero el pecado también mora en él (vv. 17, 20). La conformidad perfecta con la voluntad de Dios está ahora fuera de su alcance. La salvación tiene dimensiones de “ya” y “todavía no”. Ya estamos liberados del poder del pecado, pero todavía no estamos libres de la presencia del pecado. Es importante recordar que Pablo sigue hablando del papel de la ley. Destaca las frustraciones de la experiencia cristiana actual simplemente para mostrar cómo, tanto para los cristianos como para los judíos, la buena ley de Dios provoca, expone y condena el pecado sin que nos contamine ni nos libere de él. 7:14 La ley es espiritual. Otra descripción de la ley, además del versículo 12. Lejos de repudiar la ley (3:31), Pablo declara que ésta establece el modelo al que debe ajustarse la vida gobernada por el Espíritu. En cambio, se llama a sí mismo “carnal” porque no puede alcanzar plenamente ese modelo. Como ruina moral, ahora en reconstrucción, muestra las marcas de lo que ha sido como resultado de Adán, así como de lo que ya está llegando a ser como resultado de Cristo. Vendido al pecado. Aunque no es toda la verdad acerca de él (v. 25), Pablo reconoce que desde el punto de vista de la santa ley de Dios, esta es la verdad acerca de su existencia y comportamiento corporal (aunque sea cristiano) y procede a explicarla. Aunque esta terminología sugiere esclavitud, si Pablo está describiendo la lucha del cristiano con el pecado, debe significar estar incapacitado, no dominado, por el pecado, en vista de las afirmaciones en 6:9- 23.
+
+---
+
+### Romanos 7:3
+Pablo asume que volver a casarse después de la muerte de un cónyuge es totalmente consistente con el evangelio cristiano (1 Tim. 5:14).
+
+---
+
+### Romanos 7:4
+El cuerpo de Cristo. Aquí se hace referencia a la muerte física de Cristo. Puedes pertenecer a otro. Ampliando su metáfora marital, Pablo argumenta que la muerte (nuestra muerte en y con Cristo) cortó nuestra obligación de pacto con la ley (como mandamiento estricto), liberándonos para convertirnos en la novia amorosa de un nuevo esposo, el Cristo que ha sido “resucitado de entre los muertos”. En el nuevo pacto, la incapacidad de la ley para evocar en los pecadores la santidad que definía ahora es superada por el poder de resurrección de Cristo, transmitido a los creyentes por el Espíritu de Dios (cf. 8:3) fruto. Una metáfora que significa resultado (6:21, 22).
+
+---
+
+### Romanos 7:5
+vivíamos en la carne... Pero ahora somos liberados. Pablo contrasta su propio pasado precristiano y el de otros creyentes (“en la carne”, v. 5) con su experiencia actual como quienes han muerto a la ley, concluyendo que el cambio denuncia el “código escrito” y capacita a los creyentes para servir a Dios por el Espíritu Santo (v. 6). El poder insidioso del pecado para despertar malos deseos a través de la buena ley de Dios se describe dramáticamente en los vv. 7–25; luego, la vida empoderada por el Espíritu de quienes se liberaron del código escrito se muestra en el cap. 8.
+
+---
+
+### Romanos 7:7
+Que la ley es pecado. Las alusiones de Pablo a la ley hasta ahora han sido de tono negativo, especialmente su declaración de que la ley despierta pasiones pecaminosas (v. 5). Ahora explica que reconocer el efecto negativo que la ley tiene en la vida de la humanidad caída no es una devaluación de la ley misma (nótese el lenguaje vehemente en 3:31). El papel ordenado por Dios para la ley en un mundo caído es revelar la naturaleza del pecado humano. La ley no solo define el pecado, sino que actúa como catalizador, provocando las reacciones pecaminosas precisas que prohíbe y condena (vv. 8-11). En sí misma, la ley, que nos lleva a conocer la realidad del pecado en nuestro sistema moral y espiritual (3:20; 5:13, 20), es “santa, justa y buena” (v. 12). En otras palabras, el problema no es la ley sino más bien el corazón humano caído que toma la ley y la usa para aumentar el pecado (nota 7:13). La ley es una fiel revelación de lo que es correcto o incorrecto, y no pierde su validez para medir y dirigir nuestra conducta moral, aunque sus mandamientos carecen en sí mismos del poder para producir la obediencia que la ley correctamente exige (8:3; Gál. 3:21)
+
+---
+
+### Romanos 7:8
+El pecado está muerto. La inclinación al mal del corazón humano caído permanece latente hasta que los mandamientos o prohibiciones de Dios especifiquen límites, momento en el que la rebelión latente se transforma en acción desafiante.
+
+---
+
+### Romanos 7:9
+Yo en un tiempo vivía sin la ley... Murió. Estaba vivo, no en el sentido de tener vida espiritual (6:11), sino en su propia estimación. El conocimiento de la ley, que prometía vida por la obediencia (v. 10), hizo que Pablo se diera cuenta de que era necesario guardar la ley. El intento de obedecerla le hizo darse cuenta de que interiormente, en los deseos de su corazón (especialmente la codicia, el pecado prohibido en el décimo mandamiento; v. 8), estaba constantemente quebrantando la ley incluso antes de darse cuenta, y cuando vio lo que estaba haciendo no pudo detenerlo. Por eso, Pablo escribe que el pecado, la fuerza impulsora anti-Dios, anti-ley dentro de él, “me engañó y... me mató” (v. 11). Llegó a la conclusión de que espiritualmente estaba sin vida y perdido. Pablo ofrece su experiencia personal como un índice de cómo el pecado y la ley se relacionan en todos.
+
+---
+
+### Romanos 7:10
+vida prometida. Véase Levítico 18:5; Deuteronomio 1:11. 30:15, 19. En sí, la ley marca un camino que garantiza el favor de Dios y la felicidad de la humanidad. Pero donde reina el pecado, la ley sólo trae miseria y muerte.
+
+---
+
+### Romanos 7:11
+El pecado... me engañó. Aquí, como en otras partes de Romanos, la sombra del Edén surge en el lenguaje de Pablo (Gén. 3:13; cf. 2 Cor. 11:3; 1 Tim. 2:14).
+
+---
+
+### Romanos 7:12
+santo, justo y bueno. La ley refleja el carácter de Dios (“santo”); es la norma objetiva para la respuesta de la humanidad a Dios en virtud del pacto (“justo”); y es beneficiosa para cada uno de nosotros personalmente, ya que hemos sido creados a la imagen de Dios, quien es bueno en sí mismo.
+
+---
+
+### Romanos 7:13
+¿Entonces lo que es bueno te trajo Muerte para mí. No, dice Pablo, fue el pecado en mí el que se convirtió en la causa de mi muerte espiritual al llevarme a quebrantar la buena ley de Dios. El pecado se ve como “pecaminoso sin medida”.
+
+---
+
+### Romanos 7:15
+No entiendo. Pablo es capaz de analizar, pero no de explicar completamente, el contraste entre él y el “pecado que mora en mí” (vv. 17, 20). Hay un conflicto real y desconcertante entre las energías del pecado y de la gracia en su vida. Sin embargo, da a entender que el pecado que mora en él es un huésped temporal y no deseado. Aunque el pecado todavía acompaña su nueva identidad en Cristo en esta vida, la nueva identidad dará como resultado El triunfo final sobre el pecado que mora en nosotros (6:2– 14; cf. Gál. 5:16–18, 24, 25). ROMANOS 7:15
+
+---
+
+### Romanos 7:24
+¿Quién me librará? No se trata de un grito de desesperación, pues Pablo sabe y da la respuesta en el versículo 25. cuerpo de muerte. El cuerpo físico, visto como el medio por el cual se expresa el pecado. El deseo de Pablo aquí no es la muerte como tal, sino la liberación que finalmente se consumará en la resurrección corporal (8:23; Fil. 3:20; 2 Cor. 5:2–4)
+
+---
+
+### Romanos 7:25
+Así que... pecamos. Pablo resume aquí el estado de frustración que viene describiendo desde el versículo 14. Yo mismo. Esto significa “yo, una y la misma persona”. Pablo aprueba totalmente la buena ley de Dios, pero su “carne” todavía sirve al pecado. La nueva vida en el Espíritu la experimentan las personas en sus mentes, cuerpos y espíritus que siguen llevando las marcas del pecado. REGRESE A ROMANOS 7:25
+
+---
+
+### Romanos 8:1
+Una vasta expansión rapsódica del análisis de la seguridad y la esperanza cristianas contenidas en 5:1–11. Pablo quiere que la gloria de su salvación, en lugar del deprimente recordatorio que acabamos de dar de su continua pecaminosidad, llene las mentes de sus lectores y traiga gozo a sus corazones. 8:1 Por tanto, la preocupación del apóstol aquí es pastoral. Pablo les está diciendo a sus lectores, a la luz del recordatorio anterior de su continua pecaminosidad, que ahora deben recordar su aceptación, inmunidad y seguridad en Cristo; y (vv. 2–4) deben reconocer que la presencia del Espíritu de Dios los está librando de la impotencia y frustración de la vida en “la carne”, descrita en el capítulo 7. No hay condenación, probablemente en ambos sentidos: juicio y castigo. ROMANOS 8:1
+
+---
+
+### Romanos 8:2
+la ley del Espíritu de vida... la ley de El pecado y la muerte. La ley del Espíritu significa Su poder operativo (7:23). La ley del pecado es el poder operativo del pecado, o bien la ley divina tal como la usa el pecado para provocar más transgresiones y así producir la muerte (7:8–13).
+
+---
+
+### Romanos 8:3
+lo que la ley... no podía hacer. Pablo no critica la ley moral, pero señala una vez más que debido a la pecaminosidad de la humanidad, esta no puede traer salvación (Gálatas 3:21). Específicamente, la ley, separada del poder vivificante del Espíritu, no puede producir en los pecadores la vida justa que definen sus mandamientos (v. 4). Su propio Hijo. Las palabras recuerdan el sacrificio de Isaac en Génesis 22:2, y señalan el tremendo costo de nuestra redención (v. 32). En semejanza de carne de pecado. La palabra “semejanza” significa similitud con un prototipo; “carne de pecado” es la naturaleza humana, que a través de la caída llegó a ser corrompida y controlada por el pecado. La humanidad de Cristo era como la nuestra en el sentido de que podía ser tentado, y vivió su vida como parte de un mundo caído lleno de fragilidad y expuesto a grandes presiones. Pero no pecó, y no había corrupción moral ni espiritual en él. Si Jesús hubiera sido corrompido por el pecado de alguna manera, no podría haber cumplido el modelo del Antiguo Testamento, que requería que se ofreciera una ofrenda por el pecado. “sin defecto” (Lev. 4:3). El pecado condenado en la carne. Pablo parece querer decir que en la crucifixión del Hijo de Dios encarnado, el pecado fue juzgado y condenado, de modo que ahora todas las acusaciones contra nosotros han quedado invalidadas, y el dominio tiránico del pecado sobre los creyentes ha sido destruido, de modo que ellos pueden comenzar a cumplir con el justo requisito de la ley (v. 4; cf. 6:1–4, 12–22). No queda ninguna condenación para los creyentes. aquellos que están en Cristo, ni hay una vida de esclavitud continua al pecado. VOLVER ROMANOS 8:3
+
+---
+
+### Romanos 8:4
+El contraste de Pablo entre el viejo modelo de vida y el nuevo, entre la vida en la carne (la naturaleza pecaminosa caída y débil heredada de Adán) y en el Espíritu (7:6), se desarrolla ahora en detalle en términos de dos actitudes o mentalidades establecidas: una bajo la influencia dominante de la “carne”, la otra bajo la influencia dominante de Cristo a través del Espíritu dentro de los creyentes.
+
+---
+
+### Romanos 8:7
+hostilidad hacia Dios. La hostilidad pura contra Dios, incapaz de ser otra cosa, es la verdadera mentalidad de todo aquel que aún no ha sido renovado por el Espíritu (3:9-18). La persona natural considera a Dios como un enemigo.
+
+---
+
+### Romanos 8
+Los cristianos no están en Adán, dominados por “la carne”, sino que están bajo el gobierno de Cristo, porque el Espíritu que mora en ellos es el Espíritu de Cristo (ver nota teológica “El Espíritu Santo como santificador”). (en la pág. 2023). Aunque los cuerpos de los creyentes todavía están sujetos a la muerte y asediados por la debilidad (Gálatas 2:20), la vida prevalece porque los que están unidos a Cristo viven para Dios en la esfera del Espíritu. La dualidad en vista aquí no es una distinción entre los lados físico y espiritual de la vida de un creyente, sino entre dos esferas de existencia: la vida en un mundo caído con su muerte física siempre presente, y la vida en el Espíritu, una participación en la resurrección de Cristo (1:4). Así como todos los hijos de una familia humana son herederos del padre junto con el hermano mayor, así también los creyentes son herederos de Dios en y con Cristo (cf. Heb. 12:23, donde “primogénito” es plural). Pero recibir la herencia que nos llega en Cristo implica compartir su sufrimiento, el camino para compartir su gloria (2 Cor. 4:17; Fil. 3:10, 11). “Glorificados” y La “gloria” en los versículos 17-21 (cf. v. 30) significa la manifestación transformadora, ennoblecedora y gozosa de Dios en el ser personal. La gloria que será revelada (v. 18) aparecerá cuando los hijos de Dios sean revelados en su nueva naturaleza (v. 19) y la creación sea liberada de su estado actual de imperfección y decadencia (vv. 20, 21). La revelación de esta gloria borrará con creces todo el daño y la pérdida (“futilidad”, v. 20) que el orden creado ha sufrido como resultado de la caída de Adán (Gén. 3:17). La regeneración de todas las cosas (Mt. 19:28; Hch. 3:21; Ap. 21:1) en el orden creado corresponde a la libertad en gloria (vv. 17, 18) de la que gozan los hijos de Dios.
+
+---
+
+### Romanos 8:10
+El Espíritu es vida. Esta frase podría referirse al espíritu renovado del creyente, pero probablemente se refiere al Espíritu Santo. El pasaje en sí mismo enfatiza al Espíritu Santo, Su obra y Su estrecha asociación con Cristo. El “Espíritu de Dios” que mora en nosotros se llama el “Espíritu de Cristo” (v. 9), y Su morada en nosotros es el medio por el cual “Cristo está en vosotros” (v. 10). Pablo considera que la relación entre Cristo y el Espíritu es tan estrecha que incluso puede decir: “El Señor es el Espíritu” (2 Cor. 3:17; cf. 1 Cor. 15:45). Estos pasajes no eliminan la distinción personal entre Cristo y el Espíritu. Más bien, Pablo enseña que Cristo y el Espíritu Santo trabajan juntos para aplicar la vida resucitada de Cristo al creyente. La presencia del Espíritu ahora es una garantía de la futura resurrección corporal del creyente (v. 11).
+
+---
+
+### Romanos 8:11
+Un relato trinitario de la realización de la salvación, que presupone la unidad del Padre, el Hijo y el Espíritu Santo en su ser esencial, tal como están unidos en la compleja obra de la redención. Por el poder vivificador de Su Espíritu, el Padre resucitó al Hijo de entre los muertos, y por ese mismo Espíritu, los cuerpos mortales de los creyentes serán resucitados cuando el Hijo regrese en gloria.
+
+---
+
+### Romanos 8:12
+Desde este punto hasta el final del capítulo, Pablo está generalizando acerca de sí mismo y de todos los creyentes que están con él.
+
+---
+
+### Romanos 8:13
+“Haced morir las obras de la carne”. Véase la nota teológica “El Espíritu Santo como santificador” en la pág. 2023. El cuerpo no es malo en sí mismo. El pecado se origina en el corazón, el centro espiritual de nuestro ser, incluida la voluntad (Marcos 7:18-23). Pero como vivimos en cuerpos físicos, el pecado encuentra expresión a través del cuerpo. Por lo tanto, no solo en los puntos internos de origen, sino también en sus expresiones corporales, el pecado debe ser dado muerte, es decir, terminado (6:12, 13; 12:1).
+
+---
+
+### Romanos 8:14
+Este camino de santidad se describe ahora con más detalle como la guía del Espíritu y se especifica como la marca de los hijos de Dios. El lenguaje de “guiar” es reminiscente de la “adopción” y guía de Israel en el éxodo y el desierto, que puede ser el trasfondo del pensamiento de Pablo aquí (9:4; Deut. 8:2, 15; 29:5). Lo que se tiene en cuenta es el estilo de vida del creyente como ya no dirigida o gobernada por la “carne” sino por el Espíritu Santo.
+
+---
+
+### Romanos 8:15
+Espíritu de adopción. Además de Justificación y liberación de la condenación (v. 1), los creyentes son aceptados en la familia de Dios y son persuadidos interiormente por el Espíritu de que pertenecen allí. El grito del creyente, “¡Abba! ¡Padre!” (la palabra aramea abba fue usada por el mismo Jesús al dirigirse a Dios en oración, Marcos 14:36) indica cuán vívidamente se realizó la unión con Cristo en la experiencia de la iglesia del NT (cf. Gálatas 4:6). El clamor es una expresión de una conciencia segura de la filiación, aun en medio de la angustia y la prueba. La idea de la adopción no aparece en el sistema jurídico del Antiguo Testamento, aunque sí está presente el concepto de Israel como hijo de Dios (Éx. 4:22, 23; Is. 63:16; 64:8; Os. 11:1-3). Pablo parece haber tomado prestado este concepto tan adecuado del derecho romano, completándolo con la teología bíblica de la paternidad de Dios sobre su pueblo.
+
+---
+
+### Romanos 8:16
+da testimonio. Este testimonio conjunto de nuestro propio espíritu y del Espíritu Santo surge en el clamor “¡Abba, Padre!” (Gálatas 4:6).
+
+---
+
+### Romanos 8:22
+La condición actual de la creación no es la definitiva; es como una madre que gime con dolores de parto. La creación tiene un destino planeado por Dios y anhela verlo cumplido, de la misma manera que los creyentes tienen un destino que esperan con ansias (vv. 23, 26; cf. Ap. 21:1). Nuestra salvación ha comenzado: tenemos al Espíritu Santo como anticipo (2 Cor. 1:22; Efe. 1:13, 14). —pero no se consumará hasta la resurrección (la plena realización de la adopción en Cristo, v. 23). Por lo tanto, es inevitable que la vida cristiana implique una espera paciente en la esperanza. REGRESE A ROMANOS 8:22
+
+---
+
+### Romanos 8:24
+En esta esperanza fuimos salvos. Véase la nota teológica “Esperanza” en la pág. 2206. Para los creyentes, el sufrimiento (dolor y pena por cómo son las cosas, 7:24, 25; 8:18, 36) está impregnado de expectativa, no de desilusión y frustración (5:5), y de paciencia (v. 25) así como de entusiasmo (v. 23).
+
+---
+
+### Romanos 8:26
+El Espíritu ayuda. Ver nota teológica “La oración” en la pág. 1808. El Espíritu Santo nos fortalece en nuestro estado de debilidad, del cual estamos constantemente conscientes. La perplejidad en cuanto a cómo orar por uno mismo es una experiencia cristiana universal (2 Cor. 12:8–10; Fil. 1:22–24). Nuestros anhelos inarticulados de orar apropiadamente son una indicación para nosotros de que el Espíritu que mora en nosotros ya nos está ayudando al interceder por nosotros en nuestro corazón, haciendo peticiones que el Padre ciertamente escuchará.
+
+---
+
+### Romanos 8:28
+Y sabemos. Los cristianos evalúan el presente a la luz de su seguridad acerca del futuro. Los creyentes son “los que aman a Dios”; el amor es el fruto necesario de una fe viva, Gálatas 5:6. Nuestro amor por Dios se despierta en el conocimiento de su amor por nosotros (5:5–8). llamado. Se le dio vida espiritual y se le trajo a la fe (v. 30; cf. 1:6; 9:11; 1 Cor. 1:9, 24, 26–29). conforme a su propósito. El propósito de Dios garantiza el “bien” para su pueblo. Para ellos, esto no significa necesariamente tranquilidad y tranquilidad, sino ser como Cristo (vv. 17–23, 29). La providencia de Dios gobierna de tal manera que garantiza que todo lo que nos sucede esté obrando para nuestro bien último, que Pablo identifica inmediatamente como nuestra conformación a la imagen de Cristo (v. 29; cf. Ef. 1:3–4). 14)
+
+---
+
+### Romanos 8:29
+antes conoció... predestinó. Véase la nota teológica “Predestinación” en la pág. 1650. Los versículos 29 y 30 explican la “propósito” (v. 28). Es un plan de gracia salvadora soberana, que da derecho a todos los que ahora creen a atribuir su fe y salvación a una decisión eterna de Dios de llevarlos a la gloria, y a esperar esa gloria como una certeza garantizada. El destino señalado para los creyentes (conformidad con Cristo y glorificación con Él) surge de la presciencia divina. Aquí se dice que Dios conoce de antemano a las personas, no a los hechos ni a los acontecimientos. Dios prevé los acontecimientos, pero el punto de Pablo es que Dios ha elegido por iniciativa propia los objetos de su amor activo y salvador. “Conocer” implica una relación personal íntima, no meramente estar consciente de hechos y circunstancias (Gén. 4:1; Amós 3:2; Mat. 1:25); por lo tanto, los “conocidos de antemano” son el equivalente de “elegidos”, aquellos a quienes Dios amó, individual y personalmente, incluso antes de que fueran creados (Efesios 1:3, 4). Esto es especialmente evidente en Romanos 1:11. 11:2 y 5: “Dios no ha desechado a su pueblo, al cual de antemano conoció… hay un remanente escogido por gracia”. “Conoció de antemano” aquí es el paralelo directo con “no desechado” y se explica además por “escogido”.
+
+---
+
+### Romanos 8:30
+Los predestinados están, a su debido tiempo, “llamados”, o efectivamente convocados a través del evangelio a una comunión salvadora con Cristo (1:6; cf. 1 Cor. 1:9). Observamos que todos aquellos “llamados” también son “justificados”. El llamado no puede referirse al llamado externo del evangelio que muchos rechazan (Mateo 22:14). Es un llamado interno de Dios, por medio del Espíritu Santo, que logra lo que Él desea. Todos los que están predestinados son llamados de esta manera. La predestinación incluye la determinación de Dios de que una persona recibirá ese llamado interno (llamado el “llamado eficaz”). La predestinación no se basa en que Dios sepa de antemano cómo responderán las personas al evangelio. Así como los predestinados son llamados, los llamados son justificados y tienen la certeza de ser finalmente glorificados. El tiempo pasado de “glorificados” indica que, desde el punto de vista de Dios, la obra está prácticamente hecha. Él la completará según lo planeado. Véase la nota teológica “La perseverancia de los santos” en la pág. 1994.
+
+---
+
+### Romanos 8:31
+Pablo ahora lleva todo el argumento de 1:16–8:39 a una conclusión triunfal en una serie de desafíos a toda influencia que pudiera frustrar la confianza de la iglesia en su preservación presente y su gloria futura. El pasaje recuerda al tercer cántico del Siervo en Isaías 50:4–9, del cual depende en parte. 8:31 ¿Qué, pues, diremos a esto? Puede que los versículos 28-30 sean los que se tengan en cuenta principalmente aquí, pero no deben separarse de 1:16-8:27, y especialmente de 8:1-27. “Estas cosas” abarca toda la manifestación de la gracia gratuita a los pecadores perdidos en la carta hasta ahora. ¿Quién puede estar contra nosotros? Seguramente habrá oposición, pero el punto de Pablo es que no tiene la capacidad de destruir la fe. Puesto que “Dios está por nosotros”, la supervivencia espiritual victoriosa está asegurada. “Por nosotros” expresa el compromiso eterno del amor todopoderoso que se explica en los versículos 38 y 39.
+
+---
+
+### Romanos 8:32
+El que no escatimó ni a su propio Hijo. Las palabras de Pablo hacen eco del texto de la Septuaginta de Génesis 22:12. En su amorosa lealtad al Señor, Abraham estuvo dispuesto a sacrificar a Isaac, su hijo amado; pero en el último momento no se le exigió que lo hiciera. La lealtad al pacto del patriarca fue una reflejo del amor infinitamente más costoso de Dios, por el cual el Padre no negó a su Hijo único la muerte misma por nosotros. Lo entregó. La frase se usa en otros lugares para referirse a la participación activa en la condena judicial de Cristo (Mt. 20:19; 26:15, 16; 27:2, 18, 26; cf. Is. 53:6, 10). por todos nosotros, incluso por los peores de nosotros, los que ahora creemos (3:9-18; 5:6-8). Una vez más, como en 5:9, 10, Pablo razona de lo mayor a lo menor: que Dios diera a su Hijo para morir por nosotros fue el don supremo, garantizando el don posterior de todo lo demás que necesitamos para nuestra gloria plena y final (v. 30). nos ha dado todas las cosas en su gracia. En el presente, Dios nos provee de todo lo que necesitamos para lograr su propósito de hacernos como Cristo (vv. 28, 29, 37; 2 Cor. 9:8), y en el futuro, heredaremos todo el universo recreado como coherederos con Cristo (v. 17; cf. 4:13; 1 Cor. 3:21–23; Heb. 2:5–8).
+
+---
+
+### Romanos 8:33
+Es Dios quien justifica. El juez ya ha tratado con todos los cargos contra nosotros en la muerte y resurrección de Cristo (4:25). La autojustificación es inútil, y las acusaciones de Satanás contra los creyentes serán ineficaces (cf. Ap. 12:11). Así como Jesús, el Siervo Sufriente y Justo, podía esperar con confianza la vindicación de Dios por las falsas acusaciones presentadas contra Él (Is. 50:7-10), así también la unión de los creyentes con Cristo es tan íntima e inviolable que podemos estar seguros de que Su resurrección asegura también nuestra justificación (4:25).
+
+---
+
+### Romanos 8:34
+a la diestra de Dios. La posición de honor y autoridad ejecutiva (cf. Sal. 110:1). No puede haber condenación para nosotros (en ninguno de los dos sentidos del término, nota del v. 1), porque nuestro portador del pecado entronizado intercede por nosotros en el cielo (1 Juan 2:1; Heb. 7:23, 24) mientras que el Espíritu Santo intercede en nuestros corazones (v. 27).
+
+---
+
+### Romanos 8:35
+el amor de Cristo. La facilidad con la que Pablo usa esta frase de manera intercambiable con “el amor de Dios en Cristo” (v. 39) da testimonio de su suposición subyacente de la identidad de esencia entre el Padre y el Hijo, y por lo tanto la completa armonía de las personas divinas. Compromiso constante y profundo afecto por los creyentes. Nada en toda la creación puede separarnos de este amor divino.
+
+---
+
+### Romanos 8:36
+La apelación de Pablo a las Escrituras del Antiguo Testamento (Salmo 44:22) indica que el sufrimiento no es una novedad inesperada para el pueblo de Dios. En el Salmo 44, Israel confesó que las generaciones anteriores habían glorificado a Dios por haberles dado La Tierra Prometida (44:1–3) y que la generación actual también confiaba no en sus recursos militares sino en el Señor (44:4–8). A pesar de su fe y fidelidad, estaban sufriendo reveses (44:9–22), la suerte común del pueblo de Dios en la tierra; por eso clamaban con esperanza de una liberación futura (44:23–26). En Cristo, tales sufrimientos se convierten en peldaños en el camino a la gloria (5:1–5; 8:17–23).
+
+---
+
+### Romanos 8:37
+Más que vencedores. La fortaleza que se muestra al soportar la hostilidad de los perseguidores y el dolor de las circunstancias es asombrosa. La muerte física se convierte en el medio por el cual los mártires vencen a su acusador mediante la sangre del Cordero y la palabra de su testimonio (Ap. 12:11); y la muerte, el último enemigo, ha perdido su aguijón (el pecado) por la muerte y resurrección de Jesús (1 Cor. 15:26, 54–57).
+
+---
+
+### Romanos 8:38
+Ningún aspecto del orden creado, ni ningún acontecimiento o ser dentro de él, puede poner fin a nuestro disfrute del amor activo de Dios por nosotros en Cristo.
+
+---
+
+### Romanos 9:1
+El propio Pablo explica ahora el rechazo del evangelio por parte de la mayoría de sus compatriotas judíos. Uno de los propósitos de este análisis es defender la rotunda afirmación de 8:39 contra la acusación de que, en el caso de los judíos, la Palabra de Dios ha fallado y su amor de pacto ha demostrado ser poco confiable (9:6). 9:1 Mi conciencia... testifica. La Escritura no define explícitamente en ninguna parte “conciencia”. Aquí, como en 2:15 y 13:5, Pablo claramente piensa en ella como una autoconciencia moral informada por la revelación divina. Pablo está haciendo un juramento legal para jurar su sinceridad al profesar su profundo dolor por la incredulidad de sus parientes judíos.
+
+---
+
+### Romanos 9:3
+¡Ojalá yo mismo fuese Maldito. Aunque Pablo es el apóstol de los gentiles, se hace eco de los sentimientos de Moisés frente a la incredulidad de los judíos (Éxodo 32:30-32). Son sus propios compatriotas y él se angustia por ellos (v. 2). Estar hipotéticamente dispuesto (“podría desear”), si fuera posible, a sufrir la maldición de Dios por ellos es una fuerte declaración de amor. Ni Moisés ni Pablo podían, de hecho, soportar el juicio divino en nombre de otros, ya que ellos mismos eran pecadores. Sólo Jesús, el Santo por completo, podía rescatar a otros de la maldición de Dios al soportar esa maldición en nombre de Dios. “árbol” (Gál. 3:13).
+
+---
+
+### Romanos 9:4
+a ellos ... la adopción. La incredulidad de Israel se magnifica por las bendiciones multiplicadas que han experimentado. En el privilegio óctuple que Pablo enumera en los versículos 4 y 5, confirma su declaración anterior en 3:1 y 2. Por “adopción”, Pablo se refiere a textos como Éxodo 4:22 y 23, en los que el Señor se refiere al pueblo de Israel como “mi hijo” (nota 8:15; cf. Oseas 11:1–3)
+
+---
+
+### Romanos 9:5
+Cristo, que es Dios sobre todas las cosas. El texto traduce correctamente las palabras de Pablo como una atribución directa de deidad a Cristo. Véase la nota teológica “La deidad de Cristo” en la pág. 1851. 9:6 palabra de Dios. Su promesa y plan de ser el Dios de la descendencia de Abraham (Gén. 17:7, 8). En la era del Antiguo Testamento, la descendencia natural no garantizaba automáticamente la herencia de la promesa. Dios escogía quién la heredaría. Como Pablo continúa: Como se ve, este principio es evidente en las familias de Abraham e Isaac. ROMANOS 9:5
+
+---
+
+### Romanos 9:6
+La narración bíblica de Abraham muestra que no todos los descendientes biológicos del patriarca son escogidos por Dios para su favor de pacto. Aunque Ismael era hijo de Abraham “según la carne” (v. 8), eso no lo convirtió en “descendencia” de Abraham desde el punto de vista de la promesa de bendición del pacto de Dios. Más bien, Isaac fue identificado específicamente como el heredero y a través del cual se extendería el favor del pacto de Dios, como se demuestra en Génesis 21:12 (véase Gálatas 4:21-31).
+
+---
+
+### Romanos 9:11
+Aún no habían nacido. El caso de Jacob y Esaú refuerza el argumento de tres maneras: (a) porque eran gemelos, eran tan iguales en naturaleza como era posible; (b) porque el propósito de Dios revirtió incluso la pequeña distinción que existía, al hacer que el hermano mayor sirviera al menor (invirtiendo las expectativas culturales, Génesis 48:13-20; 49:3, 4; Deuteronomio 21:15-17); (c) porque el propósito de Dios fue establecido antes de que nacieran (y por lo tanto no dependía de sus acciones). La elección no se basa en acciones, hechos o fe previstos. Más bien, se basa en la gracia soberana predestinadora de Dios.
+
+---
+
+### Romanos 9:13
+A Jacob amé, pero a Esaú aborrecí. Este propósito distintivo de Dios en la elección (v. 11) se confirma aún más con las palabras de Malaquías 1:2, 3, que explican que el amor de Dios a Israel tiene su raíz en su libre elección de Jacob en lugar de Esaú. “Aborrecí” aquí no puede reducirse a “amé” “menos”, como lo deja claro el contexto de Malaquías 1:3, 4. Debe llevar el sentido de rechazo y antipatía.
+
+---
+
+### Romanos 9:14
+¿Qué diremos, pues? Cf. 8:31. Pablo reconoce que su declaración anterior no puede pasarse por alto sin más comentarios. ¿Podría el propósito soberano distintivo de Dios poner en peligro su atributo de justicia perfecta? La idea es claramente impensable: “¡De ninguna manera!” (6:2, 15; 7:7). Pablo lo explica citando dos textos bíblicos (Éx. 33:19; 9:16) en los vv. 15, 17, de donde concluye que Dios es justo al mostrar misericordia a algunos mientras endurece los corazones de otros. Cuando Dios muestra misericordia, no es una persona que recibe una recompensa ganada por sus propios esfuerzos sino la gracia libre soberana de Dios extendida a personas que no la merecen y que son moralmente incapaces de cualquier esfuerzo aceptable (1:18–3:20). Dios no le debe misericordia a nadie, así que no hay injusticia cuando no se muestra misericordia. La misericordia es una prerrogativa divina; se basa en el beneplácito de Dios. Cuando Dios “endurece” el corazón de Faraón (v. 18), no crea nuevo mal en él, sino que entrega a Faraón a sus deseos ya malvados como un acto de juicio (cf. 1:26, 28), lo que finalmente resulta en la manifestación de la misericordia de Dios. “poder” (v. 22) en la destrucción del ejército de Faraón (Éx. 14:17, 18, 23–28).
+
+---
+
+### Romanos 9:16
+no en la voluntad ni en el esfuerzo humano, sino en la Dios. La misericordia que Dios concede soberanamente a los pecadores inmerecedores, escogidos por gracia, silencia toda jactancia humana (4:2; 1 Cor. 1:29; Efe. 2:8, 9) y toda acusación humana de injusticia contra Dios. REGRESE A ROMANOS 9:16
+
+---
+
+### Romanos 9:17
+La Escritura dice a Faraón. Fue Dios quien le habló así a Faraón por medio de Moisés (Éxodo 9:16), pero para Pablo el Las palabras de las Escrituras y la voz y autoridad de Dios son una sola.
+
+---
+
+### Romanos 9:18
+a quien él quiera. Ver nota teológica “Predestinación y reprobación” en la página siguiente.
+
+---
+
+### Romanos 9:19
+¿Por qué sigue criticando a los demás? ¿Con qué derecho puede Dios echar la culpa de sus pecados a quienes Él ha endurecido contra Sí mismo? Pablo responde parcialmente en términos de la experiencia humana (vv. 20, 21). Es irrazonable e irreverente que alguien cuestione la rectitud de los caminos de Dios. Los alfareros tienen todo el derecho de hacer lo que quieran con el barro (Is. 64:8). Todas las personas pertenecen a “la misma masa” (cf. vv. 10-13) de la humanidad caída en Adán (5:12-13). 14); todos pecan activamente incluso antes de que Dios los endurezca judicialmente en su Compromiso con la impiedad y la injusticia (1:18-28). El hecho de que Dios muestre misericordia a cualquiera que pertenezca a la masa adámica y cree vasos de honra a partir de ella es la bondad de la gracia; el que otros se conviertan en vasos para un uso menor es un asunto de Su prerrogativa soberana y es en sí mismo una muestra de justicia perfecta hacia ellos.
+
+---
+
+### Romanos 9:23
+que él preparó de antemano. Véase la nota teológica “Predestinación” en la pág. 1650. Pablo no da más detalles sobre la preparación en cuestión. La adición de “de antemano” en relación con los vasos de misericordia puede estar señalando la misericordia que se origina en el beneplácito de Dios desde la eternidad (8:29, 30). La distinción entre elegidos y réprobos no radica en nada en sí mismos (todos merecen la ira), sino exclusivamente en la voluntad de Dios. En ese contexto, sin embargo, los objetos preparados para la destrucción experimentan La ira, que es la única recompensa posible y justa por el pecado.
+
+---
+
+### Romanos 9:24
+pero también de los gentiles. Ampliando su discusión sobre la misericordia misteriosa e inmerecida de Dios, Pablo usa las Escrituras del Antiguo Testamento para señalar dos puntos más: (1) No sólo muchos descendientes biológicos de Abraham están excluidos de los elegidos que reciben misericordia, sino que también los elegidos incluyen a los gentiles que creen, quienes en un tiempo no eran el pueblo de Dios. (2) A pesar de la incredulidad generalizada de Israel, Dios está preservando un remanente para la salvación entre el Israel étnico.
+
+---
+
+### Romanos 9:25
+no mi pueblo... 'mi pueblo'. Oseas 1:1-3. 1:10 se aplicaba originalmente a las tribus del norte, que habían perdido su estatus de pacto a causa de la apostasía y la idolatría. Pablo ve en la promesa que Dios restaurará a esos rebeldes, los traerá de nuevo al favor del pacto y los llamará “hijos del Dios viviente”, una señal de la amplitud del amor electivo de Dios, que ahora incluye incluso a los gentiles con pasados paganos, que nunca fueron “mi pueblo” antes de Cristo. Los gentiles pueden cumplir esta profecía mediante la fe en el verdadero israelita, Jesús, y la unión con Él. REGRESE A ROMANOS 9:25 , 26
+
+---
+
+### Romanos 9:30
+¿Qué, pues, diremos? Véase el versículo 14. Habiendo explicado la incredulidad judía en términos de la soberanía divina, Pablo ahora diagnostica que esa incredulidad se debe a un compromiso previo fatal con un camino falso de justicia. La soberanía divina y la culpa de la obstinación humana son para Pablo dos aspectos de la realidad. Por la gracia y soberanía de Dios, los gentiles que no buscaban la justicia de Dios ahora la han recibido por medio de la fe en Cristo, pero Israel la ha recibido por medio de la fe en Cristo. como un pueblo que no la ha recibido porque la nación la ha buscado por un medio legal en el que no la ha podido encontrar, ya que sutilmente reemplaza la confianza en Dios por la autosuficiencia. Para aquellos judíos que buscan establecer su propia justicia sobre la base de la ley, Cristo ha sido una piedra de tropiezo (la imagen es de Is. 8:14; 28:16) sobre el cual han caído (vv. 32, 33; 1 Ped. 2:8; cf. Lc. 2:34). VOLVER ROMANOS 9:30
+
+---
+
+### Romanos 9:31
+una ley que conduciría a la justicia. Probablemente Pablo está pensando nuevamente en la ley mosaica y en la expectativa de los judíos de que su adhesión a ella les aseguraría el favor de Dios. El error de los judíos no radica en lo que han buscado (la justicia, el veredicto vindicador de Dios), sino en su manera de buscarla (“no por fe, sino por obras”, v. 32).
+
+---
+
+### Romanos 10:1
+Hermanos. Un sentido llamado a la compasión de sus hermanos cristianos, cuyo patetismo se ve subrayado por su reciente referencia a sus parientes en la carne (9:3, nota del texto). Para que sean salvos. La preocupación de Pablo en el capítulo 9 es la salvación de los judíos, no sólo su papel en la historia redentora. Él espera que la fecundidad del evangelio entre los gentiles haga que sus parientes judíos sientan envidia de esa gracia, y así los atraiga con fe a Jesús el Mesías (vv. 19, 20; 11:11–14).
+
+---
+
+### Romanos 10:2
+El celo por Dios. Pablo habla aquí, por experiencia personal, tanto de la realidad del celo como de su carácter errado y deshonesto (Fil. 3:4-6).
+
+---
+
+### Romanos 10:3
+ignorando la justicia de Dios. Dios. Pablo contrasta, por un lado, la justicia divinamente establecida provista a través de Cristo y, por el otro, los esfuerzos de una persona por establecer su propia justicia mediante la observancia escrupulosa de la ley. Véase la nota teológica “Fe y obras” en la pág. 2231. Establecer un pacto (Gén. 6:18; 17:7). Incluso en el contexto del pacto que Dios hizo con ellos, ellos han pervertido Su gracia al verla como algo que depende de su propia observancia de la ley.
+
+---
+
+### Romanos 10:4
+Cristo es el fin de la ley. Una interpretación es que Cristo es la meta o el propósito de la ley (Gálatas 3:24). La segunda interpretación es que, para los creyentes, Cristo pone fin a toda búsqueda de la ley a fin de establecer su propia justicia mediante ella. Estas dos opiniones no son mutuamente excluyentes y juntas dan sentido al argumento de Pablo en Romanos y Gálatas (cf. Gálatas 3:15-29).
+
+---
+
+### Romanos 10:5
+la justicia que se basa en la ley. La cita que hace Pablo de Levítico 18:5 se sitúa originalmente en el contexto de la gracia redentora de Dios que requiere la obediencia receptiva de una persona (Levítico 18:2; cf. Éxodo 2:13). 20:1–17); sin embargo, para aquellos que rechazan esa gracia, Pablo señala a Levítico 18:5 como una declaración de que solo el cumplimiento perfecto de la ley puede merecer la vida eterna si las personas eligen tratar de merecer la vida eterna al guardar la ley. Esta es una condición imposible de cumplir para los pecadores (cf. 9:31, 32).
+
+---
+
+### Romanos 10:6
+La ley de Moisés muestra que la salvación de Dios no se obtiene por los esfuerzos extenuantes de la humanidad, sino por la gracia divina que la acerca. En particular, Deuteronomio 30 sitúa esta salvación en el contexto de un retorno anticipado del juicio del exilio (Deuteronomio 30:1-6). Pablo ve esto cumplido en el nuevo pacto en Cristo (Jeremías 31:31-34, cf. 2 Corintios 3:7-18). Por lo tanto, Cristo es el fin de cualquier búsqueda de la ley para la justicia de la justificación. Buscar una justicia autoestablecida ahora es el equivalente a intentar hacer lo que sólo Dios puede hacer y ha hecho en la encarnación y resurrección de Cristo. En contraste con todos los esfuerzos humanos, Dios ha acercado la palabra de salvación, y con ella la salvación misma. Véase la nota teológica “Revelación especial y la Biblia” en la pág. 142.
+
+---
+
+### Romanos 10:9
+confesar... creer... cree... confiesa. En el paralelismo del v. 10, Pablo invierte el orden de los verbos en el v. 9 y, de ese modo, indica que la fe del corazón y la confesión de la boca van de la mano para la justificación (“justicia”) y la salvación.
+
+---
+
+### Romanos 10:12
+No hay distinción. Pablo vuelve a su tema anterior de que así como no hay distinción entre judíos y gentiles con respecto a la pecaminosidad universal, Dios no hace distinción al otorgar la salvación por gracia a los creyentes de todas las razas y orígenes (3:22–24, 29, 30; cf. Gál. 3:28). Esto lo confirma no sólo la unidad y la bondad universal de Dios (v. 12), sino específicamente también la enseñanza del Antiguo Testamento en Joel 2:32 (citado en v. 13), la declaración se cumplió tan dramáticamente en Pentecostés (Hechos 2:21). VOLVER ROMANOS 10:12
+
+---
+
+### Romanos 10:13
+Esta profecía sobre la salvación de Israel También puede cumplirse en los gentiles porque cuando se identifican con Jesús y creen en Él, el verdadero Israel, se convierten en el verdadero Israel (un punto que se señala en Romanos 11:23, 24, donde los judíos y los gentiles creyentes forman el único pueblo de Dios), y por lo tanto se puede ver que cumplen naturalmente esta profecía acerca de Israel. Véase Hechos 2:17- 21 y 10:44-48 para la misma razón de por qué los gentiles pueden cumplir la misma profecía de Joel 2. Profecía.
+
+---
+
+### Romanos 10:14
+Un análisis de lo que está involucrado cuando alguno invoque el nombre del Señor para ser salvo.
+
+---
+
+### Romanos 10:18
+Su voz ha salido a todos los El contexto inmediato de la cita del Salmo 19:4 es el de la revelación general de Dios (Salmo 19:1-3). El uso que hace Pablo de este pasaje para probar con las Escrituras que Israel ha oído el mensaje de Dios implica que su cita de esta sección del salmo lleva consigo la enseñanza de todo el salmo, que habla tanto de la revelación general en la naturaleza como de la revelación especial en Su Palabra. Esta última tiene lugar en el contexto de la primera. La lógica subyacente puede ser: si aquellos que no tienen una revelación especial han “oído” el mensaje de la gloria de Dios en la creación, ¿cuánto más aquellos que poseen una revelación especial han oído ese mensaje? Además, la revelación especial de la gracia salvadora en Cristo se está extendiendo ahora por toda la tierra, a todas las naciones, hasta que su mensaje envuelva al mundo, llegando a ser eventualmente coextensivo con la manifestación del poder eterno y la naturaleza divina de Dios en el orden creado (1:20).
+
+---
+
+### Romanos 10:19
+El fracaso de los judíos no puede excusarse porque no oyeron el mensaje o porque no pudieron entenderlo. Moisés e Isaías contrastan al propio pueblo de Dios con aquellos que carecen de entendimiento (Deut. 32:21) y con aquellos que no buscaban a Dios pero que fueron llevados a conocerlo (Is. 65:1). Cada sección principal del canon hebreo (Ley, v. 19; Profetas, v. 20; Escritos, v. 18) da testimonio de la culpabilidad de Israel.
+
+---
+
+### Romanos 11:1
+Pablo ahora pregunta directamente si Dios ha rechazado a su pueblo. El apóstol mismo es evidencia de que Dios no ha rechazado total y definitivamente al pueblo en quien Él puso Su amor. Así como en los días de Elías se podía encontrar un remanente creyente en Israel, así también sigue habiendo un remanente formado por la gracia de Dios. Por gracia, los elegidos obtienen la salvación que buscan. El resto se endurece. 11:1 ¿Dios lo ha rechazado? El verbo transmite el sentido de alejarse vigorosamente de Sí mismo. La forma de la pregunta en griego anticipa una respuesta negativa. Yo mismo soy israelita. Véase Filipenses 3:5, 6. El impecable linaje de Pablo se remonta a Abraham, el gran patriarca, pero también a Benjamín, el único hijo de Jacob que nació en Canaán. Era la tribu de Saúl, el primer rey, la tribu en cuyo territorio se encontraban Jerusalén y el templo, y una de las dos tribus (junto con Judá) que permanecieron leales a la dinastía davídica tras la división del reino (1 Reyes 12:20-24).
+
+---
+
+### Romanos 11:2
+a quienes antes conoció. Pablo insinúa que el amor especial de Dios y su elección misericordiosa (cf. 8:29; Amós 3:2) de Israel hacen impensable que Él los rechazara por completo como pueblo, aunque Muchos de ellos ahora lo han rechazado al rechazar a Cristo.
+
+---
+
+### Romanos 11:5
+Un remanente, escogido por gracia. En el tiempo de Elías, había una apostasía generalizada, y sin embargo, la presencia de un remanente de fieles indicaba que Dios no había rechazado total y definitivamente a Su pueblo. El pensamiento de Pablo acerca del remanente tiene sus raíces en la enseñanza de Isaías, cuyo nombre de hijo Sear- jasub significa “un remanente volverá” (Is. 7:3 y nota del texto; cf. Is. 1:9; 6:13; 10:20–22; 11:11–16; Ro. 9:27).
+
+---
+
+### Romanos 11:6
+Pero si es por gracia, ya no es por gracia. La base de las obras. Nuevamente se contrasta el camino de la gracia con las obras de la ley (3:20, 27, 28; 4:2, 6; 9:12, 32).
+
+---
+
+### Romanos 11:8
+Los pasajes citados (Deut. 29:4; Is. 29:10; Sal. 69:22, 23), que representan cada sección principal del canon del AT. Las Escrituras describen un modelo bíblico de actividad divina en el endurecimiento judicial de los corazones (cf. 9:15-18; 1:24, 26), un modelo que Pablo ve repetido en sus propios días.
+
+---
+
+### Romanos 11:11
+Hasta ahora, Pablo ha sostenido que el rechazo del pueblo judío no es total. Ahora, sostiene que no es definitivo. Así como el rechazo de Cristo entre los judíos ha llevado a la aceptación del evangelio entre los gentiles, Dios quiere usar a los gentiles para provocar que los judíos envidien las bendiciones de los gentiles, lo que conducirá a su salvación y, en consecuencia, a mayores riquezas. 11:11 ¿Por qué tropezaron para caer? Una vez más, la forma de la pregunta de Pablo anticipa (y recibe) una respuesta negativa. El rechazo de Cristo por parte de los judíos no es irreversible. Pablo ve un patrón y un propósito divinos detrás de la incredulidad de la que son culpables los judíos. Por lo tanto, el patrón de su pensamiento en el versículo 11 es el siguiente: (a) la transgresión de los judíos ha llevado a la justificación de los gentiles; (b) la salvación de los gentiles hará que los judíos sientan envidia; (c) la envidia de los judíos los llevará a la misma salvación que los gentiles.
+
+---
+
+### Romanos 11:12
+Su plena inclusión. En el contexto del argumento de Pablo, “plena inclusión” aquí solo puede significar su recepción de Cristo y su restauración a Dios. La pregunta más difícil es si el término “Completo” apunta al remanente o a la nación de Israel en su conjunto. La segunda parece encajar mejor con la dirección general del pasaje, que sugiere que habrá un gran aumento en el número de judíos que reconocen a Jesús como el Mesías justo antes del regreso de Cristo para juzgar a los vivos y a los muertos (vv. 25–32)
+
+---
+
+### Romanos 11:13
+a Os hablo a vosotros, los gentiles. En los versículos 17-24 se explica claramente por qué se destaca a los gentiles en la iglesia romana. 11:13b, 14 apóstol de los gentiles... para provocar celos a mis compatriotas judíos. Pablo aquí proporciona una perspectiva única sobre su pensamiento acerca de su ministerio a los gentiles: el ministerio del apóstol también tiene en mente a su propio pueblo judío, en términos de 10:19 y 11:11 (cf. Hch. 9:15; Ef. 3:1; Gál. 2:8). Su trabajo entre los gentiles La salvación de los gentiles tiene como meta también la salvación de los judíos.
+
+---
+
+### Romanos 11:15
+vida de entre los muertos. Esta frase puede simplemente denotar una bendición sin precedentes. Aunque la redacción es ligeramente diferente del uso normal de Pablo (“resurrección de entre los muertos”, 1:4; cf. 1 Cor. 15:12, 13, 21, 42), la frase puede referirse a la resurrección general del último día o Puede referirse a la resurrección espiritual inaugurada que ocurre cuando un judío llega a la fe durante el tiempo entre las venidas de Cristo. Dado que “vida de entre los muertos” está en paralelo con “reconciliación” al comienzo del versículo, esta última perspectiva puede ser la mejor.
+
+---
+
+### Romanos 11:16
+Así es también toda la masa. Pablo aplica espiritualmente el principio de que las primicias sirven como garantía de la cosecha final (cf. Nm. 15:17-21).
+
+---
+
+### Romanos 11:17
+un retoño de olivo silvestre... injertado. Véase Jeremías 11:16; Oseas 14:6 para Israel como olivo. No parece que fuera una práctica del primer siglo injertar retoños de olivo silvestre en árboles cultivados para darles nueva vitalidad. Sin embargo, las palabras de Pablo probablemente se extienden intencionalmente más allá de la estricta horticultura. Los gentiles han sido injertados en el pueblo de Dios “contra naturaleza” (v. 24).
+
+---
+
+### Romanos 11:18
+No seáis arrogantes. Puesto que su salvación es enteramente por gracia, los gentiles no tienen motivo para jactarse ni para despreciar a los judíos incrédulos. Tal arrogancia gentil en relación con estos judíos simplemente reflejaría el mismo orgullo espiritual que ha llevado al endurecimiento de los judíos (2:17).
+
+---
+
+### Romanos 11:20
+Aunque la réplica a Pablo en el v. 19 es formalmente cierta, la separación de las ramas judías fue un acto de juicio justo sobre la incredulidad, y el injerto de los gentiles se realiza por medio de la fe y, por lo tanto, es una cuestión de gracia. Por lo tanto, su injerto (v. 19) no se basa en ninguna cualidad superior de los gentiles. El temor. El temor tierno, no la arrogancia, es la respuesta apropiada a la gracia de Dios.
+
+---
+
+### Romanos 11:22
+Fíjense, pues, en la bondad y la La severidad de Dios. Véase la nota teológica “Predestinación” en la pág. 1650. Se insta a los creyentes gentiles a tomar en serio la revelación del carácter de Dios en estos eventos de la providencia. La bondad de Dios da fruto sólo cuando Su pueblo continúa en ella (2:4).
+
+---
+
+### Romanos 11:23
+El desprendimiento de Israel se debe a la incredulidad, y no a que los gentiles estén inherentemente mejor calificados para la vida en el olivo. Además, si los judíos incrédulos llegan a creer en el evangelio, serán “injertados de nuevo”, así como los gentiles creyentes han sido “injertados, contrariamente a la ley” (Hechos 1:11). a la naturaleza.”
+
+---
+
+### Romanos 11:25
+El razonamiento detallado de Pablo aquí se ha entendido de tres maneras principales: (a) Está mostrando cómo Dios salva a todo su pueblo elegido (“todo Israel” en el v. 26 se toma básicamente como sinónimo de la iglesia, es decir, Israel espiritual, compuesto de los elegidos de cada nación). (b) Está mostrando cómo Dios salva a todos los elegidos del Israel (étnico) que han de ser salvos. (c) Está mostrando cómo Dios, en el futuro, traerá una salvación tan generalizada al pueblo judío que, en un sentido general obvio, se puede decir que “todo Israel será salvo” (v. 26). Aunque no sin dificultades, alguna forma de esta última perspectiva parece más probable por las siguientes razones. Primero, ya parecen aparecer indicios de ella en los vv. 11, 12, 15, 16, 24. Segundo, el v. 25 sugiere que se prevé un fin al endurecimiento parcial de Israel. En tercer lugar, la palabra “Israel” en el versículo 26 no se interpreta naturalmente como una entidad diferente del Israel mencionado en los versículos 1-24 y 28-31, donde se habla del Israel nacional (no del Israel espiritual). En cuarto lugar, la palabra “misterio” (un asunto conocido sólo por medio de la revelación divina) en el versículo 25 parecería inapropiada y exagerada si la enseñanza de Pablo fuera simplemente que todos los judíos elegidos serán salvos. Por último, esta perspectiva concuerda bien con las citas de los versículos 26 y 27. de Is. 59:20, 21; 27:9; Jer. 31:33, 34, que parecen hablar de un destierro completo de ese pecado que ha sido la causa del alejamiento de Israel de Dios. 11:25 Misterio. En Pablo, y en el pensamiento judío en general, un secreto divino que ahora ha sido revelado (16:25, 26; Ef. 3:3–9). Algunos intérpretes concluyen que lo que sigue inmediatamente constituye el misterio (probablemente la conversión generalizada de los judíos). Otros sostienen que el misterio es el modelo de la obra de Dios en la interrelación entre judíos y gentiles a la que se hace referencia en el v. 11. El misterio puede ser simplemente el hecho de que, aunque era evidente que solo un remanente de Israel sería salvo en los últimos días, no estaba tan claro según la profecía del Antiguo Testamento que una mayoría de los salvos serían gentiles en comparación con solo un remanente de judíos salvos. plenitud. El término puede tener una connotación específicamente numérica. La versión ESV traduce la misma palabra griega como “inclusión total” en 11:12. Ha entrado. Expresión que Pablo utiliza con poca frecuencia, pero que se encuentra comúnmente en los Evangelios para describir la entrada a la vida o al reino de Dios (p. ej., Marcos 9:47).
+
+---
+
+### Romanos 11:26
+todo Israel. Una expresión crítica en este momento Este es un punto clave en el argumento de Pablo, y cuyo significado es muy debatido. Podría significar “todo Israel (espiritual)”, es decir, todas las personas elegidas, tanto judíos como gentiles. Alternativamente, puede significar “todo” Israel en el sentido de un remanente de “todos los judíos destinados a ser salvos a lo largo de la historia”. O, como también se señaló anteriormente, puede señalar un momento en el que ocurrirá una conversión masiva de judíos étnicos a Cristo. El uso del término “Israel” para referirse a los descendientes biológicos de los patriarcas a lo largo de la discusión de Pablo favorece una de las dos últimas interpretaciones. Véase la nota sobre 11:25-32, puntos (a), (b) y (c). La exégesis de “todo Israel” dependerá de la interpretación y ponderación de otros factores en el pasaje. El Libertador vendrá de Sión. La cita es de Sal. 14:7; Is. 27:9; 59:20, 21. Es posible que Pablo cite este texto en referencia al regreso de Cristo desde la Sión celestial al final de los tiempos. Alternativamente, puede referirse a la primera venida de Cristo, cuando Jesús desterró la “impiedad” de aquellos judíos que creían en Él, momento en el que Cristo ejecutó el nuevo “pacto” (probablemente mencionado al final del v. 27, “cuando yo [Dios] quite sus pecados”). Esta última opinión concuerda más con el libro de Hebreos, que ve la primera venida de Jesús como el momento decisivo en el que estableció el nuevo pacto (p. ej., Heb. 8:6–13; 10:1–16).
+
+---
+
+### Romanos 11:29
+Los dones... son irrevocables. La presencia de un remanente creyente en los días de Pablo (incluido Pablo mismo) y la promesa de Dios de que muchos más judíos se reunirían para creer en Jesús el Mesías muestran que Dios no ha revocado Su llamado y Sus dones a Su antiguo pueblo del pacto (9:6; 11:1, 2).
+
+---
+
+### Romanos 11:30
+El argumento de Pablo concluye de una manera paralela a 3:19-21, enfatizando que los judíos y los gentiles están unidos en dos cosas: la desobediencia del pecado y el ofrecimiento a ellos de la misericordia de Dios. La sabiduría y soberanía de la gracia de Dios se demuestran en la manera en que se cumplen Sus propósitos: la desobediencia del judío lleva a que los gentiles reciban la misericordia de Dios; la misericordia de Dios hacia los gentiles lleva a que los judíos reciban la misericordia. No hay diferencia: todos (judíos y gentiles por igual) han pecado (3:23), y Dios tiene misericordia de ambos (1:16).
+
+---
+
+### Romanos 11
+Después de haber reunido los diversos hilos de su argumento, Pablo ahora responde de manera lírica con un canto de alabanza que alcanza alturas que corresponden a la profundidad de la preocupación que expresó en 9:2, 3. Los tratos de Dios con los judíos y los gentiles muestran una muestra representativa de Su majestad en la que su voluntad soberana (“de él”), su actividad soberana (“por medio de él”) y su gloria soberana (“para él”) se muestran ricamente (v. 36).
+
+---
+
+### Romanos 12:1
+La doxología al final del capítulo 11 y la naturaleza de los versículos iniciales del capítulo 12 señalan una nueva etapa en la exposición de Pablo. La exhortación de Pablo, fundada (“por tanto”) en las misericordias de Dios, pasa de su exposición de la obra salvífica de Dios a la respuesta que la gracia de Dios debe suscitar en los creyentes. Desde este punto hasta la conclusión de la carta, se centra en aplicar su enseñanza a la conducta y las relaciones de los cristianos. Misericordias de Dios. Pablo puede resumir la enseñanza de Romanos 3-11 en términos del favor inmerecido de Dios hacia los pecadores necesitados. La doctrina bíblica de la gracia conduce a una vida motivada por la gratitud. Presenten sus cuerpos como sacrificio vivo. Judíos y gentiles ahora pertenecen juntos como el pueblo de Dios por quien se ha hecho el sacrificio de sangre final (3:25). El sacrificio que queda es el de la respuesta agradecida (cf. 6:17). “Cuerpos” significa personas completas como individuos corpóreos (6:12, 13, 19; 8:13). Pablo usará esta imagen sacrificial en 15:16 para retratar su ministerio “sacerdotal” como apóstol, trayendo a gentiles creyentes como ofrendas en adoración a su Señor (ver Fil. 2:17). Adoración espiritual. La adoración que es apropiada para que la ofrezcan las criaturas redimidas (véase la nota del texto, que da la alternativa “servicio racional”). El término griego traducido aquí como “espiritual” no alude al Espíritu de Dios (a diferencia, por ejemplo, de 1 Corintios 11:1). Cor. 12:1), pero distingue la adoración de los cristianos de los sacrificios de animales de la adoración del Antiguo Testamento. Sin embargo, nuestra adoración ahora se lleva a cabo por el poder del Espíritu Santo (15:16).
+
+---
+
+### Romanos 12:2
+No os conforméis... sed Transformados por la renovación de vuestra mente. Anteriormente, los cristianos eran “vanos en sus razonamientos” (1:21). Pero ahora, la mentalidad del cristiano debe ser determinada y reformada por el conocimiento del evangelio, por el poder del Espíritu y por las preocupaciones de la era venidera (8:5-9; 13:11-14), en lugar de por la moda pasajera de esta era (2 Cor. 4:18; 1 Jn. 2:17). Solo mediante esa renovación santificadora el cristiano se vuelve lo suficientemente sensible para “discernir” el comportamiento que la voluntad revelada de Dios requiere en cada situación.
+
+---
+
+### Romanos 12:3
+por la gracia que me es dada. El ministerio de Pablo existe sólo por gracia (1:5), al igual que los dones espirituales (gr. charismata, v. 6). Es esencial hacer una evaluación realista de los dones que uno tiene (“pensar con juicio sobrio”), e implica reconocer la “medida de fe” que uno tiene, es decir, saber hasta qué punto uno tiene la fe adecuada para ejercer dones particulares (v. 6) La fe por la cual somos justificados es una cuestión aparte.
+
+---
+
+### Romanos 12:4
+Como en 1 Corintios 12, Pablo hace uso de la analogía del cuerpo y sus diversas partes para ilustrar la naturaleza de la iglesia. Destaca su unidad (v. 5), su diversidad (v. 6) y la necesidad de reconocer los dones de cada uno. y usarlo con entusiasmo y de manera apropiada al servicio de los demás (vv. 6– 8).
+
+---
+
+### Romanos 12:6
+profecía. Profetizar es, en esencia, hablar la Palabra de Dios por medio de la inspiración y el llamado del Espíritu Santo. En este sentido, la profecía del NT es idéntica a la del AT. La profecía se distingue aquí y en otros pasajes de la enseñanza (v. 7; cf. Hch. 13:1; 1 Co. 12:29; Efe. 4:11) porque es un don revelador (Hch. 13:1–3; 21:10, 11). en proporción a nuestra fe. Algunos intérpretes ven la “fe” como la fe del profeta (cf. vv. 3, 6). Menos plausible es que otros entiendan que “fe” significa el contenido de verdad del evangelio como la norma y medida de cada enunciado profético (lo que en teología se denomina “la analogía de la fe”), un criterio vital para comprobar si el enunciado se ajusta al “modelo de las sanas palabras” (2 Tim. 1:13)
+
+---
+
+### Romanos 12:7
+Pablo reconoce la amplia variedad y practicidad de estos dones (gr. charismata ) y la interrelación de los dones naturales con ellos. A lo largo de este pasaje, queda claro que la bendición de aquellos a quienes se les ministra es la consideración primordial al usar los dones.
+
+---
+
+### Romanos 12:9
+Al igual que en 1 Corintios 12 y 13, cuando Pablo habla de la iglesia como el cuerpo de Cristo, enfatiza la importancia del amor. Su serie de exhortaciones rápidas transmite ecos de las enseñanzas de Jesús y se expresa en un lenguaje vívido. 12:9 Sé genuino. En el teatro griego clásico, el actor hipócrita llevaba una máscara. La conducta amorosa del cristiano no debe consistir en representar un papel o llevar una máscara, sino en una expresión auténtica de buena voluntad.
+
+---
+
+### Romanos 12:10
+Amaos unos a otros con amor fraternal. Afecto. Una combinación lingüística inusual de amor fraternal con el amor del afecto natural. La iglesia es una familia, la “casa de Dios” (1 Tim. 3:15; cf. 1 Tim. 5:1, 2).
+
+---
+
+### Romanos 12:11
+No debe haber vacilación ni pereza en la vida cristiana. El cristiano debe ser “ferviente”, vivir para Cristo con entusiasmo y energía. La nota de texto aquí y en Hechos 18:25, donde aparece la misma expresión, probablemente sea correcta al sugerir que el Espíritu de Dios evoca y fortalece el ferviente deseo de los creyentes de servir al Señor y a Su pueblo. ROMANOS 12:11
+
+---
+
+### Romanos 12:13
+Las necesidades de los santos. La generosidad hacia los creyentes necesitados distinguió la comunión de los primeros creyentes (Hechos 2:42, 44–46; 4:32–37; Hebreos 6:10; 13:16). La hospitalidad. La hospitalidad para los cristianos visitantes era otra parte importante de la vida cristiana primitiva (Hebreos 13:2; 3 Juan 5-8).
+
+---
+
+### Romanos 12:14
+Véase Lucas 6:27, 28.
+
+---
+
+### Romanos 12:15
+Véase Lucas 6:31. La unidad genuina del cuerpo de Cristo es especialmente evidente en la empatía de sus miembros en momentos de gran alegría o de profunda tristeza.
+
+---
+
+### Romanos 12:16
+El lenguaje de Pablo da la idea de que los cristianos comparten los mismos pensamientos unos con otros, otra indicación del papel estratégico de la mente en la santificación (vv. 1, 2). Una manifestación de esto será la ausencia de vanidad y orgullo en la posición mundana (Fil. 2:1-8). Los cristianos deben distinguirse por su disposición a “asociarse con los humildes”. Nunca seas sabio en tu propia opinión. Véase Proverbios 3:7. Otro punto de atención en el mundo de los pensamientos. La forma en que pensamos determina la forma en que vivimos.
+
+---
+
+### Romanos 12:17
+El tema unificador en los versículos 17-21 es el La manera en que el cristiano reacciona ante el entorno no cristiano.
+
+---
+
+### Romanos 12:18
+Vivir en paz con todos. El cristiano es un pacificador por obligación y objetivo. La armonía no siempre es posible, ya que La verdad divide y une a la vez. La doble calificación de Pablo (“Si... en la medida en que”) reconoce esto, pero la obligación de esforzarnos por lograr la paz en las relaciones personales con los demás permanece.
+
+---
+
+### Romanos 12
+El cristiano debe estar libre del deseo de “vengarse”. Tal liberación del instinto de venganza es posible porque el creyente sabe que Dios corregirá todos los males en Su propio juicio perfecto (Deut. 32:35). Además, la Escritura nos insta a mostrar gracia a los demás. malhechor porque Dios es paciente con él (Prov. 25:21, 22).
+
+---
+
+### Romanos 12:20
+amontonarás brasas sobre su cabeza. Hacer el bien a un enemigo puede hacer que su conciencia se remordiera y, por lo tanto, se convirtiera, o al menos podría provocarle un sentimiento de vergüenza tal que modificara su mala conducta.
+
+---
+
+### Romanos 13:1
+Los cristianos tienen una razón clara para la sumisión apropiada a las autoridades gobernantes: el reconocimiento de que Dios mismo es la fuente del gobierno en la sociedad (Prov. 8:15, 16; Dan. 2:21). Véase la nota teológica “Gobierno civil” en la página siguiente.
+
+---
+
+### Romanos 13:2
+Rebelión contra la autoridad civil implica rebelión contra la ordenanza de Dios (Éxodo 22:28).
+
+---
+
+### Romanos 13:4
+Al servicio de Dios para vuestro bien. La autoridad del estado es para el beneficio de los gobernados, la defensa de los inocentes y la restricción de la mala conducta. Estas son sus funciones normales y divinamente ordenadas, y Pablo supone que pueden llevarse a cabo en términos prácticos incluso cuando los gobiernos se declaran no cristianos. El NT también demuestra, de manera realista, que los gobiernos humanos son muy capaces de abusar de la justicia (Ap. 13). la espada. El ejercicio de la fuerza por el magistrado civil (cf. 1 Ped. 2:13, 14). Este poder es dado por Dios y debe ser usado según la voluntad de Dios. El magistrado civil puede participar lícitamente en guerras defensivas contra la agresión (cf. Deut. 20; 1 Cr 5,22; Ecl 3,8). El magistrado civil también puede ejecutar lícitamente la pena capital bajo condiciones específicas (cf. Gn 9,6; Dt 17,6.7). En otro lugar Pablo acepta el principio de tal castigo cuando sea apropiado (Hechos 25:11). Ira. Lo que el individuo no debe hacer por motivos de venganza (12:19), el Estado, como siervo de Dios con un llamado distintivo, puede hacerlo legítimamente en pos de la justicia.
+
+---
+
+### Romanos 13:6
+También pagáis impuestos. La sumisión cristiana es una respuesta de la conciencia tal como la instruye la revelación divina. Debido a que la tarea de gobernar está divinamente ordenada y requiere apoyo financiero, el cristiano debe pagar impuestos con un motivo y entendimiento distintivos, como un Elemento de obediencia y devoción a Dios (Mateo 17:24–27; 22:15–21). VOLVER ROMANOS 13:6
+
+---
+
+### Romanos 13:7
+Paguen a todos lo que les deben. Véase Mateo 22:21. Pablo evidentemente está familiarizado con la declaración de Jesús de “dar a César lo que es de César, y a Dios lo que es de Dios”, y aquí Indica cómo se aplica. Sobre el “honor”, véase 1 Pedro 2:17; Hechos 23:2–5.
+
+---
+
+### Romanos 13:8
+Pablo ahora aplica aún más su principio básico de la consagración cristiana. El vínculo que une los versículos 7 y 8 se encuentra en la exhortación del versículo 7 de que el cristiano tiene una obligación financiera con el estado. Esta es una aplicación de un principio general que se enuncia ahora, de que todas las obligaciones deben cumplirse. Una obligación es permanente: amar a los demás. 13:8 ha cumplido la ley. Véase la nota teológica “Antinomianismo” en la pág. 2272. Puesto que la ley de Dios es la ley del amor (Mateo 22:38-40) y el amor a Dios y al prójimo resumen nuestra obligación moral, entonces amar verdaderamente al prójimo (vv. 8, 9), o guardar la segunda tabla de la ley, “cumple” los requisitos de Dios (v. 10). Aquellos que no dependen de su propio cumplimiento de la ley sino de la obra de Dios en Cristo ahora son capacitados por Su Espíritu para cumplir progresivamente el justo requisito de la ley (8:1-4).
+
+---
+
+### Romanos 13:9
+Amarás a tu prójimo como a ti mismo. Véase Lev. 19:18; nota teológica “Amor” en la pág. 2036. Esto no es un estímulo al amor propio, sino más bien un llamado a extender a los demás la preocupación que tanto nos preocupa. Expresarse naturalmente en protegernos y proveer para nosotros mismos (Lucas 6:31). VOLVER ROMANOS 13:9
+
+---
+
+### Romanos 13:11
+Conocer el tiempo. El discernimiento espiritual es Enraizada en la comprensión de la revelación divina, el énfasis de Pablo en el papel de la mente es evidente una vez más. Pablo quiere que el creyente viva a la luz del regreso de Cristo. salvación. Aquí en el sentido de redención futura y final (5:9, 10; 8:23; 1 Tes. 5:9)
+
+---
+
+### Romanos 13:12
+La noche está muy avanzada. Pablo habla aquí de la “noche” de esta era presente. La “luz del mundo” ha llegado (Juan 8:12), y debemos prepararnos para la segunda venida de Cristo y la consumación de la era venidera. Despojémonos de nuestras armas y revistámonos. El uso de la metáfora “las armas de la luz” enfatiza que desarrollar las gracias espirituales positivas, no solo rechazar los vicios, es esencial para la defensa espiritual. En otro lugar, Pablo enumera partes de esta “armadura” en contextos que contrastan de manera similar la luz del día con la oscuridad de la noche (1 Tes. 5:4-8; Efe. 6:10-20).
+
+---
+
+### Romanos 13:13
+Este pasaje jugó un papel crucial en la conversión de Agustín de Hipona. Agustín escribió en sus Confesiones que al leer estos versículos, “fue como si la luz de la confianza inundara mi corazón y se disiparan todas las tinieblas de la duda”. 13:13 Andemos como es debido. La advertencia de Pablo contra un estilo de vida pecaminoso incluye sorprendentemente no sólo los pecados tradicionales del cuerpo (“orgías y borracheras... inmoralidad sexual y sensualidad”), sino también vicios o prácticas insidiosas que pueden albergarse en el corazón o incluso exhibirse en la iglesia (“peleas y celos”).
+
+---
+
+### Romanos 14:1
+En cuanto al que es débil, Pablo pasa ahora a abordar una aplicación específica de la ley del amor a los cristianos romanos. La actitud básica del cristiano hacia un hermano cristiano es de bienvenida y aceptación basada en la actitud de Dios hacia nosotros en Cristo (v. 3; 15:7). Debe haber caridad hacia la persona “débil” cuya conciencia todavía está atada. Por escrúpulos de los que normalmente nos libera el evangelio (v. 2). Pero aquellos cuya conciencia todavía les exige abstenerse de la carne (que en sí no es pecado) deben abstenerse de condenar a quienes pueden consumirla con una conciencia tranquila (v. 3). Tanto los “débiles” como los “fuertes” con respecto a la dieta o al calendario (vv. 5, 6) deben acoger al otro en deferencia a su Señor común, a quien cada uno responde en última instancia. Disputa por opiniones. En este caso, se trataba de cuestiones de comida, bebida y la observancia religiosa de ciertos días. Aunque Pablo no considera que estas controversias sean insolubles, considera que la unidad de la comunidad de la iglesia es más importante que resolverlas a satisfacción de todos (cf. 12:5, 10, 16). Los asuntos que se tratan aquí no pertenecen al evangelio, sino a la relativa fortaleza o debilidad de la fe del individuo en el evangelio. Cuando están en juego aspectos esenciales del evangelio, la respuesta de Pablo es muy diferente (p. ej., Gálatas 1:6, 7; 3:1–5; Filipenses 3:2, 18, 19).
+
+---
+
+### Romanos 14:2
+“Come solo verduras”. El Antiguo Testamento no exige el vegetarianismo, aunque aparece allí (p. ej., Dan. 1:12). Es posible que algunos en Roma hayan adoptado una dieta vegetariana para evitar los problemas de conciencia que rodean la asociación de la carne con los rituales paganos de los templos (1 Cor. 8–10).
+
+---
+
+### Romanos 14:3
+menospreciar... juzgar. La tendencia de quienes entienden mejor el evangelio es la de impacientarse con las inhibiciones de los “débiles” como esclavitud legalista. La tentación de los “débiles” es condenar a los “fuertes” por un comportamiento que parece ser una licencia sin ley. Estas respuestas equivocadas deben ceder ante la luz de la aceptación misericordiosa de Dios tanto de los “débiles” como de los “fuertes”. y “fuerte”. Además, un hermano creyente es siervo de Dios, no nuestro, y debe rendirle cuentas a Él, no a nosotros. Debe entenderse que las cuestiones en esas posibles disputas no son asuntos de moralidad real, sino de cosas moralmente indiferentes.
+
+---
+
+### Romanos 14:5
+Uno estima que cada día es mejor El año judío se caracteriza por una serie de días santos, y Pablo se refiere a estos días, no al sábado semanal. Si se tratara del sábado, habría sido más natural decir: “Un hombre considera el sábado como algo superior a los demás días” . Cada uno debe estar plenamente convencido. Véase 4:21 para otro ejemplo de este término. Es espiritualmente peligroso actuar en contra de la propia conciencia, incluso si la conciencia es débil y prohíbe lo que Dios mismo permite (vv. 14, 15; 1 Cor. 8:9–13).
+
+---
+
+### Romanos 14:6
+Una apelación a lo que ambos grupos comparten (v. 3), es decir, el deseo de honrar al mismo Señor. El hecho de que ambos le pertenezcan pone en perspectiva las divisiones menores. Véase la nota teológica “El reino de Dios” en la p. 1823.
+
+---
+
+### Romanos 14:9
+Solo Cristo es el Señor (v. 8) y Juez de su pueblo. El costo que tuvo para Él este privilegio fue inmenso y expone lo inapropiado que es que los creyentes juzguen o desprecien a sus hermanos. Debemos dar cuenta de nuestras propias vidas al Señor, como quienes están siendo juzgados, no como quienes juzgan.
+
+---
+
+### Romanos 15:4
+Aunque la propia conciencia de Pablo ha sido liberada por la enseñanza de Cristo (v. 14; cf. Mr. 7:18, 19), él reconoce que no todos los creyentes han llegado a disfrutar de tal libertad. La consideración por tales hermanos (“andar en amor”, v. 15) significa evitar conductas que puedan angustiar a los demás. Dos mandatos específicos a este efecto siguen en los versículos 15 y 16. escrita para nuestra instrucción. Es una enseñanza básica del NT que las Escrituras del AT fueron escritas por inspiración divina para el beneficio de los cristianos (1 Cor. 10:11; 2 Tim. 3:15–17; 1 Ped. 1:10–12).
+
+---
+
+### Romanos 14:14
+Nada es inmundo en sí mismo. Mientras que Pablo aconseja a los creyentes más fuertes que sean sensibles a las conciencias de los creyentes más débiles, esta declaración, que leerá toda la iglesia, llama indirectamente a los creyentes débiles a madurar en la fe y entender que son libres en Cristo para participar de sus buenos dones. Debido a que nada es inmundo en sí mismo, no pueden ejercer la “tiranía del hermano más débil” e imponer sus escrúpulos personales con respecto a asuntos indiferentes a otros creyentes.
+
+---
+
+### Romanos 14:15
+Por lo que comes, no destruyas el pecado. Aquel por quien Cristo murió. En el contexto de la fe judía, “destruir” significa separarse de la comunidad del pacto (Deut. 28:21, 45, 48, 51, 61, 63). Fomentar un comportamiento que las conciencias débiles de los creyentes prohíben es alentarlos. ir en contra de su conciencia, un acto grave y peligroso.
+
+---
+
+### Romanos 14:16
+Se insta a los fuertes a sopesar la importancia de ejercer su libertad frente a dos consideraciones: (a) el uso de su libertad puede traer división y descrédito a la iglesia; (b) el reino de Dios (y por lo tanto nuestra libertad) no es un asunto de comida y bebida, sino de las bendiciones de la gracia (5:1, 2). Puesto que la libertad no consiste en estas cosas, No se pueden perder si nos abstenemos de ellos.
+
+---
+
+### Romanos 14:18
+aprobados por los hombres. Véase el v. 16. Si bien solo Dios es nuestro Juez (v. 12), el impacto de nuestras acciones en los demás desempeña un papel vital en la comunión y la evangelización.
+
+---
+
+### Romanos 14
+La responsabilidad del creyente ahora se enuncia de manera positiva: evitar la destrucción de los demás se complementa con la promoción de la “paz” y las cosas que “edifican” (v. 19). Para los “fuertes” (15:1), esto incluye tanto mantener la comunión con los “débiles” como también alentarlos a comprender la libertad que es suya en Cristo. Cuando se tienen tales objetivos en mente, la libertad de comer y beber se subordinará; el bienestar de los El hermano tendrá prioridad sobre el disfrute de la carne y el vino.
+
+---
+
+### Romanos 14:22
+Pablo insta además a los “fuertes” (15:1) disfrutar del hecho de su libertad de conciencia en la presencia de Dios (mientras se abstenían de ejercerla públicamente).
+
+---
+
+### Romanos 15:1
+Nosotros que somos fuertes tenemos Obligación de soportar las flaquezas de los débiles. Pablo se considera uno de los “fuertes”. Ve la conciencia mal informada de los “débiles” como una debilidad real, pero enfatiza la responsabilidad de los “fuertes” de ser pacientes con los “débiles”. No alienta sentimientos de orgullo ni hacer alarde de la propia libertad en asuntos que ofenden a los débiles.
+
+---
+
+### Romanos 15:2
+agradar a su prójimo . Pablo nunca modificará el evangelio con el fin de agradar a la gente (Gálatas 1:10), pero está dispuesto a renunciar al ejercicio de su libertad en Cristo para servir y salvaguardar espiritualmente a los demás. Véase 14:19; cf. 1 Corintios 8:1; 10:23, 24, 32, 33.
+
+---
+
+### Romanos 15:3
+Pablo cita el Salmo 69, uno de los salmos más citados en el NT (ver 11:9-10; Juan 2:17; Hechos 1:20). La disposición del Mesías a negarse a sí mismo y sufrir por el bien de los demás Debería servir de ejemplo a los cristianos de Roma.
+
+---
+
+### Romanos 15:6
+a una voz. Véase 10:9, 10. La unidad en la iglesia es esencial para que Dios sea glorificado. Pablo ha demostrado que la humanidad no ha alcanzado la gloria de Dios, pero que ha sido restaurada a ella en la obra reconciliadora de Cristo (1:21, 23; 3:23; 5:2, 11; 8:17, 30).
+
+---
+
+### Romanos 15:8
+Cristo... siervo de la circuncisión. La aceptación mutua de los creyentes tiene su raíz en la humildad de Cristo (Marcos 10:45). El ministerio de Jesús el Mesías fue primeramente a las ovejas perdidas de Israel (Mt. 15:24) —“al judío primeramente” (1:16)—confirma la veracidad de Dios en su fidelidad a sus promesas, como Pablo demostró extensamente en los capítulos 9- 11. 15:9 Los gentiles. La fidelidad de Dios al atraer a un remanente de israelitas a la fe en Cristo da a los creyentes gentiles una razón para confiar en su Palabra fiel, mientras que la inclusión de los gentiles muestra a los creyentes judíos y gentiles por igual que Dios cumple sus promesas no porque esté en deuda con sus criaturas sino por su misericordia y fidelidad (véase 11:30–32).
+
+---
+
+### Romanos 15:9
+Una serie de citas de tres secciones de las Escrituras hebreas: la Ley (v. 10, Deut. 32:43 LXX), los Profetas (v. 12, Is. 11:10) y los Escritos (vv. 9, 11, Sal. 18:49; 117:1). Representa el testimonio unánime de todo el Antiguo Testamento de la intención de Dios de incluir a los gentiles con Su pueblo Israel en Su adoración y bajo Su reinado.
+
+---
+
+### Romanos 15:13
+Véase la nota teológica “Esperanza” en la pág. 2206. Lo que se describió como el efecto de la Escritura en el v. 4 (tener esperanza) y se prometió en la cita de Is. 11:10 (v. 12) ahora se atribuye a la obra del Espíritu Santo. Pablo sigue aquí un patrón evidente en todo el NT: los actos salvadores de Dios se atribuyen a la Palabra de Dios así como a la obra del Espíritu Santo (por ejemplo, la regeneración, 1 Ped. 1:23; la santificación, Juan 17:17; la salvación, Romanos 1:16; el escudriñamiento del corazón, Hebreos 4:12).
+
+---
+
+### Romanos 15
+Pablo ahora comienza a concluir su carta volviendo al tema de la introducción: su propio ministerio y su visión de la expansión de la influencia del evangelio. 15:14 Hermanos míos. Otra indicación de profunda emoción (1:13; 7:1, 4; 11:25; 12:1). Pablo amablemente asegura a los romanos que su larga exposición de El evangelio no pretende suscitar dudas sobre su comprensión espiritual. No está en duda su conocimiento del evangelio ni su capacidad para aplicarlo prácticamente en la admonición mutua (“capaces de instruirse unos a otros”; cf. Col. 3:16). Pablo describe su ministerio de manera muy natural en términos trinitarios (Dios el Padre, vv. 17, 18; Dios el Hijo, vv. 17–20). 20; Dios el Espíritu Santo, v. 19; cf. v. 16).
+
+---
+
+### Romanos 15:16
+ministro de Cristo Jesús para el Gentiles. Aunque Pablo todavía no había llegado a Roma, la composición mayoritariamente gentil de las congregaciones de la capital imperial coloca a estos creyentes bajo su distintiva esfera de autoridad como apóstol de los gentiles (11:13; Gál. 2:7–9). El servicio sacerdotal del evangelio de Dios. Pablo ve la predicación del evangelio como el medio por el cual los gentiles serán llevados a Dios como una ofrenda sacrificial de agradecimiento (12:1). Para usos similares de imágenes sacrificiales sacerdotales, véase Filipenses 2:17; 4:18; Hebreos 13:15, 16.
+
+---
+
+### Romanos 15:19
+Señales y prodigios. Véase Éxodo 7:3; Deuteronomio 14:1-15. 4:34; 6:22; 7:19; Is. 8:18; Dn. 6:27. Una frase arraigada en la autenticación del ministerio de Moisés en el tiempo del éxodo. Dios dio periódicamente tales milagros en coyunturas críticas de la historia redentora, como el éxodo, los ministerios proféticos de Elías y Eliseo, la preservación de Su pueblo en el tiempo de Daniel, y el ministerio de Cristo y los apóstoles. Estos eventos son inusuales más que normales y señalan las etapas sucesivas de la historia redentora y la nueva revelación que las acompañó. Así como las señales y los prodigios expresaron el respaldo de Dios al ministerio y las afirmaciones de Jesús (Hechos 2:22-24; Juan 5:36), Pablo puede invocar tales señales como autenticación de su propia autoridad apostólica (2 Cor. 12:12; cf. Heb. 2:3, 4). Desde Jerusalén y hasta Ilírico. Los viajes de Pablo, según los Hechos, se extendieron desde el Mediterráneo oriental hasta Macedonia al oeste. No hay registro bíblico de que él entrara personalmente en Ilírico (al noroeste de Macedonia). Si bien es posible que lo haya hecho, parece más probable que se refiera a que fue hasta Macedonia. Estableció centros de misión, en lugar de predicar personalmente en cada aldea. Desde esos centros, es posible que incluso Ilírico haya sido alcanzada con el evangelio.
+
+---
+
+### Romanos 15:20
+El fundamento de otro. El llamado de Pablo Se trata de centrarse en sentar las bases del conocimiento de Cristo en comunidades donde el evangelio es desconocido (1 Cor. 3:10, 11).
+
+---
+
+### Romanos 15:23
+Dos cosas hacen posible ahora la visita a Roma: (a) la fase actual del encargo de Pablo se ha cumplido (no tiene “espacio” para predicar en el Mediterráneo oriental porque el nombre de Cristo ha llegado a los centros urbanos de esa región, v. 20); (b) la nueva fase que implica El acercamiento a España es inminente y Paul busca su colaboración en el mismo. ROMANOS 15:23 15:24 España. El extremo occidental del mundo antiguo. Algunos sugieren que Pablo consideraba a España como la Tarsis de Is. 66:19, y que la extensión de su predicación allí era importante para la misión cristiana (Mt. 24:14; Hch. 1:8).
+
+---
+
+### Romanos 15:25
+Pablo revela ahora sus planes inmediatos de visitar Jerusalén con las ofrendas que las iglesias gentiles habían reunido para los cristianos de allí (véase 2 Corintios 8; 9). En esta época, Jerusalén es una ciudad empobrecida en general; pero además, los cristianos de allí sufren dificultades particulares como minoría sospechosa. Pero Pablo ve en la ofrenda un significado más profundo que la caridad. Es un deber (v. 27), una obligación solemne de los gentiles en vista del privilegio que han recibido al ser injertados en el olivo de Dios (11:17), llegando a participar de la relación de pacto de Israel con Dios a través del evangelio con sus bendiciones espirituales. Esta reciprocidad se ajusta al principio general de que quienes reciben bendiciones espirituales deben compartir sus propias bendiciones materiales (1 Cor. 9:3–4). 14; Gál. 6:6).
+
+---
+
+### Romanos 15:29
+La plenitud de la bendición de Cristo. Un comentario sorprendente en vista de la manera en que las aspiraciones de Pablo finalmente se cumplen, es decir, bajo custodia imperial (Hechos 28:11-16) y enfrentando cargos no especificados que, en principio, pueden llevar a la ejecución (Fil. 1:19-21).
+
+---
+
+### Romanos 15:31
+La preocupación de Pablo es doble: (a) que él sea protegido de la hostilidad de los judíos incrédulos que lo han perseguido durante gran parte de todo su ministerio (ver Hechos 21:27– 22:39; 23:12–35); (b) que los cristianos judíos en Jerusalén respondan favorablemente al don gentil. y por tanto al ministerio del apóstol (v. 32; véase Hechos 21:17–20).
+
+---
+
+### Romanos 15:33
+El Dios de paz. Uno de los principios de Pablo designaciones favoritas para Dios (16:20; 2 Cor. 13:11; Fil. 4:9; 1 Tes. 5:23; 2 Tes. 3:16), pero particularmente apropiado aquí en relación con su lucha actual (v. 30)
+
+---
+
+### Romanos 16:1
+Las cartas de Pablo suelen terminar con noticias personales y saludos. El capítulo final de Romanos es notable por la gran cantidad de hermanos creyentes que se mencionan. Estos versículos dan una idea de la calidez de las relaciones personales del apóstol, así como de la comunión de los primeros cristianos. Estos saludos son especialmente dignos de mención cuando consideramos que Pablo no había visitado personalmente la iglesia en Roma. Nombra a tantos entre los creyentes de Roma para demostrar sus muchos vínculos personales con las congregaciones que componen esta iglesia en la capital imperial. 16:1 Febe. Probablemente la portadora de la carta de Pablo. El nombre es común en la mitología griega e indica un origen gentil. un siervo. La palabra de Pablo (gr. diakonos ) se traduce de diversas maneras como "siervo" (1 Tim. 4:6), o “diácono” (Fil. 1:1; 1 Tim. 3:8). Es poco probable que Pablo use el término para referirse al cargo específico de diácono en la iglesia; en cambio, está describiendo a Febe como una sierva de la iglesia en un sentido más general. Cencreas. El puerto de Corinto en el golfo Sarónico, que indica la ubicación de Pablo cuando fue enviado a Romanos.
+
+---
+
+### Romanos 16:3
+Priscila y Aquila. La pareja fabricaba tiendas como Pablo (Hechos 18:3). Él estaba con ellos en Corinto. Habían salido de Roma después del decreto de Claudio y habían acompañado a Pablo a Éfeso (Hechos 18:18). Enseñaron a Apolos (Hechos 18:24-26) y luego regresaron a Roma. ROMANOS 16:3
+
+---
+
+### Romanos 16:5
+Epeneto. Evidentemente el primero de una cosecha de conversos en la provincia romana de Asia.
+
+---
+
+### Romanos 16:6
+María, quien trabajó mucho por ti. Pablo reconoce el servicio devoto de las mujeres (v. 12).
+
+---
+
+### Romanos 16:7
+Andrónico y Junias. Los primeros comentaristas entendieron que se trataba de un esposo y una esposa. Eran compañeros. Judíos, y se habían convertido (“en Cristo”) antes que Pablo mismo. Al parecer habían estado en prisión en algún momento con Pablo (cf. 2 Cor. 11:23) y habían servido con distinción. bien conocido por los apóstoles. Algunos traducen esto como “destacado entre los apóstoles” (p. ej., NVI) y usan estas palabras para justificar la ordenación de mujeres, aunque la versión ESV es la mejor traducción. De cualquier manera, debe recordarse que la palabra “apóstol” se usa no solo en un sentido técnico para los Doce y Pablo, sino también en un sentido no técnico, refiriéndose a los enviados de la iglesia (nota del texto; 2 Cor. 1:1 nota). Pablo es claro en otros lugares al decir que sólo los hombres pueden ser ordenados para el oficio de “supervisor”, es decir, anciano. (1 Tim. 3:1–7)
+
+---
+
+### Romanos 16:8
+Ampliato. Probablemente un esclavo, cuyo nombre aparece en una tumba en la Catacumba de Domitila, sobrina del emperador Domiciano.
+
+---
+
+### Romanos 16:9
+Urbano... Estaquis. Nombres comunes de esclavos, el primero romano, el segundo griego.
+
+---
+
+### Romanos 16:10
+Apeles. Nombre griego común. Es probable que Pablo lo declare “aprobado en Cristo” porque se había distinguido en la prueba y se había mantenido fiel. Aristóbulo. Es posible que fuera nieto de Herodes el Grande y amigo del emperador Claudio.
+
+---
+
+### Romanos 16:11
+Herodión. Quizás un liberto de la casa de Herodes, ya que los libertos tomaban el nombre de su patrón. Narciso. Quizás para identificarse con Narciso, el ayudante de Claudio, quien Agripina la obligó a suicidarse después de la ascensión al trono de Nerón. ROMANOS 16:11
+
+---
+
+### Romanos 16:12
+Trifena y Trifosa. Dos mujeres con nombres de raíz común (“gentil”, “delicada”) y que, por lo tanto, posiblemente eran hermanas. Persis. Otra mujer reconocida por su diligente trabajo por el Señor. VOLVER ROMANOS 16:12
+
+---
+
+### Romanos 16:13
+Rufo, escogido en el Señor. Uno de los nombres más intrigantes de la lista en vista de Marcos 15:21, un evangelio posiblemente escrito desde Roma. “Escogido” puede reflejar las circunstancias únicas que lo llevaron a ser elegido. Su familia entró en contacto con Cristo. Simeón de Cirene, a quien los soldados obligaron a llevar la cruz de Jesús al lugar de la ejecución, tenía dos hijos, Alejandro y Rufo, que presumiblemente eran conocidos por los lectores de Marcos. El Rufo que el apóstol menciona aquí puede ser el mismo Rufo que era hijo de Simón. La alusión de Pablo a la madre como "su madre... también para mí" sugiere un profundo afecto por la familia.
+
+---
+
+### Romanos 16:16
+El beso santo. El beso sigue siendo una forma común de saludo en Oriente hasta el día de hoy. Aquí y en otros lugares, Pablo insta a los creyentes a santificar sus saludos como símbolos de la comunión cristiana (1 Cor. 16:20; 2 Cor. 13:12; 1 Tes. 5:26), y Pedro también ordenó la práctica para las iglesias de Asia Menor (1 Ped. 5:14).
+
+---
+
+### Romanos 16
+La reflexión sobre su conocimiento de estos creyentes, sus problemas en Roma (cap. 14) y la actividad divisiva de Satanás (v. 20) evoca un llamado urgente a los cristianos para que guarden su unidad (Efesios 4:1-4). 4:3). Deben evitar a los “que causan divisiones... en contra de la doctrina que vosotros habéis aprendido”. Sin rodeos, indica que su espíritu divisivo es pecaminoso, una marca de vida en la carne y una forma de autocomplacencia (Gál. 5:19, 20). Los cristianos deben aprender a no dejarse engañar por “palabras suaves y lisonjas” (v. 18).
+
+---
+
+### Romanos 16:19
+Vuestra obediencia es notoria a todos. No sorprende que la fe de los seguidores de Jesús que vivían en la capital del vasto Imperio Romano (1:8) y la obediencia que emanaba de esa fe se hayan hecho bien conocidas en todo el mundo grecorromano. Inocente. Los romanos necesitan sabiduría espiritual y corazones sin mancha de maldad.
+
+---
+
+### Romanos 16:20
+Antes de los saludos finales y la doxología, Pablo incluye una promesa de naturaleza profética, arraigada en la primera promesa bíblica de liberación en Génesis 3:15 (ver Salmo 91:13; Lucas 10:18, 19). Satanás está detrás de lo que es “malo” (v. 19; cf. Génesis 3:12; ver también la nota teológica). “Satanás” en la pág. 760). “El Dios de la paz” (plenitud e integridad, así como tranquilidad) actuará como el guerrero divino para vencerlo. Esto sucederá “pronto.” Pablo habla aquí de las últimas cosas, que por la fe siempre se ven como cercanas. La gracia de nuestro Señor Jesucristo sea con vosotros. Un final típicamente paulino (Gálatas 6:18; 1 Tesalonicenses 5:28).
+
+---
+
+### Romanos 16:21
+Junto con Silas, Timoteo era el siervo de Pablo. compañero de trabajo más cercano después del desacuerdo con Bernabé (Hechos 15: 36-40) y es mencionado en diez de las cartas de Pablo. Lucio (a quien algunos identifican con Lucas), Jasón (posiblemente anfitrión de Pablo en Tesalónica, Hechos 17:5-9) y Sosi pater (Hechos 20:4) eran posiblemente delegados de la iglesia que acompañaban a Pablo para entregar el Recolección en Jerusalén.
+
+---
+
+### Romanos 16:22
+I Tertius. Pablo usó regularmente un secretario, identificando sus cartas como suyas mediante un breve saludo escrito en su propio idioma. escritura a mano (1 Cor. 16:21; Gál. 6:11; Col. 4:18; 2 Tes. 3:17).
+
+---
+
+### Romanos 16:23
+Pablo pudo haber estado residiendo con Gayo en el momento de escribirse. Se supone que se le identifica con el Gayo de 1 Cor. 1:14, y puede ser el (¿Gayo?) Tito Justo de Hechos 18:7. Un Erasto es mencionado en Hechos 19:22 y 2 Tim. 4:20. No sabemos si este es el mismo hombre. De mayor interés es que un cristiano ocupaba un puesto de tal responsabilidad en el gobierno local de Corinto, hecho que ilustra que la Los primeros cristianos podían y de hecho prestaban un servicio fiel en el gobierno. posiciones (véase 13:1–7). De Cuarto no se sabe nada.
+
+---
+
+### Romanos 16:25
+La autenticidad de este cierre La doxología es cuestionada por algunos debido a su extensión, su énfasis en misterio, y su historia textual (se encuentra en diferentes puntos de la carta , o incluso omitido por completo en varios manuscritos antiguos). Sin embargo, hay una cierta Lo apropiado de su extensión es que aparece al final de una carta como Romanos. Los temas llevan a una conclusión adecuada mucho de lo que ya se ha dicho. En particular, Pablo llama la atención sobre su propia enseñanza del evangelio (2:16; cf. 1 Tes. 1:5; 2 Tim. 2:8) y su poder para edificar (1:11), para la revelación de Dios. misterio (11:25; cf. Ef. 3:2–6), a la fe y a la obediencia entre las naciones (1:5), y a la sabiduría de Dios en la redención (11:33; cf. Ef. 3:10–12).
+
+---
+
+### Romanos 16:26
+pero ahora tiene... a través del profeta escritos se han dado a conocer. El “ahora” de Pablo podría sugerir que se está refiriendo a las Escrituras del NT, pero su énfasis es que es sólo ahora que el mensaje ya consagrado en el AT y “ahora” “revelado” a la luz de la palabra de Cristo. Su venida se extiende a las naciones, como lo señaló anteriormente en 1:2 y 3:21.
+
+---

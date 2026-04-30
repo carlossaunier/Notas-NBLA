@@ -1,0 +1,331 @@
+# Notas de Estudio - 2 Timoteo
+
+### 2 Timoteo 1:1
+apóstol de Cristo Jesús. Enviado como testigo ocular del Cristo resucitado y como su representante oficial (2 TIMOTEO 1:1) Cor. 1:1 nota). por la voluntad de Dios. Pablo identifica a quien lo comisionó, enfatizando que su apostolado no se debe a un nombramiento humano ni a un autodesignación (1 Cor. 1:1; 2 Cor. 1:1; Ef. 1:1; Col. 1:1). según la promesa de la vida que es en Cristo Jesús. El papel del apóstol es proclamar la vida que se encuentra únicamente en Cristo (1 Tim. 1:16 nota).
+
+---
+
+### 2 Timoteo 1:2
+Amado hijo. Ver Introducción a 1 Timoteo: Fecha y ocasión; 1 Cor. 4:17 (cf. nota 1 Tim. 1:2). Gracia... nuestro Señor. Véase nota 1 Tim. 1:2.
+
+---
+
+### 2 Timoteo 1:3
+Como en la mayoría de sus cartas (las excepciones son Gálatas, 1 Timoteo y Tito), Pablo sigue su saludo con una sección en la que da gracias a Dios por los destinatarios de la carta. Aquí se centra en Su relación con Timoteo y su confianza en la fe de Timoteo.
+
+---
+
+### 2 Timoteo 1:4
+Recuerdo tus lágrimas. Probablemente las lágrimas que Timoteo derramó la última vez que Pablo lo dejó. Anhelo verte. Pablo anticipa su petición en 4:9, 21.
+
+---
+
+### 2 Timoteo 1:5
+Loida... Eunice. Estas mujeres son nombradas solamente aquí en el NT. Eran judías, a diferencia del padre de Timoteo, un griego, quien aparentemente no había permitido que Eunice circuncidara a su hijo en la infancia (Hechos 16:1-3). No obstante, a Timoteo se le habían enseñado las Sagradas Escrituras. “Desde la niñez” (3:15), y la semilla de la Palabra de Dios había florecido en el corazón de Timoteo cuando Pablo llevó la noticia de Jesús el Mesías a Listra. Véase Introducción a 1 Timoteo: Fecha y ocasión.
+
+---
+
+### 2 Timoteo 1
+Pablo pasa al cuerpo del evangelio carta. Mientras exhorta a Timoteo a la valentía y la fidelidad, Pablo analiza la evangelio y su propio papel en proclamarlo. 1:6 avivar el fuego del don de Dios. Esta fuerte expresión sugiere que Timoteo estaba siendo menos enérgico de lo que debería haber sido al usar el poder espiritual. don que Dios le había dado (1 Tim. 4:14). Imposición de mis manos. Véase nota 1 Tim. 1:18; 4:14; 5:22.
+
+---
+
+### 2 Timoteo 1:7
+temor. O, “cobardía ”. Esta fuerte La expresión era necesaria, dada la timidez natural de Timothy y la gravedad de su situación.
+
+---
+
+### 2 Timoteo 1:8
+Yo, su prisionero. Pablo está en prisión en Roma (2:9; cf. Introducción: Fecha y ocasión).
+
+---
+
+### 2 Timoteo 1:9
+a un llamamiento santo. La meta del llamamiento de Dios La elección y el llamado es la santificación de su pueblo (Efesios 1.4). No... gracia. Esta es una afirmación maravillosa de que la salvación es por gracia, no por... mérito humano (Efesios 2:8, 9; véase Tito 3:4–6). por su propio propósito. El decreto y la obra de redención de Dios se basan únicamente por Su propio propósito y beneplácito. En otros lugares, este propósito divino es identificado en términos de misericordia (Tito 3:5) y amor (Efesios 1:4, 5). antes de que comenzaran los siglos. Una afirmación de que el decreto divino de redención por medio de Cristo es desde la eternidad (Efesios 1:4; Tito 1:2; 1 Pedro 1:20; Apocalipsis 13:8). De esta manera, Pablo subraya este punto de que nuestra redención es enteramente de gracia y No responde en absoluto a nuestros esfuerzos ni se basa en ellos.
+
+---
+
+### 2 Timoteo 1:10
+la aparición. En otro lugar Pablo Aplica consistentemente este término a la segunda venida de Jesús al final de la historia (4:1, 8; 1 Tim. 6:14; Tito 2:13), pero aquí se refiere a Su encarnación en Su primera próximo. Nuestro Salvador Jesucristo. Cristo es el Mediador del pacto de gracia (Tito 1:4; 2:13; 3:6). que abolió la muerte y sacó a la luz la vida y la inmortalidad . Es decir, por medio de su muerte y resurrección (Hebreos 2:14, 15; Apocalipsis 1:18).
+
+---
+
+### 2 Timoteo 1:11
+predicador, apóstol y maestro. Véase 1 Tim. 2:7.
+
+---
+
+### 2 Timoteo 1:12
+Sufro. Pablo está en prisión (v. 8; 2:9). Todo el ministerio de Pablo se ha caracterizado por el sufrimiento por Cristo (Hechos 9:16; 2 Cor. 11:23–33). No me avergüenzo. Después de exhortar a Timoteo a no avergonzarse de hablar por Cristo (v. 8), Pablo se presenta como un modelo de valentía frente al sufrimiento (2:8-10; 3:10, 11). El evangelio es una locura para un mundo que perece, pero los siervos de Dios no se avergüenzan del evangelio porque es la sabiduría misma de Dios (1 Timoteo 1:11). Cor. 1:18–2:5; Rom. 1:16, 17). Había pedido que las iglesias oraran para no avergonzarse de Cristo y su evangelio, sino para presentarlo con valentía en la corte más alta del imperio (Fil. 1:19, 20; Efe. 6:19, 20). Ahora, en su segundo encarcelamiento en Roma, sus oraciones todavía están siendo respondidas. aquel Día. Día del Juicio (v. 18; 4:8). lo que se me ha confiado. Esta oración relativa refleja el griego conciso. La expresión “mi depósito” hace referencia al evangelio del que Pablo ha sido mayordomo y custodio. Al completar su carrera, Pablo sabe que Dios protegerá su propia palabra de la pérdida o la distorsión. Puesto que Dios lo hará por medio de sus mensajeros, Pablo también le encarga a Timoteo, usando el mismo término, que “cuide el buen depósito que se le ha confiado” (v. 14).
+
+---
+
+### 2 Timoteo 1:13
+Palabras sanas. Este tema se repite a lo largo de las cartas pastorales (1 Tim. 1:10 nota; 6:3; Tito 1:9; 2:1), aunque solo aquí Pablo indica que estas palabras que imparten salud están ordenadas de una manera “modelo”: un sistema de verdades interconectadas y relacionadas.
+
+---
+
+### 2 Timoteo 1:14
+el buen depósito que te fue confiado. Véase el versículo 12 y la nota sobre 1 Timoteo 6:20.
+
+---
+
+### 2 Timoteo 1:15
+La preocupación de Pablo por la fidelidad de Timoteo lo lleva a exponer ejemplos específicos de infidelidad y fidelidad. 1:15 todos. Pablo probablemente está escribiendo con una exageración intencional para asegurarse de que sus lectores vean el alcance de la deslealtad. Al mismo tiempo, más adelante expresa su angustia por estar prácticamente solos, por una combinación de deserción (Demas, 4:10; otros, 4:16) y el despliegue de colegas fieles a otros lugares (Crescente, Tito, Tíquico, 4:10, 12). Asia. Provincia romana situada al otro lado del mar Egeo, frente a Grecia, y que hoy forma parte del oeste de Turquía. Éfeso, donde Timoteo servía como representante de Pablo, era la ciudad principal de esta provincia. Figelo y Hermógenes. No se mencionan en ninguna otra parte del NT. Probablemente Pablo. Los menciona porque contaba con su apoyo.
+
+---
+
+### 2 Timoteo 1:16
+Onesíforo. Miembro de la iglesia de Éfeso que se distinguió por su lealtad a Pablo (v. 18; cf. 4:19). Su disposición proactiva, al llegar a Roma, para encontrar y servir a Pablo sin vergüenza, a pesar de las cadenas del apóstol, es un ejemplo saludable para el hijo amado de Pablo, Timoteo (véase v. 8).
+
+---
+
+### 2 Timoteo 1:17
+cuando llegó a Roma. Es posible que Onesíforo haya venido a Roma específicamente para ayudar a Pablo, ya que Epafrodito había viajado allí anteriormente en representación de la iglesia de Filipos (Fil. 2:25–30; 4:18).
+
+---
+
+### 2 Timoteo 1:18
+Aquel día. El día del juicio (v. 12; 4:8).
+
+---
+
+### 2 Timoteo 2
+Pablo nuevamente exhorta a Timoteo a ser fiel, comenzando con tres analogías de la vida cotidiana que enfatizan la devoción incondicional a una tarea. 2:1 Hijo mío. Véase la nota sobre 1:2. Pablo traza analogías con el ministerio de Timoteo hacia Cristo desde tres esferas de su vocación: la vida militar (vv. 3, 4), los deportes (v. 5) y la agricultura (v. 6). Luego convoca a Timoteo a meditar sobre las implicaciones de estas ilustraciones (v. 7). 2:3, 4 Un buen soldado de Cristo Jesús. De los soldados de Cristo se exige la disposición a sufrir, la lealtad y un compromiso decidido para agradar a su comandante. Para otros usos que hace Pablo de las metáforas militares para la vida cristiana, véase 4:7; Romanos 13:12, 14; 1 Corintios 9:7; 2 Corintios 6:7; 10:4; Efesios 6:10-20; Filipenses 1:27; 2:25; 4:3; 1 Timoteo 1:18; 6:12; Filemón 2.
+
+---
+
+### 2 Timoteo 2:2
+muchos testigos. Por lo tanto, esta declaración puede referirse a la ordenación de Timoteo mediante la imposición de manos por parte de Pablo y una reunión de ancianos (1:6; 1 Tim. 1:18; 4:14). Hombres fieles que podrán enseñar a otros. Presumiblemente obispos (supervisores), es decir, ancianos (1 Tim. 3:1 nota; 5:17; cf. Tito 1:7 nota).
+
+---
+
+### 2 Timoteo 2:5
+cosechas coronadas... Estas analogías atléticas y agrícolas añaden una promesa de recompensa futura, que es la consumación de nuestra salvación en nuestra glorificación (vv. 10-12).
+
+---
+
+### 2 Timoteo 2:8
+resucitado de entre los muertos. La resurrección de Cristo está en el centro de la teología de Pablo (Rom. 4:25; Rom. 6:4–10; 1 Cor. 15:12–22). Es la base de la esperanza expresada en los versículos 11 y 12. la descendencia de David. Jesús cumple la promesa de Dios de conceder a uno de los descendientes de David un reinado eterno (2 Sam. 7:12-16; Mat. 1:1; Mr. 12:35; Luc. 1:32, 33; Juan 7:42; Hech. 2:30-36; 13:22, 23; Ap. 5:5). La resurrección de Cristo y su descendencia de David, véase Romanos 1:3, 4.
+
+---
+
+### 2 Timoteo 2:9
+Estoy sufriendo. Véase la nota sobre 1:8. La palabra de Dios no está atada. En su encarcelamiento anterior, Pablo vio que sus cadenas realmente hacían avanzar el evangelio de Cristo (Fil. 1:12-14). Aunque estaba bajo arresto domiciliario, predicaba la Palabra “sin impedimento” a todos los que lo visitaban (Hechos 28:31).
+
+---
+
+### 2 Timoteo 2:10
+los escogidos. Aquellos a quienes Dios ha escogido desde antes de la fundación del mundo para ser salvos (Tito 1:1). La salvación que es en Cristo Jesús. La salvación que viene por la fe en Cristo (3:15). Véase la nota teológica “Salvación” en la pág. 2058. Gloria eterna. Esta gloria es la salvación final y completa de los elegidos en el nuevo orden de Dios. Los santos tendrán cuerpos resucitados y naturalezas humanas transformadas (1 Cor. 15:42-49). Experimentarán plenamente el triunfo de Cristo sobre pecado y muerte, y conocer la plenitud del gozo en una vida asegurada para ellos por la muerte, resurrección y ascensión de Cristo (v. 11; Mt. 13:43; 1 Tim. 1:16 nota; cf. Sal. 16:11)
+
+---
+
+### 2 Timoteo 2:11
+Palabra fiel es esta. Véase la nota sobre 1 Tim. 1:15. Lo que sigue puede ser parte de un himno cristiano primitivo. Si hemos muerto con él. Una referencia a la unión del creyente con Cristo en su muerte en la cruz (Rom. 6:3-11).
+
+---
+
+### 2 Timoteo 2:12
+si sufrimos. Esto se refiere a la perseverancia frente a las dificultades (v. 10). También reinaremos con él. Imagen del NT de la gloria eterna que los cristianos reciben por medio de Cristo (Mt. 19:28; Ro. 5:17; Ap. 3:21; 5:10; 20:4, 6; 22:5). Si lo negamos, él también nos negará. Una seria advertencia contra la apostasía, Basado en las palabras del mismo Jesús (Mateo 10:33).
+
+---
+
+### 2 Timoteo 2:13
+Si somos infieles, él permanece . Fiel. Esta es una maravillosa afirmación de seguridad de que, aunque estamos llamados a perseverar y ser fieles, la salvación no depende en última instancia de nuestra fidelidad, sino de la perfecta fidelidad de Cristo (v. 19). No puede negarse a sí mismo. La esperanza cristiana está firmemente arraigada en el carácter inmutable de Dios (Núm. 23:19; Tito 1:2) y en su inmutable propósito redentor para sus elegidos (Heb. 6:13-20).
+
+---
+
+### 2 Timoteo 2:14
+Disputa por palabras. Una de las características de los falsos maestros (v. 23; 1 Tim. 1:4; 6:4; Tito 3:9). La enseñanza falsa “sólo arruina a los oyentes”, pero la sana doctrina es la única que puede salvar y restaurar a sus oyentes.
+
+---
+
+### 2 Timoteo 2:15
+la palabra de verdad. Todo el consejo de Dios, con énfasis en el evangelio (2:8, 9; 4:2).
+
+---
+
+### 2 Timoteo 2:17
+Himeneo. Mencionado también en 1 Tim. 1:19, 20 como alguien que ha hecho “naufragio” de su fe. Fileto. No se menciona en ningún otro lugar del NT.
+
+---
+
+### 2 Timoteo 2:18
+la resurrección ya ha Esta falsa creencia negaba la resurrección corporal futura de los cristianos y afirmaba, en cambio, que la resurrección espiritual en el momento de la conversión era la suma total de la resurrección del cristiano. Por lo tanto , esta falsa creencia resultó en un énfasis excesivo en la experiencia presente (1 Cor. 15:12-14). Además, negar una resurrección corporal final es negar que existe una reversión final del pecado de Adán, que no solo introdujo la muerte espiritual sino también la muerte física. Por lo tanto, es negar una salvación final de toda la persona en una nueva creación eterna. En consecuencia, tal enseñanza es herejía. Están trastornando la fe de algunos. Las doctrinas de los falsos maestros están en contradicen el evangelio. Timoteo debe advertir a la iglesia sobre ellos (v. 14). 2 TIMOTEO 2:18
+
+---
+
+### 2 Timoteo 2:19
+El fundamento firme de Dios. Esta declaración es una referencia a los elegidos de Dios (cf. 2:10; Tito 1:1). permanece en pie, en contraste con los que se desvían (v. 18). sello. Una expresión de propiedad y seguridad. El Señor conoce a los que son suyos. Cita de Números 16:5 (según la Septuaginta). En el contexto del Antiguo Testamento, Coré y otros rebeldes insistieron en que tenían derecho a exigir acceso a la presencia de Dios, pero el Señor reafirmó su derecho soberano de elegir a Aarón como su sumo sacerdote para acercarse a su lugar santísimo. Inscrito en el pueblo de Dios está su decreto eterno de elección (v. 11), que asegura la seguridad del cuerpo de Cristo (Juan 10:29). Que todos se vayan. Tal vez también esté inscrito en la membresía del pueblo de Dios su llamado a la santidad (v. 21), incluido el repudio de las falsas enseñanzas. Pablo puede estar parafraseando, del mismo contexto del Antiguo Testamento, el llamado de Dios a los israelitas para que se mantuvieran alejados de Coré y sus compañeros (Núm. 16:26). De acuerdo con la alusión de Núm. 16:26, la idea es que se está exhortando a los falsos maestros a “apartarse” de su falsa enseñanza (tal vez en línea con 2:25, 26 y desarrollado en él).
+
+---
+
+### 2 Timoteo 2:20
+Estos versículos brindan un ejemplo de la vida cotidiana sobre la importancia de la santidad: ser apartado para una tarea noble (piadosa).
+
+---
+
+### 2 Timoteo 2:23
+controversias... peleas. Véase la nota sobre 2:14; 1 Tim. 1:3, 4, 6, 7.
+
+---
+
+### 2 Timoteo 2:24
+El siervo del Señor. Este título evoca la imagen del siervo del Señor en Isaías, que trata la caña cascada y la mecha que humea con delicadeza (Is. 42:1–3, aplicado a Jesús en Mt. 12:15– 19). 21) Véase también Mateo 11:28–30. La paciencia y la bondad de Jesús en respuesta a Los oponentes obstinados proyectan el modelo para quienes enseñan Su iglesia. 2 TIMOTEO 2:24
+
+---
+
+### 2 Timoteo 2:25
+El cristiano nunca debe asumir que aquellos que están atrapados por la falsa enseñanza del diablo están irremediablemente perdidos. El evangelio debe ser proclamado a todos. Observe la preocupación de Pablo por la manera en que Timoteo debe tratar con sus oponentes: con bondad, paciencia, gentileza, y los demás frutos del Espíritu Santo (cf. Gál 5,22).
+
+---
+
+### 2 Timoteo 3:1
+Pablo continúa con el tema de las falsas enseñanzas al dirigirse a un ataque a los falsos maestros mismos, señalando su impacto sobre la iglesia en Éfeso, pero concluyendo con la afirmación de que no tendrán éxito al final. 3:1 Los últimos días. La era inaugurada por la primera venida de Cristo y completada por la segunda (1 Tim. 4:1 nota).
+
+---
+
+### 2 Timoteo 3:5
+teniendo apariencia de piedad, Pero niegan su poder. Lo que hace que los falsos maestros sean tan peligrosos es que parecen cristianos (Mateo 7:15, 21-23).
+
+---
+
+### 2 Timoteo 3:6
+Las mujeres débiles. El punto de Pablo no es que todas las mujeres sean así, sino que algunas han sido especialmente vulnerables al engaño. Los falsos maestros de Éfeso habían tenido especial éxito en engañar a las mujeres (1 Tim. 2:14; 5:13-15).
+
+---
+
+### 2 Timoteo 3:8
+Janes y Jambres. Según la tradición judía, estos son los nombres de dos de los magos egipcios que se opusieron a Moisés ante el faraón (Éxodo 7; 8). La inclusión de estos nombres por parte de Pablo en su segunda carta a Timoteo indica que esta tradición judía refleja la historia real.
+
+---
+
+### 2 Timoteo 3
+Con el problema de los falsos maestros plenamente en mente, Pablo una vez más se dirige a exhortar a Timoteo a la fidelidad, primero en términos del ejemplo que Pablo ha dado (e implícitamente el de la madre y la abuela de Timoteo), y luego en términos de confianza y obediencia a las Escrituras. 3:10, 11 Una vez más, Pablo apela a su propia vida, tanto a su fidelidad como a su sufrimientos, como ejemplo para Timoteo (1:11–13; 2:8–10).
+
+---
+
+### 2 Timoteo 3:12
+todos los que desean vivir piadosamente... Serán perseguidos. El NT enseña que los cristianos deben esperar persecución y no deben sorprenderse cuando ésta les sobrevenga mientras buscan la piedad (Mateo 10:17, 18; Juan 15:20; 1 Pedro 4:12; 5:9). Este fue el mensaje constante de los apóstoles cuando animaban a los creyentes recién convertidos en las iglesias recién plantadas (Hechos 14:22).
+
+---
+
+### 2 Timoteo 3:14
+de quien aprendiste. Se refiere a la madre y a la abuela de Timoteo (1:5), así como al propio Pablo.
+
+---
+
+### 2 Timoteo 3:15
+desde la niñez. Según la costumbre, los padres judíos debían comenzar a instruir a sus hijos en la ley cuando estos cumplieran cinco años. Tú has estado familiarizado con las Sagradas Escrituras. Los falsos maestros han estado malinterpretando el Antiguo Testamento (1 Tim. 1:7; Tito 3:9). Timoteo necesita recordar la instrucción apropiada que recibió de manos de su madre y su abuela. Los “escritos sagrados” son los libros del Antiguo Testamento. El Nuevo Testamento no existía todavía como una colección completa. De hecho, algunos de los libros del Nuevo Testamento aún no se habían escrito. salvación... en Cristo Jesús. El Antiguo Testamento, interpretado correctamente, nos lleva a entender el papel central de Jesucristo en el plan general de Dios para su creación (Lucas 24:25-27, 44-49; Juan 5:45-47). Este hecho confirma tanto el error como la El peligro de que los falsos maestros manejen mal la ley del Antiguo Testamento.
+
+---
+
+### 2 Timoteo 3:16
+Toda la Escritura. El Antiguo Testamento (nota v. 15). Inspirado por Dios. Esta es una de las expresiones más importantes del NT. de la doctrina de la inspiración divina de las Escrituras. La Biblia ha sido inspirada por el Espíritu de Dios (2 Pedro 1:21). Dios es la fuente y el autor último de las Escrituras. Aunque escritas por autores humanos, las Escrituras tienen, no obstante, todo el peso de Su autoridad. La Biblia, de principio a fin y hasta en sus mismas palabras, es la Palabra infalible de Dios. El gran teólogo reformado estadounidense, BB Warfield, que enseñó en el Seminario Teológico de Princeton entre 1887 y 1921, demostró que el griego... El término traducido como “inspirado por Dios” ( theopneustos ) se refiere a toda la Escritura y no solo a partes de ella. En otras palabras, la totalidad del canon de la Escritura, hasta las palabras individuales en sí, fueron dadas por Dios y, por lo tanto, son completamente verdaderas. La Biblia no afirma ningún error y es la única fuente infalible de la doctrina cristiana.
+
+---
+
+### 2 Timoteo 4:1
+Pablo concluye la apelación a Timoteo iniciada en 1:6. 4:1 en la presencia de Dios. Pablo menciona testigos para impresionar a Timoteo con la extrema seriedad de la acusación, así como en otras partes invoca a Dios como testigo para enfatizar la verdad de sus afirmaciones (Rom. 1:9; 9:1; 2 Cor. 1:23; Fil. 1:8; 1 Tes. 2:5). Cristo Jesús, el que ha de juzgar. En cuanto a Cristo como Juez de todos, véase v. 8; Mt. 25:31–46; Juan 5:22, 27; Hechos 10:42. Su aparición. La segunda venida de Cristo (cf. v. 8; 1 Tim. 6:14; Tito 2:13). VOLVER 2 TIMOTEO 4:1
+
+---
+
+### 2 Timoteo 4:2
+La palabra. Toda la Palabra de Dios, con énfasis en el evangelio (cf. 2:15). A tiempo y fuera de tiempo. En toda situación, sea buena o mala, la Palabra debe ser proclamada.
+
+---
+
+### 2 Timoteo 4:3
+La sana enseñanza. Véase la nota sobre 1:13. Comezón de oídos. Algunas personas sienten una fascinación infinita por todo, menos por la verdad. Buscan y atraen a falsos maestros. Ellos. Probablemente se refiere a algunos que están asociados con la iglesia.
+
+---
+
+### 2 Timoteo 4:4
+mitos. Ver nota sobre 1 Tim. 1:4. VOLVER 2 TIMOTEO 4:4
+
+---
+
+### 2 Timoteo 4:5
+Una última exhortación a la fidelidad, aun cuando otros se alejen. La obra de un evangelista. Alguien que anuncia las buenas noticias (el evangelio ), particularmente a aquellos que aún no se han convertido. En Efesios 4:11, los evangelistas aparecen junto con los apóstoles, profetas, pastores y maestros como aquellos que llevan la Palabra de Dios. Felipe, ordenado primero para cuidar de las necesidades materiales de las viudas, fue enviado más tarde a proclamar el evangelio en Samaria, a un etíope y a pueblos costeros; por eso también se le llama evangelista (Hechos 21:8).
+
+---
+
+### 2 Timoteo 4:6
+La muerte inminente de Pablo proporciona la razón de su extensa apelación a Timoteo (Introducción: Fecha y ocasión). 4:6 ya. Pablo acepta la inevitabilidad de su muerte, aunque todavía falten varios meses. Su sensación de plenitud en este segundo encarcelamiento difiere notablemente de su expectativa de liberación para continuar con su ministerio cuando escribió Filipenses (Fil. 1:24–26; 2:24). Derramada como libación. Esta metáfora de la muerte (cf. Fil. 2:17) está tomada del lenguaje del sistema sacrificial del Antiguo Testamento. Se derramaba una libación de vino en el santuario como ofrenda a Dios (Núm. 15:5, 7, 10; 28:7). Pablo entiende su muerte inminente como una ofrenda a Cristo. Mi partida. Otra metáfora de la muerte (Fil. 1:23). Pablo se aferró firmemente a la esperanza y la seguridad de un destino más allá de la tumba (v. 18; cf. Flp. 2:21– 23)
+
+---
+
+### 2 Timoteo 4:7
+Con estas tres metáforas, Pablo indica el fin de su ministerio. Su preocupación no es el éxito, sino que ha sido fiel a su Señor. Ha exhortado a Timoteo a través de metáforas similares para ser fiel (1 Tim. 6:12; 2 Tim. 2:4).
+
+---
+
+### 2 Timoteo 4:8
+la corona de justicia. Quizás la corona que se otorga por la vida fiel de quien ha recibido la justicia de Cristo por medio de la fe (Rom. 3:22). Lo más probable es que se trate de la corona que consiste en la justicia perfecta, la vida eterna que se le da al creyente como punto culminante del proceso de santificación (2:10; Stg. 1:12; 1 P. 5:4; Ap. 2:10). el juez justo. Cristo en su papel de Juez divino que lleva a término la obra que ha comenzado en sus elegidos. aquel Día. Día del juicio (1:12, 18). Su aparición. La segunda venida de Cristo (v. 1).
+
+---
+
+### 2 Timoteo 4:9
+Pablo ahora se centra en el motivo principal por el que escribió la carta: quiere ver a Timoteo una última vez. Pablo le da a Timoteo varias instrucciones con respecto a su viaje a Roma, le informa sobre su situación actual y concluye con una profunda expresión de confianza en su Señor. 4:9 Procura venir a verme. Pablo insinuó su deseo de ver a Timoteo en 1:4. Pronto. Véase la nota sobre el versículo 21.
+
+---
+
+### 2 Timoteo 4:10
+Demas. Un colaborador que estuvo presente con Pablo durante su primer encarcelamiento en Roma (Col. 4:14; Flm. 24). Tesalónica. Ciudad de la provincia romana de Macedonia donde Pablo había establecido una iglesia en su segundo viaje misionero (Hechos 17:1–10). Crescente. No se lo menciona en ningún otro lugar del NT; aparentemente fue otro colaborador de Pablo. Galacia. O bien una provincia romana que Pablo visitó en su primer viaje misionero (nota 3:11), o bien una región de Asia Menor que Pablo visitó en su segundo viaje misionero (Hechos 16:6). Tito. Otro colaborador de Pablo. Véase Introducción a Tito: Fecha y ocasión. Dalmacia. Otro nombre de la provincia romana de Iliria, la provincia más occidental a la que llegó Pablo en sus tres primeros viajes misioneros (Rom. 15:19).
+
+---
+
+### 2 Timoteo 4:11
+Lucas. El “médico amado”, mencionado en Col. 4:14 y Filemón 24, quien viajó con Pablo durante gran parte de su segundo y tercer viaje misionero (Introducción a Lucas: Autor). Toma a Marcos y tráelo contigo. Un hermoso ejemplo de perdón y restauración cristiana. La deserción de Juan Marcos de Pablo y Bernabé durante su primer viaje misionero (Hechos 13:13) había ocasionado la disolución de la relación entre Pablo y Bernabé (Hechos 15:37-39). Más tarde, Marcos recuperó el favor de Pablo (Col. 4:10; Flm. 24). Ahora, al final de su vida, Pablo quiere verlo, “porque es muy útil”.
+
+---
+
+### 2 Timoteo 4:12
+Tíquico. Colaborador de Pablo, mencionado en Hechos 20:4 y Tito 3:12, quien llevó las epístolas de Pablo a las iglesias de Éfeso y Colosas durante el primer encarcelamiento de Pablo en Roma (Efesios 6:21; Colosenses 4:7). a Éfeso. Tíquico debe llevar esta carta a Timoteo y servir como su reemplazo.
+
+---
+
+### 2 Timoteo 4:13
+manto. Prenda de lana pesada que se usa para protegerse de la humedad y el frío. Pablo está anticipando la llegada del invierno (v. 21). Carpo. No se menciona en ningún otro lugar del NT. Troas. Puerto que unía la provincia romana de Asia con Macedonia al otro lado del mar Egeo (Hechos 16:7, 8). Pablo había pasado por Troas en su segundo y tercer viaje misionero (Hechos 16:8, 11; 20:5, 6). No está claro cuándo estuvo Pablo en Troas en este cuarto y último viaje. Es posible que este haya sido el lugar donde arrestaron a Pablo y desde donde lo transportaron a Roma. Libros. Posibles materiales para escribir a las iglesias y/o copias de los escritos de Pablo que ya había enviado a sus colaboradores y a las iglesias bajo su cuidado. Pergaminos. El pergamino es un material para escribir hecho con pieles de animales, especialmente de ovejas o cabras. Es mucho más duradero que el papiro. Probablemente Pablo estaba pidiendo partes del Antiguo Testamento.
+
+---
+
+### 2 Timoteo 4:14
+Alejandro el calderero. Véase la nota sobre 1 Tim. 1:20. Me hizo mucho daño. Este incidente no se menciona en ningún otro lugar del NT. El Señor le pagará conforme a sus obras, es decir, en el día del juicio final (Mateo 16:27; Romanos 2:6; Apocalipsis 22:12).
+
+---
+
+### 2 Timoteo 4:16
+Primera defensa. Audiencia preliminar antes del juicio real que Pablo ahora espera (Introducción: Fecha y ocasión). Que no les sea imputado. Una expresión de perdón ante la muerte que recuerda a Cristo (Lucas 23:34) y a Esteban (Hechos 7:60), cuya muerte Pablo había presenciado y aprobado en sus años de incredulidad (Hechos 7:58; 8:1).
+
+---
+
+### 2 Timoteo 4:17
+Pero el Señor estuvo a mi lado. Pablo había aprendido hacía mucho tiempo que siempre podía depender de aquel que lo había comisionado (2 Cor. 12:9, 10; Fil. 4:11–13). El mensaje pudiera ser proclamado en su plenitud. Probablemente se refiere a la proclamación del evangelio por parte de Pablo en su audiencia preliminar. Todos los gentiles podían oír. Pablo había predicado el evangelio en un foro público en el centro del Imperio Romano. Rescatado de la boca del león. Metáfora de un escape por poco de la muerte, que tal vez alude a la liberación de Daniel de los leones reales (Dn. 6). La audiencia preliminar de Pablo resultó en un indulto temporal. Véase la nota sobre 1 Cor. 15:32.
+
+---
+
+### 2 Timoteo 4:18
+me librará de toda obra mala. Pablo no cree que Cristo evitará su muerte física (v. 6), sino que está expresando su confianza absoluta en Cristo (2:13) como aquel que se propone anular el mal para Su gloria y para el bien de Sus siervos. Condúceme a salvo a su reino celestial. Ésta es la esperanza máxima de todos los que confían en Cristo. La muerte, lejos de impedir que Pablo entre en el reino de Cristo, es el medio mismo de su entrada a la plenitud de las bendiciones del reino espiritual de Cristo.
+
+---
+
+### 2 Timoteo 4
+Como es su costumbre, Pablo cierra la carta con un saludo personal y una bendición. 4:19 Prisca y Aquila. “Prisca” es una forma abreviada de “Priscila”, como se escribe en otros lugares de los Hechos y las cartas de Pablo. Ella y su esposo, Aquila, habían sido amigos de Pablo desde la primera vez que visitó Corinto en su segunda Viaje misionero. Eran judíos y, al igual que Pablo, hacían tiendas (Hechos 18:2, 3). Habían llegado a Corinto desde Roma. Más tarde, acompañaron a Pablo a Éfeso (Hechos 18:18, 19) y acogieron una iglesia en su casa allí durante varios años antes de regresar a Roma (Romanos 16:3, 4; 1 Corintios 16:19). Al parecer, ahora habían regresado a Éfeso, donde estaba Timoteo (1 Timoteo 1:3). La casa de Onesíforo. Véase la nota sobre 1:16. Este saludo indica que Timoteo todavía estaba en Éfeso (1:18).
+
+---
+
+### 2 Timoteo 4:20
+Erasto. Probablemente la misma persona que el tesorero de Corinto mencionado en Romanos 16:23. Corinto. Capital de la provincia romana de Acaya. Fue visitada por Pablo en su segundo y tercer viaje misionero. Corinto está a ochenta kilómetros (cincuenta millas) de la ciudad. km) al oeste de Atenas. Trófimo. Miembro de la iglesia de Éfeso que acompañó a Pablo a Jerusalén al final de su tercer viaje misionero (Hechos 20:4; 21:29). Mileto. Un puerto marítimo al sur de Éfeso, que Pablo visitó al final de su tercer viaje misionero (Hechos 20:15, 17). No está claro cuándo visitó Pablo Mileto en su cuarto y último viaje.
+
+---
+
+### 2 Timoteo 4:21
+antes del invierno. El clima invernal impediría viajar en barco (ver Hechos 27:9–12; 28:11). Pablo pudo haber pensado que si Timoteo esperaba demasiado, no llegaría antes de la ejecución de Pablo (v. 9). En cualquier caso, necesitaba su capa antes del invierno (v. 13). Eubulo... Pudente, Lino y Claudia. Éstos eran cristianos en Roma, aunque no se menciona a ninguno de ellos en ninguna otra parte del NT.
+
+---
+
+### 2 Timoteo 4:22
+La gracia sea con vosotros. La palabra griega para “vosotros” es plural (nota del texto). Es de suponer que Pablo quería que la carta fuera leída a toda la iglesia (nota de 1 Tim. 6:21; Tito 3:15).
+
+---

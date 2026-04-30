@@ -1,0 +1,241 @@
+# Notas de Estudio - Cantares
+
+### Cantares 1:7
+La joven pregunta provocativamente dónde puede encontrarse con el hombre al mediodía (v. 7); luego el hombre, de manera indirecta pero sugestiva, le proporciona orientación. 1:7 como quien se cubre con un velo. “Velo” tiene las mismas connotaciones negativas aquí que en Génesis 38:14, 15. La joven no quiere que la confundan con una prostituta.
+
+---
+
+### Cantares 1:11
+Nosotros. En el v. 4, las “hijas de Jerusalén” se hacen eco de la alabanza que la joven le hace a su amado; aquí responden de manera similar a la alabanza que él le hace a ella. El sujeto plural “nosotros” va en contra de tomar este versículo como un discurso del amante de la joven usando lenguaje cortesano, ya que “nosotros” es usado constantemente por varios grupos en otros puntos del libro (6:1, 13; 8:8).
+
+---
+
+### Cantares 1:12
+El rey. El amante de la joven es presentado nuevamente como un rey, como lo indica el versículo siguiente. en su sofá. Lit. “en su entorno”. El entorno puede no ser un contexto literal. sofá, pero puede referirse al aire libre (véase, por ejemplo, 1:16, 17; 6:2; 7:11– 13). VOLVER CANTAR DE LOS CANTARES 1:12
+
+---
+
+### Cantares 1:13
+Mirra. Resina gomosa originaria del sur de Arabia; es exótica y valiosa. Mezclada con aceite de oliva, la mirra se utilizaba como un perfume caro. Entre mis pechos. La bolsita entre los pechos es una imagen de intimidad.
+
+---
+
+### Cantares 1:14
+Las flores de alheña. Los arbustos de alheña producen una sustancia que se aplica al cuerpo como ungüento o perfume. En-Gedi. Este exuberante oasis se encuentra a mitad de camino de la costa occidental del Mar Muerto y contribuye a las exuberantes imágenes de intimidad, y la ubicación de En-Gedi entre las colinas refleja la bolsita entre los pechos.
+
+---
+
+### Cantares 1:16
+Nuestro lecho es verde. La palabra hebrea traducida como “verde” significa verde, floreciente o exuberante, y contribuye a las imágenes exuberantes de intimidad.
+
+---
+
+### Cantares 1:17
+Vigas... vigas. Los cedros y pinos brindan la privacidad e intimidad que brindaría una casa literal.
+
+---
+
+### Cantares 2:1
+rosa. El hebreo indica una planta de la familia de los bulbosos, como el azafrán o el narciso (nota del texto). Véase Isaías 35:1, 2. Sarón. Esta llanura se extiende hacia el sur desde el monte Carmelo a lo largo de la costa mediterránea. Aquí la joven se compara modestamente con las conocidas flores silvestres.
+
+---
+
+### Cantares 2:2
+En estos versículos, tanto el joven como la joven se elogian mutuamente por ser personas sobresalientes entre sus compañeros.
+
+---
+
+### Cantares 2:5
+pasas... manzanas. Las pasas o las tortas de pasas se asocian en otras partes del AT con ritos religiosos, a veces incluso en un contexto pagano (2 Sam. 6:19; Os. 3:1), lo que ha llevado a algunos comentaristas a suponer que el Cantar de los Cantares se originó como el guión de un rito pagano de fertilidad que implicaba sexo ritual (cf. Os. 4:11–14). Pero el acto sexual en el Cantar de los Cantares no tiene una dimensión cultual obvia. Las pasas aquí, como las manzanas, son simples afrodisíacos. La joven pide pasas y manzanas para renovar su vigor.
+
+---
+
+### Cantares 2:7
+Para comentarios sobre este estribillo, véase Introducción: Características literarias. Aquí el estribillo es un recordatorio de que el acto sexual debe esperar el momento adecuado con la persona adecuada. El contexto más amplio de las Escrituras indica que el momento adecuado es el matrimonio y la persona adecuada es el cónyuge.
+
+---
+
+### Cantares 2:8
+La imagen del El pastor amante, como una gacela o un ciervo joven en las colinas, introduce y concluye estos versículos, que describen otro encuentro al aire libre entre los dos amantes (véase 8:14). 2:8 saltando. Refleja su alegría y emoción al verla. sobre las montañas. Las montañas y las colinas son símbolos de los obstáculos que Debe ser superado para que los amantes puedan estar juntos.
+
+---
+
+### Cantares 2:9
+Gacela. Conocida por su velocidad y agilidad, la gacela sirve como una buena imagen para la excitación de la mujer que anhela que su amado se acerque a ella.
+
+---
+
+### Cantares 2
+La primavera es una época de fertilidad, y por eso las imágenes de la primavera en estos versículos contribuyen a la imagen de un encuentro íntimo.
+
+---
+
+### Cantares 3:3
+Los centinelas. La presencia de centinelas patrullando las calles de la ciudad indica que es de noche, y su papel es más positivo aquí que en 5:7.
+
+---
+
+### Cantares 3:5
+Esta segunda aparición del estribillo, como la primera (2:7), sigue a una escena de hacer el amor y es otro recordatorio de que las relaciones amorosas deben esperar el momento adecuado con la persona adecuada.
+
+---
+
+### Cantares 3
+Esta es la cuarta vez que la joven describe a su amado como un rey (1:4, 12; 2:4). Estos versículos celebran la alegría del día de la boda real (v. 11). Dado que el Cantar de los Cantares no es un drama con una trama cerrada y que la intimidad sexual ya ha tenido lugar varias veces, no debemos interpretar estos versículos como una descripción de una boda que es Cronológicamente secuencial respecto del material anterior. La discronologización (no ordenar los acontecimientos cronológicamente) es común tanto en la prosa como en la poesía hebreas.
+
+---
+
+### Cantares 3:11
+Sión. Nombre alternativo para Jerusalén (véase 1:5 para “hijas de Jerusalén”). La corona. No se trata de la corona del rey, sino de una especie de guirnalda que llevaban los novios en las bodas de la antigüedad. Los judíos abandonaron esta costumbre en su dolor por la trágica guerra con Roma y la pérdida de Jerusalén (70 d. C.). Un proverbio rabínico afirma que “un novio se parece a un rey”. Su madre. La madre desempeña un papel destacado en el Cantar de los Cantares (1:6; 3:4; 6:9; 8:1, 2, 5). No hay ninguna referencia a un padre, lo que concuerda con lo que encontramos en otros poemas de amor del antiguo Oriente Próximo. El día de su boda. El verdadero Salomón tuvo muchas bodas (1 R 11:3). El día que tenemos en mente puede ser un ideal romántico o un recuerdo entrañable.
+
+---
+
+### Cantares 4:4
+La torre de David. Se desconoce la ubicación de esta torre. No es la torre de David actual, que se encuentra justo dentro de la puerta de Jaffa de Jerusalén, ya que esa torre no es más antigua que la época de Herodes el Grande. El cuello de la joven está adornado con joyas, al igual que la famosa torre estaba adornada con escudos.
+
+---
+
+### Cantares 4:5
+Tus dos pechos. La libertad del joven para mencionar los pechos de la joven muestra la gran intimidad de su relación.
+
+---
+
+### Cantares 4:6
+Hasta que amanezca. Se acerca el momento en que los amantes deben separarse (nota 2:17). monte de mirra... colina de incienso. El incienso, como la mirra, era una especia aromática importada (cf. Mt. 2:11). Después de la mención literal de los pechos de la joven en el v. 5, el “monte” y la “colina” podrían ser una referencia poética a lo mismo.
+
+---
+
+### Cantares 4:9
+Mi hermana. En los idiomas del antiguo Cercano Oriente, los amantes usaban comúnmente el término “hermana” como expresión de cariño y afecto. Expresaba cercanía entre personas que no eran miembros de la misma familia.
+
+---
+
+### Cantares 4:11
+Miel y leche. Estos dos términos se usan juntos más de cuarenta veces en el Antiguo Testamento, más comúnmente para referirse a la Tierra Prometida como una gran bendición.
+
+---
+
+### Cantares 4:13
+Tus renuevos. La imagen del huerto cerrado se desarrolla más (nota del v. 12). En contexto, “renuevos” parece aludir a los muslos de la joven.
+
+---
+
+### Cantares 5:1
+Vino a mi jardín. El joven acepta inmediatamente la invitación de su amada. Comer... ebrios de amor. No se especifican los hablantes, pero los “Otros” de la ESV Es muy probable que tenga razón. El coro de mujeres jóvenes se une para celebrar la belleza del amor.
+
+---
+
+### Cantares 5:4
+Mi corazón se emocionó . La joven se excita con las acciones de su amado.
+
+---
+
+### Cantares 5:8
+Te conjuro. Esta tercera aparición del estribillo, al igual que las dos primeras (2:7; 3:5), sigue a una escena de desilusión y frustración. Este estribillo es ligeramente diferente de los demás en el sentido de que expresa la profundidad del deseo que la joven tiene por su amado a pesar de su desilusión y frustración. Implícitamente, funciona como los otros estribillos para enseñar a las jóvenes que el amor y el sexo deben esperar el momento adecuado con la persona adecuada (es decir, con el cónyuge).
+
+---
+
+### Cantares 5:14
+Joyas. No se puede determinar la piedra exacta. En Éxodo 28:20, el mismo tipo de piedra está colocada en oro sobre el pectoral que usaba el sumo sacerdote.
+
+---
+
+### Cantares 6:2
+huerto...pastos. El Una joven revela que sabe dónde ha ido su amante: “a su jardín” donde “él pasta entre los lirios”, lenguaje usado anteriormente para referirse a lo sexual intimidad (2:16).
+
+---
+
+### Cantares 6:4
+Estos versículos expresan admiración por la joven por parte de su amado. No se cómo se establecen los límites. Marcado por la repetición de “banderas”, una palabra que en el Cantar aparece sólo aquí. y en 2:4. 6:4 Tirsa. Esta ciudad, a seis millas (9,7 km) al noreste de Siquem, en el centro Palestina, se encuentra en un entorno de gran belleza natural. Fue la capital de la reino del norte separatista durante aproximadamente cincuenta años después de la caída de Salomón muerte. Continuó siendo un lugar de intrigas políticas hasta que fue destruido en el siglo VII a. C. (1 R. 14:17; 15:21; 16:8–18; 2 R. 15:14– 16). Una referencia positiva a Tirsa aquí, particularmente en paralelo con Jerusalén, puede Apoyan la visión tradicional de que el Cantar se originó en la época de Salomón, Antes de que la hostilidad entre las tribus del norte y del sur condujera a la división en dos reinos separados, pero véase Introducción: Fecha y ocasión.
+
+---
+
+### Cantares 6:5
+Galaad. Véase nota sobre 4:1.
+
+---
+
+### Cantares 6:10
+¿Quién es ésta? Aquí se alaba a la joven. Amanecer... Luna... Sol. La joven es descrita en un lenguaje que recuerda al de una antigua diosa del Cercano Oriente. imponente como ejército en orden. La frase es una repetición exacta de la última línea del v. 4. La alabanza que se da aquí es la del amado de la muchacha y concluye la unidad (vv. 4-10).
+
+---
+
+### Cantares 6:11
+Estos dos versos son con toda probabilidad un poema breve e independiente en el que la joven recuerda una experiencia de intimidad con su amado. 6:11 La palabra traducida como “huerto” es la forma femenina de la misma palabra que en otros lugares se traduce como “jardín” (p. ej., 5:1). El huerto, al igual que el jardín, es un lugar privado para la intimidad.
+
+---
+
+### Cantares 7:10
+El núcleo de estos versículos (7:1–9a) es otro ejemplo de la admiración del joven por la joven. Este núcleo está rodeado por un intercambio introductorio entre un grupo de hombres y el joven (6:13) y la respuesta de la joven a la admiración de su amado (7:9b–10). 6:13 Regreso. Es muy probable que los que hablan sean hombres, como lo indica la respuesta de la joven: “¿Por qué deben ustedes [plural masculino] mirar...?”. Posiblemente sean los centinelas de 5:7 de quienes la joven presumiblemente huyó antes. Sulamita. La designación probablemente se refiere a la ciudad natal de la joven (Sunam) con una variante de la ortografía “sunamita” (1 R. 1:3, 15; 2:17–22). El intercambio de l y n en las lenguas semíticas está bien atestiguado. Dos ejércitos. O Mahanaim (nota del texto). Mahanaim es el nombre de una ciudad al este del río Jordán (Gén. 32:2). Se desconoce la naturaleza de la “danza ante dos ejércitos/Mahanaim”.
+
+---
+
+### Cantares 7:1
+hija noble. “Noble” Aquí se encuentra la misma palabra en 6:12. Allí, la joven se refiere a sí misma como noble; aquí, su amado habla de ella como tal. En la vida cotidiana, ella es una doncella del campo (1:5, 6).
+
+---
+
+### Cantares 7:4
+Hesbón. Esta ciudad al este del río Jordán, frente a Jerusalén, fue capturada por los israelitas en tiempos de Moisés (Núm. 21:25, 26). Las excavaciones han revelado grandes embalses cerca de la ciudad, tal vez los estanques mencionados aquí. Puerta de Bat-rabim. Bat-rabbim (“hija de muchos”) es probablemente el nombre de la puerta, posiblemente una de las puertas de Hesbón. Torre del Líbano. No se conoce la identidad de esta torre. La gran altura sugerida por “mira hacia” o “mira sobre” Damasco ha llevado a algunos a tomarla como una referencia a las montañas del Líbano (cf. v. 5).
+
+---
+
+### Cantares 7:5
+como el Carmelo. Hay dos lugares con este nombre en el AT. Uno está en el sur relativamente árido, en las colinas al oeste del Mar Muerto (1 Sam. 15:12). El otro es la famosa montaña donde Elías se enfrentó a los profetas de Baal (1 R. 18), en el frondoso norte. Este último está en la costa mediterránea, al oeste del Mar de Cineret (Galilea), y es probablemente el Carmelo al que se hace referencia aquí en esta comparación favorable. Un rey. El joven se imagina a sí mismo como un rey encantado por la belleza de su princesa (v. 1; cf. 1:4, 12; 6:12).
+
+---
+
+### Cantares 7:9
+b -10 Aquí, de manera similar a 4:16, la mujer responde al cortejo de su amado con la disposición de ceder a su propuesta.
+
+---
+
+### Cantares 7:13
+Las mandrágoras. La planta de mandrágora tiene flores moradas y un fruto anaranjado parecido al tomate, y los habitantes del antiguo Cercano Oriente creían que era un afrodisíaco (Gén. 30:14–16). Nuestras puertas son todas frutas selectas. Las puertas son una metáfora del lugar de reunión de los amantes al aire libre (v. 12). Para una mezcla similar de plantas y términos arquitectónicos, véase 1:17.
+
+---
+
+### Cantares 8:2
+casa de mi madre. Véase nota sobre 3:4. el matrimonio y las alegrías que lo acompañan de su madre, quien le enseñó sobre el pacto matrimonial.
+
+---
+
+### Cantares 8:3
+Este versículo es idéntico a 2:6 y precede a la última aparición del estribillo (Introducción: Características literarias), que sirve para recordar a las jóvenes que el acto sexual debe esperar el momento adecuado con la persona adecuada.
+
+---
+
+### Cantares 8:5
+Estos versículos continúan expresión del intenso deseo de la mujer por su amado, iniciado en los vv. 1–4. 8:5 ¿Quién es aquél que sube del desierto? Esta frase es una repetición exacta de 3:6, pero allí se usa en referencia a la llegada del joven. Aquí se utiliza en referencia a la llegada de la joven. Los oradores pueden ser el coro de mujeres jóvenes. Inclinada sobre su amado. Esta sencilla frase captura una pose íntima y típica de los amantes. manzano. Probablemente no se refiere a ningún manzano en particular, sino que evoca la imagen al aire libre asociada con la intimidad sexual a lo largo del libro. Te desperté. Es decir, “comencé a cortejarte” o, mejor, “te desperté”. La hablante es la joven y se dirige a su amado. estaba de parto. El verbo traducido como “estaba de parto” podría traducirse “concibió”. La secuencia sería entonces natural: despertó, concibió, dio a luz. Véase Salmo 7:14, donde este verbo se traduce como “concibió” y va seguido de “embarazada”. y luego “da a luz”. Este es el único versículo del Cantar de los Cantares en el que se hace referencia a los resultados reproductivos del sexo; en el resto del libro, el foco está puesto en el placer físico (y emocional).
+
+---
+
+### Cantares 8:6
+SELLO. Un sello hecho de metal o piedra que se usaba en un collar sobre el corazón o en un brazalete (Gén. 38:18). corazón...brazo. Este par significa la persona entera. Fuerte como la muerte. El amor es tan fuerte como la experiencia humana más poderosa y negativa. En los versículos 6 y 7, el aspecto emocional del amor se expresa claramente, mientras que el énfasis a lo largo del libro se centra en el aspecto físico. Los celos. En paralelo con el “amor”, los celos no son aquí un vicio sino una virtud que busca proteger la relación, como los celos de Dios (Éx. 20:5; Ez. 39:25; Jn. 2:17). Como el amor de Dios, el amor que se celebra no tolera rivales. CANTAR DE LOS CANTARES 8:6
+
+---
+
+### Cantares 8:7
+Muchas aguas. La joven ha encontrado numerosos obstáculos en su camino hacia el amor (p. ej., 2:8; 4:8), pero su amor le ha permitido superarlos todos. Riqueza. La riqueza sin amor es de poco valor (Prov. 15:17; 19:22), y el amor verdadero no se puede comprar.
+
+---
+
+### Cantares 8:9
+pared... puerta. Metáforas de virginidad y promiscuidad. Los hermanos honrarán a la hermana si es virgen, pero la reprimirán si es promiscua.
+
+---
+
+### Cantares 8:10
+La joven apacigua los temores de sus hermanos al confirmar su virginidad. Torres. La joven contradice la percepción de sus hermanos de que es demasiado joven para el matrimonio. En lugar de no tener “pechos” (v. 8), sus pechos son “como torres”. Paz. La palabra hebrea shalom tiene aquí el sentido de bienestar. Por implicación, el Cantar de los Cantares señala la relación matrimonial como un lugar donde se encuentra dicha plenitud. Esto apunta finalmente a Cristo, pues los altibajos del matrimonio nos hacen buscar al único Esposo que satisface plenamente nuestra necesidad más profunda de amor. CANTAR DE LOS CANTARES 8:10
+
+---
+
+### Cantares 8:11
+Estos versos, pronunciados por la joven, son difíciles, pero la sensación parece ser que su amor no se puede comprar. 8:11 Una viña en Baal-hamón. Algunos intérpretes han considerado esta viña como una metáfora del harén de Salomón, pero la designación de un lugar específico sugiere lo contrario. Se desconoce la ubicación de Baal-hamón, así como el motivo de la referencia, aparte de que se trata de un lugar de intimidad. Por su fruto, los guardianes pagarían a Salomón mil piezas de plata por la venta del fruto.
+
+---
+
+### Cantares 8:13
+Estos versículos concluyen el libro con una articulación final de deseo mutuo. 8:13 Vosotros que moráis. El hebreo deja claro que “vosotros que moráis” se refiere a la joven. Compañeros. Quizás las jóvenes y los hermanos. Déjame escucharlo. El joven está ansioso por estar a solas con su amada.
+
+---

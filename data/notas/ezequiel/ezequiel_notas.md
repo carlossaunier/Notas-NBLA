@@ -1,0 +1,1886 @@
+# Notas de Estudio - Ezequiel
+
+### Ezequiel 1:1
+El año treinta. El año “treinta” es muy probablemente la edad de Ezequiel en el momento de su llamamiento profético. Un aprendiz para el sacerdocio normalmente asume todas las responsabilidades del oficio a los treinta años (Núm. 4:3). En lugar de lograr este importante objetivo, Ezequiel vive en el exilio lejos del templo de Jerusalén y no puede cumplir con su llamado. Como sacerdote, Ezequiel es responsable de enseñar la ley de Dios al pueblo, explicando sus implicaciones y ayudándolos a “distinguir entre lo limpio y lo inmundo” (Ezequiel 22:26; cf. Deut. 1:13). 33:10). Como profeta, transmite las palabras de bendición y maldición de Dios al pueblo, dependiendo de su fidelidad a las obligaciones del pacto. Además, los profetas normalmente interceden ante Dios por el pueblo. El ministerio de Ezequiel incluye aspectos de mediación tanto sacerdotal como profética entre Dios y el pueblo judío en Babilonia. Exiliados. Debido a la estrecha conexión entre los dioses y determinadas tierras en el mundo antiguo, los exiliados de Judá probablemente se sienten abandonados por el Señor en Babilonia. Ezequiel es llamado a servir como profeta para sus compañeros exiliados en Babilonia como una señal de que el Señor no los ha olvidado. Por el contrario, el Señor será un santuario para ellos allí (11:16).
+
+---
+
+### Ezequiel 1:2
+el quinto año del destierro del rey Joaquín. Julio de 593 a. C. La mayoría de las fechas del libro de Ezequiel se calculan a partir del exilio de Joaquín, que tuvo lugar en 597 a. C. (véase 2 R. 24:10–13; Eze. 22:1-13). 40:1). Esto significa que la profecía de Ezequiel comienza durante el período en que el tío de Joaquín, Sedequías, gobierna Judá como un reino vasallo semiautónomo de Babilonia. Cuatro años después de que comienza el ministerio profético de Ezequiel, Sedequías se rebela sin éxito contra Nabucodonosor. Como resultado de esta rebelión, los babilonios destruyen la ciudad de Jerusalén y queman su templo en el año 586 a. C. La llegada de la noticia de la destrucción de Jerusalén entre los exiliados en el capítulo 24 es un punto de inflexión en el ministerio del profeta, ya que Ezequiel cambia su enfoque de la certeza de un mayor juicio sobre los que han permanecido en Judá a la proclamación de una esperanza futura para el remanente del pueblo de Dios. Desde el principio, Ezequiel ve a Sedequías como un mero sustituto del rey legítimo de Judá, Joaquín.
+
+---
+
+### Ezequiel 1:3
+Canal de Quebar. Judíos que viven fuera de su Los habitantes de su tierra natal suelen establecer lugares de culto a lo largo de corrientes de agua (Salmo 96, 1). 137:1; Hechos 16:13). Dos textos cuneiformes de Nippur mencionan un Narukabari (“Gran Río”) que probablemente es el Chebar, que es un gran Canal de irrigación que trae agua del Éufrates, más abajo de Babilonia. Babilonia La práctica consiste en reasentar a los pueblos conquistados en grupos homogéneos, permitiéndoles para conservar su identidad étnica, a diferencia de los asirios, cuyo modo de operar era dispersar y dispersar a las poblaciones que exiliaron. Esta diferencia permite Los exiliados en Babilonia formaron una comunidad distinta y regresaron a su tierra natal. como grupo cohesionado después de setenta años de exilio. Tal retorno no era posible para aquellos exiliados del reino del norte por los asirios en el año 722 a. C. VOLVER EZEQUIEL 1:3
+
+---
+
+### Ezequiel 1:4
+La visión inaugural de Ezequiel debe ser en comparación con los relatos del llamado de Moisés (Éx. 3), Isaías (Is. 6) y Jeremías (Jer. 1). Al igual que Moisés, el profeta modelo (Deut. 18:15, 18), los profetas posteriores Ordinariamente comienzan su carrera profética al ser admitidos en la divinidad. Presencia. En el concilio celestial, escuchan las palabras de Dios. Los profetas relatar tales experiencias no tanto como autobiografía sino porque son La admisión al consejo divino es la base de su reivindicación de autoridad profética . Es una de las cualidades que distinguen al verdadero profeta del falso (1 Familiares. 22:19–28; Jer. 23:16–18). 1:4 viento tempestuoso. Para el torbellino y la tormenta como un modo de teofanía (un manifestación o aparición de Dios), véase 2 R. 2:1, 11; Job 38:1; 40: 6; Sal. 77:18; 83:15; 148:8; Is. 29:6; 66:15; Jer. 4:13; 23:19; 30:23; Nah. 1:3 ; Zac. 9:14. En este caso, la tormenta viene del norte, la dirección desde la que temer al verdadero enemigo. No es Babilonia, sino el Señor mismo (cf. Jer. 1:13, 14).
+
+---
+
+### Ezequiel 1:5
+Describe la primera aparición del famosos “seres vivientes” en el libro de Ezequiel. Cuando aparecen estos seres Nuevamente en el capítulo 10, se los identifica como “querubines” (10:1, 15, 16, 20), ángeles criaturas que forman la guardia personal del Señor alrededor del arca en el Lugar Santísimo (1 R 6:27; 2 Cr 3:11, 12). Criaturas similares están presentes en la visión de Juan de el trono divino (Apocalipsis 4:6-9). Tienen alas y piernas, lo que les permite correr o volar con la misma rapidez, lo que hace imposible escapar de ellos. VOLVER EZEQUIEL 1:5
+
+---
+
+### Ezequiel 1:10
+caras. Las cuatro caras de las criaturas representan cuatro reinos de la creación. El hombre es supremo y mira hacia afuera. El buey es la cabeza de los animales domésticos; el león es la cabeza de los animales salvajes; y el águila es la cabeza de las aves. Como cada uno tiene cuatro caras, pueden mirar en las cuatro direcciones (norte, sur, este, oeste) a la vez, lo que hace imposible esconderse de su mirada que todo lo ve.
+
+---
+
+### Ezequiel 1:13
+carbones de fuego... antorchas... relámpagos. El fuego es un componente habitual de las teofanías en el Antiguo Testamento (Gén. 15:17; Éx. 3:2; 13:21, 22; 14:24; 19:18; 24:17; Núm. 11:1; Deut. 1:33; 4:11, 12, 24, 33, 36; 5:22–26; 9:3; Sal. 18:8; 78:14, 21). Representa el poder de Dios para juzgar (p. ej., Gén. 19:24; Eze. 10:2).
+
+---
+
+### Ezequiel 1:15
+Los querubines tiran del carro de guerra divino. Puede moverse con la misma facilidad en cualquier dirección porque cada rueda tiene otra que la cruza en ángulos rectos (“una rueda dentro de otra rueda”, v. 17). Cada rueda está llena de ojos. Estos temas resaltan el aspecto amenazador de la aparición del Señor: cuando Él venga para juzgar, no hay ningún lugar donde correr ni donde esconderse.
+
+---
+
+### Ezequiel 1:22
+La expansión sirve como divisor entre los reinos de la tierra y el cielo, como el firmamento (véase Génesis 1:6). Esta referencia, junto con las referencias a seres vivientes, querubines y un arcoíris, recuerda los capítulos iniciales de Génesis. Así como Dios una vez destruyó el mundo original que había creado mediante un diluvio devastador y lo restauró a través de Noé (Génesis 6–9), el mundo de Ezequiel está siendo deshecho para que finalmente pueda ser restaurado. Debajo de la expansión, los seres vivientes hacen un sonido distintivo y terriblemente fuerte mientras vuelan. Este sonido a menudo acompaña a las teofanías que involucran al ejército divino (2 Sam. 5:24; 2 R. 7:6; Is. 13:4; 66:6; Joel 2:5; cf. Gn. 3:8; Éx. 1:13). 19:19; Is. 6:4). Véase en particular 3:12, 13; 10:5.
+
+---
+
+### Ezequiel 1:26
+trono... resplandor a su alrededor. Sobre el espacio abierto hay un trono con alguien que parece un ser humano sentado en él. Aquí, como en otras partes de la visión, Ezequiel parece casi sin palabras para describir lo que ve. La luz que irradia de la presencia divina es abrumadora (Dn. 7:9), porque Dios habita “en luz inaccesible” (1 Tim. 2:11). 6:16). Sin embargo, como en Daniel 7 y Apocalipsis 1, la figura divina que viene a juzgar al mundo aparece en forma humana. En la plenitud de los tiempos, el Anciano de Días tomará forma humana y se convertirá en el Hijo del Hombre, Jesucristo. El día de la aparición de Dios es aterrador, pero para su pueblo es reconfortante saber que Aquel que está sentado en el trono ha sido hecho como nosotros en todo, excepto sin pecado (Hebreos 4:15).
+
+---
+
+### Ezequiel 1:28
+El arco iris en las nubes. La imagen de un arco iris entre nubes de tormenta refleja la perspectiva de un juicio moderado con misericordia. Las nubes de tormenta amenazan con una destrucción inminente, pero el arco iris recuerda la promesa de Dios a Noé (Gén. 9:16, 17). Aunque la inminente invasión babilónica destruirá a muchos de los habitantes, Dios no olvidará su promesa de preservar un remanente. Caí sobre mi rostro. A la luz de esta visión de juicio imponente e ineludible, el profeta cae como muerto. La advertencia principal del pasaje no es para él ni para sus compañeros de exilio, sino para los que han permanecido en Judá y Jerusalén. Está llamado a llevar un mensaje de esperanza a los exiliados. El mismo Dios glorioso que amenaza con un juicio total también puede reconstruir lo que ha derribado (cf. Jer. 1:10).
+
+---
+
+### Ezequiel 2:1
+Como en otras narraciones de llamados, después de que el profeta llega a la presencia divina, Dios anuncia la comisión, normalmente con una declaración de que Él está enviando a esa persona (2:3; Éx. 3:10; Jue. 6:14; Isaías 6:8; Jeremías 1:7). 2:1 Hijo del hombre. O “Hijo de Adán”. Dios se dirige a Ezequiel de esta manera más de noventa veces en este libro. La frase enfatiza la humanidad y la fragilidad del profeta, especialmente porque se encuentra tan cerca de una visión de la gloria de Dios y de los seres celestiales que lo rodean. También lo distingue de sus contemporáneos, a quienes el Señor llama “el pueblo (lit. 'hijos') de Israel”. Son una “nación de rebeldes”, los verdaderos herederos de su antepasado, Jacob/Israel, cuyo rasgo distintivo fue luchar con Dios (Gén. 32:28). Como “Hijo de Adán”, Ezequiel representa al primer miembro de una nueva comunidad de fe, habitada por el Espíritu y capacitada para una vida de nueva obediencia (2,2). Como sucede con los huesos secos del capítulo 37, cuando el Espíritu entra en el profeta, Ezequiel se pone de pie, obediente y dispuesto a servir (cf. 37,10). De esta manera, prefigura personalmente la salvación que anuncia a sus compañeros de exilio. Jesús es el verdadero Hijo del Hombre, que combina en una sola persona las glorias del Hijo del Hombre celestial descritas en Daniel 7:13, 14 con la “mera humanidad” que es el significado más común de la frase. En su ministerio terrenal, Jesús se hizo como nosotros en nuestra humanidad, compartiendo nuestras debilidades y dolores, pero sin pecado (Marcos 10:45; 1 Pedro 2:22). Habitado por el Espíritu, obedeció y se convirtió en el último Adán, el miembro fundador de la nueva comunidad de fe de Dios (1 Corintios 15). Como tal, en su resurrección Jesús es el anticipo de la nueva comunidad de hijos de Adán e hijas de Eva transformados por el Espíritu que encuentran su esperanza en Él.
+
+---
+
+### Ezequiel 2:6
+cardos... espinos... escorpiones. Estas metáforas se refieren a quienes van a perseguir a Ezequiel por traer un mensaje impopular de parte de Dios (1 R 18:4; Jer 20:7-18; Mt 23:29-31, 34, 37). Su ministerio será doloroso y frustrante y su audiencia no responderá (cf. Is 6:9-13). Sin embargo, Ezequiel no es responsable del rechazo del pueblo a su mensaje; su tarea es entregarlo fielmente, para que cuando Dios les pida cuentas, no puedan negar que un profeta ha estado entre ellos.
+
+---
+
+### Ezequiel 2:9
+En otros relatos del llamado profético, una vez que se da la comisión, Dios a menudo proporciona una señal para confirmarla (Éx. 3:12; Jer. 1:11–14). Moisés dijo que Dios pondría su palabra en boca de los profetas (Deut. 18:18). Aquí esa promesa se describe visiblemente, ya que Ezequiel tiene que comer un rollo cubierto con palabras poco apetitosas del juicio de Dios. Sin embargo, Ezequiel no es como sus contemporáneos que se niegan a obedecer a Dios. Sorprendentemente, aunque el rollo parece desagradable, cuando Ezequiel lo come, lo encuentra tan dulce como la miel. La obediencia convierte una comida amarga en una comida agradable, mientras que la desobediencia arruina hasta la mejor comida.
+
+---
+
+### Ezequiel 2:10
+anverso ... reverso. Los rollos en los días de Ezequiel se escriben comúnmente en un solo lado, pero aquí la acusación contra el pecado del pueblo es demasiado larga para caber en un lado del rollo, y se desborda para llenar también el otro lado (cf. Zac. 5:3; Ap. 5:1). lamentación, luto y aflicción. La mayor parte de la primera mitad del libro de Ezequiel consta de oráculos de juicio contra Judá (caps. 1–24).
+
+---
+
+### Ezequiel 3:4
+la casa de Israel. Ezequiel es enviado a la El pueblo del Señor, pero no lo recibe (cf. Jn 1,11). Si el profeta Serían enviados a un pueblo que habla un idioma diferente y tiene una cultura diferente. cultura, sería mucho más fácil llegar a ellos con el mensaje de Dios.
+
+---
+
+### Ezequiel 3:7
+a ti... a mí. El Señor identificó Su mensajeros con Él (cf. Lc 10,16; Jn 13,20). La casa de Israel no es No sólo está cerrado a escuchar a Ezequiel, sino que también está cerrado a escuchar a Aquel que tiene Les envió el profeta.
+
+---
+
+### Ezequiel 3:8
+endureció tu rostro. El nombre de Ezequiel En hebreo significa “Dios fortalece, endurece”.
+
+---
+
+### Ezequiel 3:12
+El Espíritu me levantó. Ezequiel l más que Una vez describe sus experiencias visionarias en términos de transporte por el Espíritu (v. 14; 8:3; 11:1, 24; 40:1–3; 43:5). Véase 2 R. 2:11, 16; 2 Cor. 12:1, 2. Aquí, el El espíritu lo lleva de regreso desde su visión al mundo ordinario de los exiliados. EZEQUIEL 3:12
+
+---
+
+### Ezequiel 3:14
+amargura... de mi espíritu... abrumado. Como portavoz profético de Dios, comienza a sentirse un poco la amargura y la ira que Dios siente contra el pecado. Al mismo tiempo , como uno de Los exiliados, Ezequiel está abrumado ante la perspectiva de un juicio tan terrible. por venir. Como los consejeros de Job, se sienta en silencio durante siete días (Job 2:13 ), incapaz decir una palabra ante una tragedia tan profunda. Tel-abib. No se conoce la ubicación precisa.
+
+---
+
+### Ezequiel 3:16
+Palabra del Señor. Esta frase aparece Más de cincuenta veces en Ezequiel, más que en cualquier otro libro profético. EZEQUIEL 3:16
+
+---
+
+### Ezequiel 3:17
+El centinela. Ezequiel es responsable de aquellos a quienes atiende y tiene que advertirles de cualquier amenaza inminente, simplemente Como vigilante de una ciudad actúa como un vigía, proporcionando una advertencia anticipada de un posible desastre. El enemigo se acerca. Si no se da la advertencia, se le hará responsable de cualquier desgracia que se haya producido. La imagen de un vigilante también aparece en otras partes de El Antiguo Testamento (33:1–9; cf. Is. 56:10; Jer. 6:17; Os. 9:8). La gente de una ciudad nunca ignora el grito de un centinela ordinario, pero no escucharán a Ezequiel ( vv. 6, 7; cf. Is. 22:1–14). En este caso, el enemigo que se acerca es Dios mismo.
+
+---
+
+### Ezequiel 3:18
+justos e impíos. El profeta debe predicar a todos por igual, y la verdadera condición de cada individuo, ya sea justo o impío, se revelará por su respuesta a su mensaje. Ya sea que antes se los considerara “justos” o “impíos”, si prestan atención a sus palabras, recibirán vida, mientras que morirán si lo ignoran. La característica distintiva que conduce a la vida en lugar de a la muerte no es, por lo tanto, la condición previa, sino la fe presente en la palabra del Señor a través de Su profeta.
+
+---
+
+### Ezequiel 3:22
+La mano del Señor. Ezequiel usa esta frase para describir cómo le llega la revelación (v. 14; 8:1; 33:22; 37:1; 40:1).
+
+---
+
+### Ezequiel 3:23
+valle. La palabra significa un área abierta entre montañas y puede traducirse como “valle” o “llanura”. El mismo término aparece en la visión de Ezequiel del “valle” de los huesos secos (37:1). Allí, nuevamente, cae sobre su rostro cuando ve la gloria del Señor. Ver la gloria de Dios no es algo a lo que uno se acostumbre; siempre es abrumador.
+
+---
+
+### Ezequiel 3:25
+El profeta es prisionero de Dios, encerrado en su propia casa y atado con cuerdas. Hasta su lengua está bajo arresto domiciliario, por así decirlo, de modo que se vuelve incapaz de hablar. El profeta no es completamente mudo, sino que habla solo cuando recibe revelación de Dios. Ezequiel entrega muchos oráculos a los exiliados en los seis años entre su llamado y la destrucción de Jerusalén. Sin embargo, no se le permite interceder por ellos ante Dios porque el tiempo para el diálogo entre Dios y Su pueblo ha pasado. Ezequiel permanece sin palabras hasta que llegan a Babilonia las noticias de la caída de Jerusalén (24:27). En ese momento, cuando se ha completado el juicio de Dios sobre su pueblo, el profeta queda libre para hablar en su nombre una vez más.
+
+---
+
+### Ezequiel 4:1
+Los profetas a veces realizan actos simbólicos que ilustran sus mensajes. Esto sucede especialmente cuando predican a un público que no responde (1 R. 11:30; 22:11; 2 R. 13:17; Is. 20:2–4; Jer. 12:1-13). 13:1–14; 19:1–10). Se han encontrado ladrillos o tablillas de arcilla, de unas diez pulgadas (25 cm) por veinte pulgadas (51 cm) de tamaño, en toda Mesopotamia con mapas o En ellas están inscritos dibujos arquitectónicos. El profeta utiliza una tablilla de arcilla con una imagen de Jerusalén como pieza central de un cuadro que representa el asedio de la ciudad en el año 586 a. C., que terminó con su destrucción.
+
+---
+
+### Ezequiel 4:3
+El comal de hierro. El profeta utiliza un comal grande y plano en el que se cuece el pan en un horno. Puesto que el profeta representa a Dios en este drama en miniatura, el comal de hierro que está de pie sobre el borde representa el muro que existe entre Dios y Jerusalén. Sus oraciones no llegarán a Él, y Él no intervendrá en su favor. De hecho, Ezequiel describe a Dios con Su rostro dirigido agresivamente hacia la ciudad.
+
+---
+
+### Ezequiel 4:4
+El castigo. La naturaleza dual del oficio profético —representar a Dios ante el pueblo y al pueblo ante Dios— se ve en la segunda mitad de la acción simbólica. Habiendo representado a Dios en la primera parte, el profeta ahora representa al pueblo y lleva su pecado (cf. Éx. 10:13). 32:30–32; Romanos 9:3).
+
+---
+
+### Ezequiel 4:5
+cuarenta. El período de tiempo al que se refieren los números 390 y cuarenta es difícil de interpretar. Cada día representa un año (v. 6; cf. Núm. 14:34; Dan. 9:24–27). Puede ser que los cuarenta días no sigan a los 390 días (para un total de 430), sino que sean concurrentes con ellos. Una historia de pecado de 390 años se remontaría casi hasta la construcción del templo de Salomón. Los cuarenta años de la casa de Judá pueden representar una generación perdida, como la generación que soportó la ira de Dios durante cuarenta años en el desierto (Núm. 14:34). Por otra parte, algunos consideran que el total de 430 años es una referencia simbólica a la duración de la estancia de Israel en Egipto (Éx. 12:40, 41). Esto sugiere la posibilidad de un nuevo éxodo del pueblo de Dios al final de este período de tiempo. La interpretación judía supone que el número representa los años hasta el reinado de Josías; sin embargo, su reinado no está incluido porque se lo considera justo.
+
+---
+
+### Ezequiel 4:7
+Pon tu rostro hacia el sitio de Jerusalén. Ezequiel debía asumir ambos papeles en el drama, representando a Dios en su ira contra la ciudad, así como a la ciudad misma.
+
+---
+
+### Ezequiel 4:8
+Te pondré cuerdas. El hecho de que Ezequiel esté acostado de lado mientras está atado probablemente significa que está inmóvil durante una parte importante de cada día. Sin embargo, es poco probable que esté atado permanentemente, ya que todavía tiene que preparar sus comidas (vv. 8–13).
+
+---
+
+### Ezequiel 4
+Ezequiel debe subsistir con raciones para el asedio mientras representa el asedio de Jerusalén. Estas raciones reflejan las privaciones durante un asedio (Deut. 28:52-57; 2 R. 6:25; 7:12; Jer. 15:2; 19:9), cuando no hay suficiente de un tipo de grano para hacer un pan entero. Como resultado, la La comida es una mezcla extraña y desagradable de cereales y legumbres.
+
+---
+
+### Ezequiel 4:10
+veinte siclos. Aproximadamente ocho onzas (0,24 L; nota del texto).
+
+---
+
+### Ezequiel 4:11
+la sexta parte de un hin. Esta ración de agua equivale a poco más de una pinta (0,6 L).
+
+---
+
+### Ezequiel 4:12
+La limpieza ceremonial es casi imposible de observar durante un asedio, incluso para un sacerdote como Ezequiel. Es aún más difícil en el exilio. Los excrementos humanos se consideran impuros en la ley mosaica (Deut. 23:13), y el profeta se siente rechazado por el mandato de Dios, protestando que él nunca ha violado las leyes dietéticas que restringen los tipos de alimentos que a Israel se le permite comer (44:31; cf. Éx. 22:31; Lev. 7:19–24; 11:8, 39, 40; 22:8; Deut. 14:3, 8). Dios le permite sustituir el estiércol de ganado, que es un combustible muy utilizado en algunas partes del Cercano Oriente en nuestros días.
+
+---
+
+### Ezequiel 5:1
+La navaja. Cortarse el vello facial era un asunto de gran vergüenza personal en el antiguo Cercano Oriente (2 Sam. 10:4, 5; Is. 7:20; 50:6), ya que representaba una pérdida simbólica de la hombría. Al igual que los asirios antes que ellos, los babilonios lo usaban como un medio para humillar a los soldados capturados. El uso de una espada afilada como navaja conecta este acto-señal con los anteriores y señala la llegada del tiempo del juicio. El cuidadoso pesaje y división del cabello sugiere el juicio cuidadosamente medido de Dios sobre Su pueblo.
+
+---
+
+### Ezequiel 5:5
+Ezequiel interpreta el simbolismo de los vv. 1–4: los cabellos quemados en el fuego representan a los que morirán de plaga o enfermedad durante el asedio; los cabellos heridos por la espada representan a los que morirán en la batalla y las consecuencias del asedio; los cabellos esparcidos por el viento representan a los que serán llevados al exilio. Ezequiel no explica en detalle el significado de los pocos cabellos que quedan en los pliegues de su manto, pero simbolizan a los sobrevivientes que permanecerán en Jerusalén (Jer. 40:7–12). De este pequeño grupo, más tarde serán eliminados y destruidos por el fuego. Muy pocos de los que estén en Jerusalén sobrevivirán a la ira venidera.
+
+---
+
+### Ezequiel 5:10
+comerán a sus hijos. La idolatría de Israel y su negativa a obedecer los mandamientos del Señor tendrán graves consecuencias (véase Lev. 26:1, 2, 14, 15). Como resultado, las maldiciones con las que se amenaza en el resto de Levítico 26 caerán sobre ellos. Estas incluyen el canibalismo (Levítico 26:29), la dispersión entre las naciones (Levítico 26:33), el hambre (26:26), la enfermedad y la espada (26:25). Sin embargo, Dios promete en Levítico 26:44, 45 que estas maldiciones del pacto no serán Su última palabra. Él recordará su pacto y perdonará a un remanente de su pueblo a pesar de su pecado e infidelidad.
+
+---
+
+### Ezequiel 6:1
+El discurso de Ezequiel a los montes de Israel como si pudiera verlos ha llevado a algunos a sugerir que durante parte de su ministerio Ezequiel está en Israel en lugar de con los exiliados en Babilonia. Sin embargo, aunque los montes y colinas de Israel son su audiencia metafórica, la audiencia real es la comunidad de exiliados. Compárese con la profecía de Ezequiel sobre el pueblo de Edom, que está dirigida al monte Seir (cap. 35). Esta parte de Israel es el corazón político de la nación, pero también se ha infectado de idolatría, marcada por muchos lugares de culto paganos.
+
+---
+
+### Ezequiel 6:3
+Los lugares altos. Los cananeos normalmente adoraban a sus dioses en las cimas de las colinas. Dios ordenó a los israelitas que erradicaran los lugares altos cuando llegaron a la tierra (Núm. 33:52; Deut. 12:1–3; 33:29). Sin embargo, los lugares altos han continuado floreciendo mucho después de que se construyó el templo (16:16; Jer. 7:31; 19:5; 32:35; 48:35). La gente ha estado adorando a los dioses cananeos allí o ha convertido los santuarios paganos para usarlos en una combinación de prácticas cananeas y propias. La existencia continua de los lugares altos es una ofensa particular para el escritor del libro de los Reyes (1 R. 11:7; 12:31, 32; 13:2, 32; 14:23; 2 R. 12:3; 14:4; 15:4, 35; 17:29; 23:5, 8, 13, 15, 19, 20).
+
+---
+
+### Ezequiel 6:5
+Cadáveres. Los santuarios serán profanados por la presencia de cadáveres (9:7; cf. Núm. 19:16, 18; 1 R. 13:2; 2 R. 23:14-16; 2 Cr. 23:14, 15; 34:5).
+
+---
+
+### Ezequiel 6:7
+sabréis que yo soy Jehová. Ezequiel hace uso frecuente de esta “fórmula de reconocimiento” (cf. 7:4, 9; 11:10, 12; 12:20). El Señor se revela como el gobernante de la historia al anunciar de antemano los acontecimientos. Demostrará su poder al traer juicio sobre su pueblo rebelde, tal como lo exigen los términos del pacto del monte Sinaí.
+
+---
+
+### Ezequiel 6:8
+El exilio. Ezequiel introduce el tema del remanente (9:8; 11:12, 13; 12:16; 14:22, 23; 20:39–44). El remanente es un grupo o individuo que ha experimentado alguna calamidad, normalmente en juicio por el pecado, y ha sobrevivido. Este grupo de sobrevivientes se convierte en el núcleo para la continuación del grupo; encarnan las esperanzas futuras del pueblo y heredan de nuevo las promesas de Dios. El exilio debe ser un período de purificación y refinamiento para que pueda surgir de él un pueblo purificado.
+
+---
+
+### Ezequiel 6:14
+Ribla. Véase la nota del texto. La ubicación exacta es incierta, aunque el contexto parece requerir un lugar bien conocido. Las letras hebreas para “d” y “r” parecen similares y en ocasiones los escribas las confundían. Nabucodonosor estableció su corte en Ribla y allí ejecutó a muchos de los líderes militares y civiles de Jerusalén después de su caída (2 R 25:6, 21). El Señor puede demostrar Su poder y Su santidad destruyendo a los rebeldes así como purificándolos.
+
+---
+
+### Ezequiel 7:2
+El juicio se extenderá desde Jerusalén a los montes de Israel, y luego a los cuatro rincones de la tierra. El fin está sobre vosotros. El juicio ya no está simplemente cerca, como en los oráculos anteriores, sino que está realmente sobre ellos. No hay posibilidad de que Dios cambie de opinión o se apiade, porque el juicio del pueblo es ampliamente merecido por sus pecados.
+
+---
+
+### Ezequiel 7:7
+un día. Los profetas del AT a menudo hablan de “el día” o “el día del Señor” (30:3–9; cf. Is. 2:12–17; 13:6– 10; 34:8–12; 61:1– 3; 63:3–6; Joel 2; 3; Amós 5:18–20; Abd. 8, 15; Sof. 1:1, 2:15; Zac. 14; Mal. 4:1–3). Este es el día en que el Señor viene a juzgar a sus enemigos y a vindicar su nombre. Dependiendo del contexto en el que lo diga el profeta, el día del Señor puede significar alegría o tristeza para Israel. “el día del Señor” en el NT, véase Romanos 2:16; 1 Corintios 1:8; 5:5; 2 Corintios 1:14; Filipenses 4:11. 1:6, 10; 2:16; 2 Tim. 1:12, 18; 4:8; Heb. 10:25; 2 mascotas. 2:9; 3:12; Apocalipsis 16:14.
+
+---
+
+### Ezequiel 7:9
+Yo soy el Señor, que hiere. El mismo Dios que una vez fue “el Señor, tu sanador” (Éxodo 15:26) se ha convertido en “el Señor, que hiere”.
+
+---
+
+### Ezequiel 7:10
+El pecado de Judá ha llegado a su colmo y está lista para la destrucción.
+
+---
+
+### Ezequiel 7:12
+El fin de Judá se describe en dos paneles paralelos, vv. 12-18 y vv. 19-27. Cada uno proclama la inutilidad del dinero ante el conflicto inminente, luego anuncia la llegada de la guerra y sus horrores asociados antes de declarar que todo poder y fuerza serán inútiles en ese día. Ya sea un comprador o un vendedor, o incluso alguien con reservas de plata y oro, que son el último recurso tradicional en una crisis, todos se verán obligados a deshacerse de todos sus activos. De hecho, su plata y oro no solo serán inútiles sino inmundos (v. 20), algo odioso y repugnante debido a su asociación con sus antiguos ídolos. Debido a que el Señor eligió a Jerusalén como su morada y luchó milagrosamente a favor de la ciudad en el pasado (2 R 18; 19; 2 Cr 32; Is 36; 37), Judá ha confiado durante mucho tiempo en la noción de que la ciudad es inviolable. Jeremías, contemporáneo de Ezequiel, también advierte a los habitantes de la ciudad que no confíen en la existencia del templo como una garantía de su propia seguridad (Jer. 7:1–15; 26:1–19).
+
+---
+
+### Ezequiel 8
+El profeta ve cuatro tipos diferentes de idolatría floreciendo en la ciudad: (1) adoración de la “imagen de los celos” (vv. 5, 6); (2) adoración de “bestias” (vv. 7–13); (3) el culto a “Tammuz” (vv. 14, 15); y (4) adoración al “sol” (v. 16). Todos los segmentos de la sociedad están involucrados: ancianos (vv. 11, 12), las mujeres (v. 14) y los sacerdotes (v. 16). Las abominaciones aumentan en cada escena a medida que uno se acerca al centro de Jerusalén, donde está el templo del Señor. 8:1 En el sexto año, en el sexto mes, a los cinco días del mes. Catorce meses después de la visión inicial. Gran parte del tiempo transcurrido entre ambas visiones estuvo ocupado por los actos simbólicos del capítulo 4. cavan en la pared. La primera abominación era muy pública, mientras que la segunda es muy privada, detrás de una entrada oculta por una pared. Setenta ancianos de Israel, la misma cantidad que vio a Dios en los días de Moisés (Éxodo 24:1-11), están ofreciendo incienso a deidades con forma de animales, una práctica egipcia. Se cree que el incienso aleja a los espíritus demoníacos. En lugar de ver a Dios, como los ancianos de los días de Moisés, estos ancianos afirman que "el Señor no nos ve". Sin embargo, el hecho de que el Señor le dé esta visión a su profeta es una prueba de que están equivocados.
+
+---
+
+### Ezequiel 8:3
+A Jerusalén. No es necesario concluir que Ezequiel va físicamente a Jerusalén. Su experiencia visionaria de transporte no es diferente a otras experiencias visionarias en la Biblia (3:12, 14; 37:1; 40:1; cf. 2 Cor. 12:2). Los ancianos de Judá se reúnen en la casa del profeta en Babilonia, probablemente buscando palabras de aliento y consuelo. En cambio, escuchan palabras de condenación de sus pecados y los de su comunidad. Puerta... hacia el norte. Esta puerta lleva del patio exterior al patio interior del templo. El norte es la dirección de donde normalmente vienen los enemigos de Judá, por lo que es probable que el ídolo haya sido colocado allí en un intento de proteger el templo y la ciudad de los ataques.
+
+---
+
+### Ezequiel 8:5
+Imagen de celos. El versículo 3 define la imagen como algo que “provoca celos”, es decir, provoca la ira de Dios, que es celoso de su propia honra (Éxodo 20:5). La gloria de Dios pertenece allí (v. 4); el ídolo no. Este ídolo es probablemente una imagen de Asera, una diosa cananea que posiblemente es considerada como la consorte de Yahvé por el pueblo. Manasés puso una imagen de este tipo en el templo (2 Reyes 21:7).
+
+---
+
+### Ezequiel 8:11
+Jaazanías hijo de Safán. Safán Fue un líder clave en la reforma de Josías (2 R 22:3-14; 2 Cr 34:8, 15-20). EZEQUIEL 8:11
+
+---
+
+### Ezequiel 8:14
+Tamuz. En la época de Ezequiel, Tamuz (el dios babilónico Dumuzi) es adorado como dios de la fertilidad y como señor del inframundo. Los ritos utilizados en la adoración de Tamuz están ligados a los ciclos anuales de muerte y renacimiento de la vegetación. Cuando las plantas se marchitan bajo el calor del sol de verano, se cree que Tamuz murió y descendió al inframundo; los ritos de duelo marcan su muerte. La reaparición de la vegetación se considera como el regreso de Tamuz; los ritos de fertilidad buscan asegurar la productividad de la tierra. El lamento ritual por un ídolo muerto ha sido sustituido por el lamento ritual de la muerte de un ídolo. adoración al Dios vivo y verdadero.
+
+---
+
+### Ezequiel 8:16
+veinticinco hombres. El área entre el altar y el pórtico del templo está normalmente restringida a los sacerdotes, sin embargo, en esta visión se están violando todas las reglas normales del templo. Es probable, por lo tanto, que estos sean los ancianos que serán los primeros en ser juzgados en el próximo capítulo (9:6). El templo está orientado hacia el este, pero estos hombres literalmente le dan la espalda a la casa de Dios y adoran al sol naciente (2 R 21:5; 23:11). Los cultos astrales eran comunes en el antiguo Cercano Oriente.
+
+---
+
+### Ezequiel 8:17
+Violencia. Los pecados denunciados en este capítulo se refieren principalmente a una amplia gama de prácticas religiosas corruptas. Sin embargo, la religión corrupta va acompañada inevitablemente de relaciones corruptas entre las personas, de modo que se describe a toda la tierra como llena de violencia y anarquía. Este tema se desarrolla más en 9:9 y 11:6. A la luz de estas abominaciones, el juicio sobre Jerusalén es inevitable. Se llevan una rama a la nariz, un gesto desafiante y tal vez vulgar.
+
+---
+
+### Ezequiel 9:1
+cada uno con su arma destructora. La idolatría de la nación no quedará sin castigo (cf. 2 Cr. 15:12, 13). Aunque se describe a los asesinos como hombres (vv. 1, 2), probablemente sean guerreros angelicales (Éx. 12:23–30; 1 Cr. 21:15–20) quienes han sido asignados para ejecutar a los idólatras.
+
+---
+
+### Ezequiel 9:2
+vestidos de lino. Las prendas de lino son sagradas y, por lo tanto, las usan los ángeles y quienes están en la presencia de Dios (Dn. 10:5; 12:6, 7; Ap. 15:6; 19:8, 14), así como los sacerdotes (Éx. 28:31–42). Un estuche para escribir. Este hombre es un escriba, aparentemente encargado de llevar el registro celestial (Éx. 32:32, 33; Sal. 69:28; 139:16; Dan. 12:1; Fil. 4:3; Ap. 12:1). 3:5; 13:8; 17:8; 20:12, 15; 21:27). En este caso, el relato trata de señalar a quienes son fieles a Dios en medio de la infidelidad general que los rodea (cf. Mal. 3:16). Altar de bronce. Este altar, en el patio exterior, es donde se ofrecen los sacrificios.
+
+---
+
+### Ezequiel 9:3
+La gloria del Dios de Israel. Durante el período del antiguo pacto, la nube de gloria que representa la presencia divina normalmente mora entre los querubines sobre el arca del pacto. Ahora ha dejado el Lugar Santísimo y se ha trasladado a la entrada del templo como la primera etapa del abandono de Jerusalén por parte de Dios (10:18, 19; 11:22, 23).
+
+---
+
+### Ezequiel 9:4
+Antes de que se desaten los seis ángeles destructores, el Señor envía a la figura sacerdotal para marcar a todos los que lloran por las abominaciones que tienen lugar en Jerusalén (cf. Ap. 7:3; 14:9). Aquellos que sean marcados de esta manera serán protegidos en la destrucción de Jerusalén, tal como sus antepasados en Egipto fueron protegidos por la sangre del cordero pascual (Éx. 12:21-23).
+
+---
+
+### Ezequiel 9:5
+Al igual que en la primera Pascua, todos los que estén desprotegidos serán destruidos, incluidas las mujeres y los niños. Nadie escapará excepto aquellos que tengan una marca en la frente. Esto prefigura el último día del Señor, cuando el juicio sobre aquellos que permanezcan fuera de Cristo será igualmente abarcador. El juicio comienza con la casa del Señor (1 Ped. 4:17), comenzando con los adoradores del sol que estuvieron involucrados en la abominación culminante del capítulo 8.
+
+---
+
+### Ezequiel 9:7
+Profanar la casa. Normalmente, los pueblos antiguos tenían cuidado de no profanar el terreno sagrado de un templo permitiendo que se ejecutara a personas allí. La reina Atalía, por ejemplo, fue arrastrada fuera del templo antes de ser ejecutada (2 R 11:15, 16). Sin embargo, en este caso, el templo ya estaba tan profanado por los pecados del pueblo que el Señor mismo da la orden: “Profanad la casa”. Una vez que la presencia del Señor se ha ido, el templo es un cascarón vacío.
+
+---
+
+### Ezequiel 9:8
+Me quedé solo. Ezequiel teme que el ángel que registra no haya encontrado a nadie fiel a quien marcar y que él sea el único remanente. En respuesta, el Señor le señala a Ezequiel la enormidad de los pecados de Israel, lo que subraya sus temores. Sin embargo, en este momento crucial, el ángel que registra regresa y le informa que su misión ha sido un éxito. A Ezequiel no se le dice cuántas personas han sido marcadas para la salvación, pero el informe positivo del ángel modera el alcance del juicio.
+
+---
+
+### Ezequiel 9:9
+Sangre. Las acusaciones en el capítulo 8 Se centra en la idolatría y las ofensas al culto; aquí el tema no es la relación entre Dios y su pueblo, sino las relaciones entre el pueblo. El profeta es profundizando en la violencia y la anarquía mencionadas en 8:17.
+
+---
+
+### Ezequiel 10:1
+Querubines. Véase la nota sobre 1:5–9. La visión de los capítulos 8–11 está estrechamente relacionada con la visión inicial del capítulo 1. A través de una expansión, el mismo carro-trono celestial se separa de las criaturas que lo llevan. Las ruedas giratorias todavía están en movimiento. Sin embargo, en esta nueva ubicación del templo, Ezequiel puede reconocer que los seres vivientes del capítulo 1 son en realidad querubines, los ejecutores del juicio divino.
+
+---
+
+### Ezequiel 10:2
+Llenad vuestras manos de carbones encendidos. Al igual que Sodoma y Gomorra, la ciudad profanada de Jerusalén será quemada con fuego desde lo alto (véase Génesis 19). Esta escena visionaria revela los actos celestiales que preceden a los acontecimientos históricos en los que el rey Nabucodonosor llena la ciudad de cadáveres y la quema con fuego.
+
+---
+
+### Ezequiel 10:7
+extendió su mano. El querubín mete la mano dentro de la columna de fuego para sacar las llamas que devorarán la ciudad (v. 2) VOLVAMOS A EZEQUIEL 10:7
+
+---
+
+### Ezequiel 10:12
+ojos. Véase Deuteronomio 11:12; 2 Crónicas 16:9; Proverbios 15:3; Zacarías 3:9; 4:10; Apocalipsis 4:8. Una vez más, esto revela la necedad de la declaración de los ancianos: “El Señor no nos ve” (Ezequiel 8:12). Él no había abandonado la tierra antes, pero ahora lo hará, habiendo sido expulsado por el pecado de ellos.
+
+---
+
+### Ezequiel 10:14
+Querubín. Este rostro era un buey o toro en la visión anterior (1:10).
+
+---
+
+### Ezequiel 10:18
+La gloria de Jehová salió... La puerta oriental. La gloria de Dios se va por etapas, lentamente, como si se resistiera a abandonar su antiguo hogar. Se va hacia el este, la misma dirección desde la que regresará en el capítulo 43.
+
+---
+
+### Ezequiel 11:1
+veinticinco hombres. Habiendo visto la perspectiva divina sobre Jerusalén, el Espíritu le permite a Ezequiel escuchar las palabras de los profetas. habitantes terrestres. Jaazanías hijo de Azur. No es la misma persona que Jaazanías hijo de Safán (8:11).
+
+---
+
+### Ezequiel 11:3
+No está cerca el tiempo para construir casas. El consejo que dan los veinticinco hombres prominentes no es del todo claro, pero es probable que estén haciendo una pregunta retórica: “¿No es hora de construir casas?” Si es así, están aconsejando al pueblo que el futuro de Jerusalén es lo suficientemente seguro como para invertir en la construcción de casas, lo que no es simplemente un consejo tonto sino un consejo malvado en este contexto, ya que supone que Dios no puede o no quiere actuar contra los pecados que los rodean. caldero... carne. Los dirigentes de Jerusalén creen que las defensas de la ciudad serán suficientes para proteger a sus habitantes más valiosos, de la misma manera que una olla protege la carne deseable que hay en su interior. Sin embargo, las sobras no deseadas (los exiliados) son arrojadas al fuego.
+
+---
+
+### Ezequiel 11:7
+Las defensas de la ciudad (el caldero) no protegerán a los habitantes de Jerusalén (la carne). Así como una vez fueron sacados de Egipto y librados de las manos de los egipcios, ahora serán expulsados de la tierra y entregados a las manos de extranjeros que son en sí mismos los agentes del juicio del Señor.
+
+---
+
+### Ezequiel 11:13
+Pelatías. Irónicamente, este nombre significa “Yahvé provee escape”. Tal como en el capítulo 9, Ezequiel ve que el juicio que el Señor ha pronunciado se está ejecutando de inmediato. Cuando este hombre muere repentina e inesperadamente durante la visión de Ezequiel, Ezequiel teme que se pierda toda esperanza de escape. murió con él, lo que llevó a Ezequiel a plantear la misma pregunta que en 9:8. VOLVER EZEQUIEL 11:13
+
+---
+
+### Ezequiel 11:15
+parientes. En lugar del término habitual, se trata literalmente de “los hombres de tu redención”, es decir, parientes cercanos que actúan para preservar la familia y la propiedad en caso de una emergencia como la bancarrota (nota de Rut 2:20). En el caso de Ezequiel y sus compañeros de exilio, familias enteras han sido deportadas, sin dejar a nadie en Judá para cuidar la herencia. Sin embargo, Dios mismo será su protector.
+
+---
+
+### Ezequiel 11:16
+santuario. Puesto que los exiliados están lejos del templo en Jerusalén, Dios mismo lo sustituirá como su santuario. El Señor no se ha apartado simplemente del santuario en Jerusalén; se ha apartado hacia el exiliados para identificarse con ellos en sus sufrimientos. Jesús toma después el lugar del templo (Mt. 26:61; 27:40; Jn. 2:19), y por medio del Espíritu su Los seguidores de Jesús se convierten en su templo (1 Cor. 3:16, 17; 2 Cor. 6:16; 1 Ped. 2:5). EZEQUIEL 11:16
+
+---
+
+### Ezequiel 11:17
+El exilio en Babilonia no será permanente. Después de que el juicio de Dios se haya completado, Él traerá de regreso a Su remanente en un nuevo éxodo a Israel. El Señor también los cambiará por dentro, dándoles un corazón indiviso de lealtad al Señor y un espíritu nuevo y receptivo en lugar de sus viejos corazones de piedra. Esta transformación interna en sus corazones conducirá a nuevos niveles de obediencia a los estatutos y reglas del Señor. La meta del pacto se alcanzará: Dios morando en medio de Su pueblo santo. Esta es la primera indicación clara de esperanza en el libro de Ezequiel. Según el libro de Hebreos, el nuevo corazón y el nuevo espíritu prometidos aquí al pueblo del antiguo pacto de Dios han sido recibidos por Su pueblo del nuevo pacto. Todos aquellos que confían en Cristo solamente para salvación (Hebreos 8:8-13). A medida que el Espíritu renueva el modo de pensar de los creyentes, Dios los capacita para dejar atrás los viejos caminos de desobediencia y revestirse de nuevos actos de fidelidad a Él (Efesios 4:22-24). Si alguno está en Cristo, es nueva creación (2 Corintios 5:17).
+
+---
+
+### Ezequiel 11:22
+Al final de su visión, Ezequiel ve la nube de gloria alejarse de la ciudad de Jerusalén y moverse hacia el este a través del valle de Cedrón hasta el monte de los Olivos mientras se aleja de la ciudad. Pero Dios no ha abandonado la ciudad para siempre. Ezequiel describe más adelante la gloria de Dios que regresa a Jerusalén (cap. 43). Mientras tanto, el Espíritu de Dios devuelve al profeta a Jerusalén. Babilonia para poder comunicar esta visión a la gente de allí.
+
+---
+
+### Ezequiel 12:1
+Otro acto de señal (nota 4:1–3). El profeta describe el exilio de sus compatriotas que habían permanecido en Jerusalén empacando algunos objetos preciosos para llevar, como si fuera un refugiado, y cavando a través del muro, como si tratara de escapar de una ciudad sitiada sin ser notado.
+
+---
+
+### Ezequiel 12:2
+rebeldes. Véase 2:3–8; 3:9, 26, 27. Los habitantes de la tierra de Judá no son los únicos rebeldes; los exiliados entre los cuales Ezequiel vive con el mismo problema de corazón. ojos... oídos. Cf. Deut. 29:4; Prov. 20:12; Is. 6:9, 10; 32:3; Jer. 5:21; Mat. 13:15, 16; Mr. 8:18; Hch. 28:26, 27; Ro. 11:8. Toda la sección alude con frecuencia a la visión (vv. 4–7, 12, 13).
+
+---
+
+### Ezequiel 12:4
+La noche. Cavar a través de la pared de una casa al amparo de la oscuridad representa un escape furtivo (v. 5). Ezequiel describe vívidamente el intento fallido de Sedequías de escapar de Nabucodonosor (vv. 10, 11; 2 Rey. 25:3–7). Compárese con el éxodo (véase Éxo. 12:11).
+
+---
+
+### Ezequiel 12:6
+Cubrirse el rostro es un gesto de vergüenza o dolor (24:17, 22; cf. Lev. 13:45; 2 Sam. 19:4; Est. 6:12; 7:8; Sal. 44:15; 69:7). En este contexto, sugiere que los exiliados nunca volverán a ver Jerusalén y, más particularmente, que Sedequías perderá la vista (vv. 12, 13; 2 R. 25:7)
+
+---
+
+### Ezequiel 12
+Dios es descrito como un cazador (17:20; 32:3; cf. Job 19:6; Is. 8:14; 24:18; 51:20; Jer. 50:24; Lam. 1:13; Os. 7:12). El trágico final de Sedequías no es simplemente el resultado del expansionismo babilónico sino el acto de juicio del Señor. Sólo un puñado de los que han quedado en Judá escaparían. Estos declararán sus abominaciones a sus enemigos. captores al reconocer la justicia del juicio de Dios.
+
+---
+
+### Ezequiel 12:17
+Otro acto-señal (Introducción: Género y Características Literarias). El profeta debe temblar de miedo mientras come su comida y bebe su agua, lo que representa el terror que sentirán los habitantes de Jerusalén al ver que se acerca su destino. Los exiliados en Babilonia son en realidad los afortunados, no los que se han quedado atrás en Jerusalén.
+
+---
+
+### Ezequiel 12:21
+Estos pasajes están unidos por una preocupación con la profecía falsa. El AT utiliza una serie de criterios para distinguir la profecía verdadera de la falsa. Estos criterios se centran en cuál es el mensaje, cómo se recibe y quién lo recibe. (1) El criterio preeminente para la profecía verdadera o falsa es el cumplimiento de las palabras del profeta (Dt. 18:21, 22). Su mensaje no debe contradecir la revelación anterior (Dt. 13:1–5). El mensaje de un verdadero profeta a menudo va en contra del sentimiento popular, y los verdaderos profetas son perseguidos regularmente debido a sus pronunciamientos impopulares (Jer. 20:7–10; 38:1–13; 1 Tim. 4:1- 3). (cf. Mt. 23:34, 35). (2) Ciertos medios de discernir la voluntad de Dios están prohibidos (Dt. 18:9-14), incluyendo la adivinación, el espiritismo y la hechicería. Sin embargo, los profetas pueden recibir revelación por medio de sueños y visiones (Nm. 12:6-8). (3) El verdadero profeta es admitido a la confianza de Dios (Jer. 23:18). La experiencia de la admisión al consejo de Dios, como si fuera una asamblea divina, a menudo se relata en un relato de llamado (1:4-3:15 nota). Finalmente, el carácter del profeta debe ser coherente con la gloria del Dios al que sirve. No siempre es fácil distinguir la profecía verdadera de la falsa en el momento en que se da, ya que los falsos profetas pueden hacer todo tipo de comentarios. Las afirmaciones (1 R 22) y las profecías no siempre se cumplen inmediatamente. VOLVER EZEQUIEL 12:21
+
+---
+
+### Ezequiel 12:22
+Toda visión se desvanece. El primer lema popular sobre la profecía es que el tiempo pasa y las visiones no se cumplen. Por lo tanto, el pueblo concluye que se puede ignorar a los profetas sin problemas. Sin embargo, el Señor declara que todas las profecías se cumplirán. Él eliminará las visiones falsas y pronto hará que se cumplan las visiones verdaderas que Él ha dado a Sus profetas.
+
+---
+
+### Ezequiel 12:27
+tiempos lejanos. El pueblo se burla de que la profecía no se cumplirá durante sus vidas. El pueblo ha visto profecías de juicio sin cumplirse durante tanto tiempo que asume que tales profecías siempre se refieren a un futuro distante. Eso ha llevado al pueblo a la falsa suposición de que las palabras de un profeta siempre son para un futuro distante. En el NT, una actitud similar de incredulidad no cambia la certeza del regreso de Cristo (2 Ped. 3:3, 4, 10; Apoc. 10:6, 7).
+
+---
+
+### Ezequiel 13:2
+profetizan de su propio corazón. Los falsos profetas inventan sus propias profecías, mientras que los verdaderos profetas solo pueden decir las palabras que el Señor les da. En este caso, sin embargo, los falsos profetas recibirán una palabra verdadera del Señor; irónicamente, una palabra que declara su propia destrucción (vv. 4–23)
+
+---
+
+### Ezequiel 13:3
+Ay. Palabra utilizada por los profetas en declaraciones de juicio divino.
+
+---
+
+### Ezequiel 13:4
+chacales. El profeta describe a los falsos profetas como chacales entre ruinas. Estos animales no son simplemente inútiles para la sociedad judía, pero perjudicial porque buscan comida para sí mismos (cf. “zorra” en Nehemías 4:3). Estos profetas afirman tener una palabra de Dios, pero su Las visiones son falsas y sus palabras son mentiras.
+
+---
+
+### Ezequiel 13:5
+no subieron a las brechas. La verdad El profeta está dispuesto a exponerse al riesgo por el pueblo de Dios. Cuando un Un ejército atacante rompe una muralla alrededor de una ciudad en los días de Ezequiel, el más La tarea peligrosa es reparar la brecha. En esos puntos, los falsos profetas son No se encuentran en ninguna parte; están más interesados en su propia seguridad que en el bien. del pueblo. El término Hb. para una brecha también se usa para describir a Moisés, quien “estaba de pie en la brecha” (Sal. 106:23) en nombre de Israel. En última instancia, sólo Jesucristo , el El último profeta puede interponerse entre Dios y la humanidad (1 Tim . 2:5).
+
+---
+
+### Ezequiel 13:9
+registro. Probablemente la lista del censo y Registro civil de Israel, la contraparte terrenal de los registros celestiales. Véase la nota 9:2 Los falsos profetas no serán incluidos entre los que regresen a Judá. después del exilio (ver Esdras 2). Han proclamado “paz”, cuando no hay La paz se encuentra (cf. Jer. 6:14; 8:11).
+
+---
+
+### Ezequiel 13
+Sus falsas visiones y mentiras Las adivinaciones hacen que estos profetas sean como personas que ocultan las malas noticias. obra de un muro bajo una capa de cal (nota del texto del v. 10) . Puede parecer sustancial, pero no puede resistir el diluvio del juicio de Dios , el día del Señor cuando Dios mismo traerá juicio sobre la ciudad. Cuando Si cae, destruirá a los falsos profetas junto con él. La Biblia menciona varias enseñanzas verdaderas profetisas, entre ellas Miriam, Débora, Hulda y Ana (Éx. 15:20 ; Jue. 4:4; 2 R. 22:14; 2 Cr. 34:22; Luc. 2:36), así como algunas falsas (Neh. 6:14; Ap. 2:20). El problema para Ezequiel en este pasaje no es que las mujeres sean profetizando sino que están practicando magia y hechicería, actividades específicamente prohibido para Israel (nota 12:21–14:11). Se ganan la vida vendiendo Amuletos y talismanes a cambio de pequeñas cantidades de comida, prometiendo el poder de vida o muerte para quienes los pagan. Tal poder pertenece a los verdaderos profetas como Proclaman las palabras de Dios (3:17– 21; 33:1–9). Las tácticas de marketing de estos Las profetisas desaniman a los justos y alientan a los malvados al declarar que el juicio o la aceptación por parte de Dios depende del pago de sus honorarios, no de justicia. El Señor actuará para liberar a su pueblo de su trampa . EZEQUIEL 13:17
+
+---
+
+### Ezequiel 14:1
+Los ancianos de Israel. Los líderes de la comunidad exiliada (ver 8:1; 20:1). Visitan al profeta, probablemente buscando una palabra de aliento, pero en cambio escuchan una palabra de juicio.
+
+---
+
+### Ezequiel 14:3
+“Pongo piedra de tropiezo”. Una de las frases favoritas del profeta (vv. 4, 7; 7:19; 44:12). Los ancianos han erigido ídolos en sus corazones y están manchados con los mismos pecados que afectan a los que quedaron atrás en Jerusalén (8:10-12). Aunque exteriormente están sirviendo al Señor, sus corazones están en otra parte; una devoción tan dividida no merece respuesta del Señor (Sal. 24:3, 4). En el exilio, los dioses babilónicos constituyen una tentación importante debido a su aparente poder para dar victorias al rey babilónico, quien conquista con éxito muchas naciones. Los exiliados no necesariamente quieren abandonar al Señor; simplemente quieren acceder al poder de estas deidades.
+
+---
+
+### Ezequiel 14:9
+Yo... he engañado... extenderé Mi mano. Numerosos pasajes bíblicos integran la soberanía de Dios y la responsabilidad moral de los seres humanos sin permitir que la voluntad predeterminada de Dios sea utilizada como excusa para el mal moral (Est. 4:13, 14; Joel 2:32; Mat. 26:24, 25; Hch. 2:23). En esta sección, los idólatras sin intención alguna de abandonar su idolatría acuden en busca de una palabra profética. Por disposición de Dios, encuentran un profeta tan falso como ellos, y ambos caerán bajo el juicio de Dios. El profeta que les sirve, aunque ordenado por Dios, carga con la responsabilidad de su mal proceder (cf. 1 R. 22:19–25). Sin embargo, el objetivo de los actos de juicio del Señor no es destruir a los exiliados, sino liberarlos de las idolatrías de su corazón. El plan soberano de Dios de tener un pueblo al que llamar Suyo no puede ser frustrado.
+
+---
+
+### Ezequiel 14:12
+El profeta aparentemente se está refiriendo a la opinión sostenida por algunos de que la presencia de un cierto número mínimo de personas justas en Jerusalén servirá para proteger la ciudad (cf. Génesis 18:22–23). 32) Aunque Ezequiel habla de un país hipotético, es claro que se refiere a Israel, ya que es la única nación que tiene una relación de pacto con el Señor. Si la nación rompe las condiciones de su pacto, entonces no puede quejarse si experimenta las maldiciones especificadas en el pacto. Estas maldiciones del pacto son detallado en forma de cuatro casos de prueba, usando cuatro maldiciones de la lista de Levítico 26: hambre (vv. 13, 14; Levítico 26:26), animales salvajes (vv. 15, 16; Levítico 26:22), guerra (vv. 17, 18; Lev. 26:25), y enfermedades (vv. 14:19, 20; Lev. 26:25).
+
+---
+
+### Ezequiel 14:14
+Noé, Daniel y Job. Aunque Noé era un hombre justo e intachable entre los de su generación (Gén. 6:9), el mundo no se salvó por su presencia. Job también era intachable y recto (Job 1:1), pero esto no perdonó a su familia. La identidad del Daniel mencionado es muy debatida. La ortografía Hb. que se usa aquí (Daniel) es diferente de la que se usa para el nombre del profeta Daniel, que era contemporáneo de Ezequiel (Daniyyel), por lo que algunos han asumido que Ezequiel se refiere a una figura heroica pagana con un nombre similar que se menciona en un antiguo texto ugarítico. Sin embargo, estas pequeñas variaciones en la ortografía de los nombres bíblicos son extremadamente comunes, y es poco probable que un verdadero profeta como Ezequiel escogiera a un pagano conocido como modelo de justicia y sabiduría en el pacto. Cada uno de los tres personajes bíblicos es famoso por su fidelidad en medio de circunstancias difíciles. Sin embargo, incluso si la tierra contiene no uno sino tres hombres así, su justicia no puede salvar a la ciudad de Jerusalén (cf. v. 20). ¡Cuánto más desesperanzada es la condición de Jerusalén, ya que no solo carece de un hombre justo así, sino que está llena de injusticia, y por lo tanto se verá afectada no por una sino por las cuatro maldiciones a la vez! La ciudad está condenada a una destrucción casi completa.
+
+---
+
+### Ezequiel 15:1
+La primera de una serie de metáforas, cada una de las cuales describe el juicio inminente de Jerusalén.
+
+---
+
+### Ezequiel 15:3
+La madera de la vid no sirve para hacer ningún objeto que valga la pena, ni siquiera para colgar algo . No tiene fuerza ni belleza; sólo sirve para el fuego. Dios recuerda a los exiliados que su elección de Israel como su pueblo no se debe a ningún valor intrínseco en ellos, sino únicamente a una cuestión de su gracia (Deut. 7:6-8).
+
+---
+
+### Ezequiel 15:4
+carbonizada. Si la madera de la vid era inútil antes de ser quemada, ¿cuánto más inútil será después de haber sido parcialmente consumida por el fuego? La quema parcial de Israel es probablemente una referencia al exilio parcial que tuvo lugar en el año 597 a. C. con la deportación de Joaquín. y una gran parte de la clase alta de la ciudad, incluyendo a Ezequiel. Incluso después de este acto de juicio, la ciudad no ha sido redimida, sino que en realidad vale aún menos. El profeta Zacarías compara el exilio babilónico con un fuego cuando describe al sumo sacerdote como “un tizón arrebatado del fuego” (Zac. 3:2). La metáfora de la vid se usa a menudo en otros lugares como símbolo de Israel, expresando el cuidado personal de Dios por su pueblo como su jardinero (Sal. 80:8, 9; Is. 5:1-7). Sin embargo, no han logrado devolver el buen fruto que Él espera de ellos (Is. 5:2; Jer. 2:21). Jesús es la verdadera Vid que Dios mismo cuida (Jn. 15:1). Él es, por lo tanto, el verdadero Israel, y los que están en Él son la verdadera comunidad fructífera de Dios. Por otro lado, los que están separados de Cristo no valen nada, son aptos solo para el fuego (Jn. 15:5, 6).
+
+---
+
+### Ezequiel 15:8
+Han actuado sin fe. Al igual que la tierra destinada al juicio en el capítulo 14, Jerusalén ha sido infiel al Señor y, por lo tanto, enfrenta el juicio.
+
+---
+
+### Ezequiel 16
+Ezequiel cuenta la historia de un hijo no deseado, su matrimonio y su infidelidad. Oseas también utiliza el matrimonio como analogía de la relación de pacto entre Dios e Israel (Oseas 1– 3; véase también Efesios 5:22–33; Apocalipsis 19:7; 21:2, 9). El discurso de Ezequiel parece tener un contexto judicial; relata la acusación de Dios contra la nación desde sus primeros días hasta su propio tiempo, Revelando la verdadera naturaleza de Jerusalén como prostituta desenfrenada. Todo lo que la expósito convertida en reina recibió de su amado esposo y rey ahora se convierte en libertinaje y promiscuidad (cf. Dt. 6:10-12). Ella ha pensado que su belleza y esplendor eran logros propios, no regalos del Señor. Ha dado su ropa y joyas a sus ídolos, junto con la comida con la que el Señor la había bendecido (cf. Os. 2). Sus acciones demuestran la irracionalidad del pecado; no puede haber ninguna razón sólida para tal comportamiento. Los lectores de la Biblia a menudo piensan que los pecados de Sodoma eran principalmente sexuales (Gén. 19:5-9). Si bien Sodoma era culpable de pecados sexuales como la homosexualidad y la violencia sexual, Ezequiel también acusa a la ciudad de su materialismo y su descuido de los pobres y necesitados. Jesús hace una comparación similar con Capernaúm en Mateo 11:23, 24. Los pecados de Jerusalén superan a los de sus hermanas, las ciudades cercanas Sodoma y Samaria. En comparación con Jerusalén, Sodoma y Samaria parecen virtuosas. Tanto Sodoma como Samaria eran destruida por sus pecados, por lo que Jerusalén inevitablemente debe enfrentar el mismo destino. EZEQUIEL 16:49
+
+---
+
+### Ezequiel 16:3
+origen. Jerusalén fue originalmente una ciudad pagana; los primeros habitantes son descritos de diversas maneras como amorreos, cananeos, jebuseos e hititas (v. 45; cf. Génesis 10:15, 16; Josué 10:5; Jueces 1:21; 19:10, 11; 2 Samuel 5:6). No fue conquistada en los días de Josué, y ha conservado una importante población cananea incluso después de que David finalmente la capturó.
+
+---
+
+### Ezequiel 16:4
+Su cordón umbilical no fue cortado. Sus padres no realizaron las prácticas habituales de parto de cortar el cordón umbilical, lavarla, untarle el cuerpo con sal y aceite y envolverla en pañales bien apretados. En cambio, la dejaron en un campo para que muriera, como sucedía con regularidad en la antigüedad con las niñas no deseadas.
+
+---
+
+### Ezequiel 16:6
+revolcándose en tu sangre. El Señor la encontró en ese estado desesperanzado y la rescató mediante Sus palabras vivificantes.
+
+---
+
+### Ezequiel 16:7
+creció. La niña no deseada creció y se volvió hermosa. El inicio de la pubertad se produjo con el desarrollo de los senos (cf. 23:3) y el crecimiento del cabello; más tarde, la niña alcanzó la edad de la madurez sexual (v. 8). En términos de la metáfora, el Señor bendijo a Jerusalén incluso antes de que se convirtiera en una ciudad israelita.
+
+---
+
+### Ezequiel 16:8
+Extiende la punta de mi manto sobre Cubrir a una mujer con la propia ropa simboliza el inicio de una relación matrimonial (Rut 3:9). “Descubrir” esta relación es violarla (Deut. 22:30). Hice mi voto. La relación de pacto de Dios con Israel quedó sellada con el juramento: “vosotros seréis mi pueblo, y yo seré vuestro Dios” (36:28; Lv. 26:12; Jer. 11:4; 30:22; cf. Os. 1:9). Para el juramento divino, véase Génesis 15:7–21; 26:3; Deuteronomio 2:13; 1 Samuel 15:1-15 ... 1:8. Esto se relaciona con el pacto davídico, que ha significado la elección de Jerusalén, así como la de David y sus descendientes (Sal. 132).
+
+---
+
+### Ezequiel 16:9
+La niña expósito se convierte en reina. Ha recibido todos los cuidados que le faltaron al nacer y mucho más. Su vida, estatus, riqueza y belleza se derivan del don misericordioso de Aquel que la ha elegido. Él le ha provisto de hermosas joyas y los alimentos más exquisitos, lo que ha hecho que su fama se extienda por todo el mundo.
+
+---
+
+### Ezequiel 16:20
+sacrificados. Para la práctica del sacrificio de niños en Israel y entre los estados vecinos, véase v. 36; 20:31; cf. Lv. 18:21; 20:2–5; Dt. 12:31; 18:10; 2 R. 16:3; 17:17; 21:6; 23:10; Sal. 106:37, 38; Jer. 32:35; Miqueas 6:7. En Jerusalén, estas prácticas se asocian con el valle del Hijo de Hinom, al sur de la ciudad.
+
+---
+
+### Ezequiel 16:26
+La prostituta se prostituyó. Muchos profetas describen la idolatría como adulterio (p. ej., Oseas 2), pero Ezequiel lleva la ilustración mucho más allá. Jerusalén actúa como una prostituta, cometiendo adulterio en cada esquina con un apetito inagotable por más. En lugar de exigir un pago por sus servicios, como la mayoría de las prostitutas, Jerusalén misma ha dado regalos a sus amantes (v. 33). El hecho de que Israel no haya obedecido a Dios no es solo un asunto de idolatría. Las alianzas extranjeras con Egipto, Asiria y Babilonia también se consideran evidencia de que no se confió en Dios frente a las dificultades políticas. Tales alianzas eran una violación de la lealtad exclusiva de Israel al Señor (cf. 23:7; 29:16; cf. Is. 7; 8; 30; 31; Jer. 2:36, 37; 22:20–22; Os. 7:11–13). El escritor de Crónicas enfatizó este punto particularmente (2 Cr. 14:9–15; 16:1–9; 19:1, 2; 20; 25:6–8; 28). El lenguaje de Ezequiel es deliberadamente explícito y ofensivo, incluso más en el hebreo que en la mayoría de las traducciones al español. Ese carácter ofensivo es precisamente el punto central del pasaje: el profeta no será cortés ni comedido en relación con el pecado de la nación que está a punto de traer una destrucción tan devastadora sobre sus cabezas.
+
+---
+
+### Ezequiel 16:37
+Reúnelos contra ti. Ella ha buscado la lealtad y el afecto de sus amantes, pero en cambio ellos se han convertido en los instrumentos de su humillación y castigo. Aunque Dios usa a las naciones para castigar a Su pueblo, esas naciones cargarán con la culpa de los pecados que han cometido (cap. 25; cf. Is. 10:5, 12; Zac. 1:14, 15); véase la nota sobre 14:9. descubre tu desnudez. La degradación pública al exponer la desnudez de las prostitutas o adúlteras también se menciona en Jeremías 13:22, 26; Oseas 2:10; Nah. 3:5.
+
+---
+
+### Ezequiel 16:38
+traerá sobre ti la sangre. Para la ira de un marido celoso, véase Proverbios 6:34. Se le quitarán las riquezas y las vestiduras a la mujer, y quedará tan desnuda como cuando comenzó la historia. No estará cubierta con la sangre del parto (v. 6), sino con la sangre de sus heridas. Según la ley mosaica, el adulterio es un delito capital que se castiga con lapidación (Levítico 20:10; Deuteronomio 22:21–24; cf. Juan 7:53–8:11).
+
+---
+
+### Ezequiel 16:41
+Quemad vuestras casas. Véase 23:47; cf. Jer. 32:29; 34:22; 37:8; 38:18. Sus casas serán quemadas, junto con la destrucción de sus santuarios paganos (v. 39). El ejército babilónico quema una gran parte de Jerusalén cuando finalmente toma la ciudad en el año 586 a. C. (Jer. 39:8).
+
+---
+
+### Ezequiel 16:44
+Proverbios. Ezequiel hace referencia más de una vez a proverbios populares (12:21–28; 18). En este punto, la metáfora cambia de marido y mujer a padre e hijas.
+
+---
+
+### Ezequiel 16:45
+Los hititas y los amorreos fueron los habitantes anteriores de la Tierra Prometida que fueron expulsados de la tierra por sus pecados (Gén. 15:16). Jerusalén tiene el parecido de su familia.
+
+---
+
+### Ezequiel 16:46
+Samaria. Hogar de culto corrupto desde los días de Jeroboam, quien construyó santuarios para sus becerros de oro en Betel y Dan (1 R. 12:28–33).
+
+---
+
+### Ezequiel 16:53
+La decisión del Señor de destruir a Jerusalén por sus pecados queda vindicada. Sin embargo, Él también restaurará a Jerusalén, junto con sus hermanas cargadas de pecado, para que el orgullo de Jerusalén sea aplastado y ella sienta la vergüenza apropiada por sus acciones.
+
+---
+
+### Ezequiel 16:60
+Pacto eterno. Aunque Jerusalén ha roto su pacto de manera total, el Señor promete un nuevo pacto, una nueva relación entre Dios y la ciudad en el futuro. Dios mismo expiará sus pecados y la restaurará por completo por Su gracia, de modo que ya no habrá lugar para que ella se jacte.
+
+---
+
+### Ezequiel 17
+Este oráculo no tiene fecha, pero probablemente se entregó en algún momento entre las fechas dadas en 8:1 y 20:1, la sexta y séptimos años del exilio de Joaquín (592–590 a. C.). Nabucodonosor pone sitio a Jerusalén en 587 a. C. y destituye a Sedequías del trono en 586. AC (v. 20). Sobre la muerte de Sedequías, véase 2 R. 24; 25; 2 Cr. 36; Jer. 52). 17:1–24 Ezequiel propone un enigma, o más precisamente una fábula, una historia que traslada elementos del mundo real al mundo de los animales y las plantas. El contexto de fantasía distancia la historia de la realidad, lo que permite la fuerza de su mensaje para penetrar las defensas de una audiencia resistente.
+
+---
+
+### Ezequiel 17:3
+Águila. El poder imperial de Babilonia, representado por Nabucodonosor. Cedro. Representa el reino de Judá y la dinastía de David que ha perdurado más de trescientos años hasta este momento.
+
+---
+
+### Ezequiel 17:4
+La parte más alta de sus ramitas jóvenes. La eliminación de la parte más alta se refiere al exilio y cautiverio de Joaquín en Babilonia. Los exiliados siguen considerando a Joaquín como el rey legítimo de Judá.
+
+---
+
+### Ezequiel 17:5
+Nabucodonosor reemplaza el cedro con la vid, mucho más humilde y modesta, en referencia a su instalación de Sedequías en el trono de Jerusalén después de deportar a Joaquín (2 Reyes 24:15-17). 17) Nabucodonosor ha hecho mucho por Sedequías, así como la vid tiene tierra fértil y agua abundante, y prosperó.
+
+---
+
+### Ezequiel 17:7
+Otra gran águila. El giro de la vid hacia otra gran águila representa el cambio de lealtad de Sedequías, de Nabucodonosor a Egipto (vv. 15-17), lo que dio como resultado que la vid misma fuera arrancada y destruida.
+
+---
+
+### Ezequiel 17:10
+viento del este. En Judá, el viento del este sopla desde el desierto y, por lo tanto, es caliente y seco, marchitando la vegetación a su paso (véase 19:12). El juicio del Señor en la forma de Babilonia desarraigará y marchitará la línea davídica. Dado que es un enigma, el significado superficial no agota su importancia. La vid plantada en condiciones perfectas también es una imagen clásica de Israel, mientras que el águila que cuida tan tiernamente la vid en realidad parece describir el cuidado del Señor más que el de Nabucodonosor. Esto subraya la analogía entre la rebelión de Sedequías contra su señor supremo del pacto, Nabucodonosor, y la rebelión de Israel contra el Señor. Si la rebelión de Sedequías Contra Babilonia es un suicidio, como lo demuestra claramente la fábula. ¿Qué dice eso acerca de la traición de Israel contra su amo?
+
+---
+
+### Ezequiel 17:15
+Egipto. Aunque las historias del Antiguo Testamento no registran la petición de ayuda de Sedequías a Egipto, Jeremías sí la menciona (Jer. 37:5–11; 44:30). Una de las cartas de Laquis, escrita en cerámica rota en los últimos días del reino de Judá, relata que un comandante del ejército descendió a Egipto, tal vez para pedir ayuda. Véase 16:26; 29:6, 7; 30:20–26.
+
+---
+
+### Ezequiel 17:20
+Véase 2 Reyes 25:4–7.
+
+---
+
+### Ezequiel 17:22
+La última parte del capítulo le da a la fábula un giro inesperado . La Biblia a menudo usa un árbol como símbolo de la realeza (Dn. 4:9–12, 19–22), particularmente como figura del Mesías. El Renuevo mesiánico será un nuevo comienzo a partir de la casa de David (Is. 4:2; 11:1; 53:2; 60:21; Jer. 23:5; 33:15; Zac. 6:12). Ezequiel anuncia que aunque la actual línea de David ha llegado a un punto muerto en Sedequías, algún día Dios tomará a un descendiente de Joaquín (cf. vv. 3, 4 y 12, 13) y lo restaurará al reinado en Judá.
+
+---
+
+### Ezequiel 17:23
+pájaro. En lugar de depender de otros reinos (pájaros como las águilas), este espléndido cedro se convertirá en un refugio para aves de todo tipo (cf. Dn. 4:12, 21). Este árbol será fructífero de una manera en que el primer cedro nunca lo fue (2 R. 19:30; cf. Is. 11:1; 37:31; Jer. 17:8; cf. Jn. 15:4, 5, 8, 16).
+
+---
+
+### Ezequiel 18:1
+El exilio no es el resultado de los pecados de una sola generación. Más bien, la continua desobediencia de Israel a través de muchas generaciones “desde el día que sus padres salieron de Egipto hasta hoy” (2 R. 21:15) finalmente trae juicio sobre Judá. Dios juzga la culpa acumulada de la nación en los eventos que conducen a la destrucción de Jerusalén. La respuesta de los exiliados es cuestionar la justicia de Dios. El proverbio popular (v. 2; cf. Jer. 31:29) en efecto dice: “No es culpa nuestra; estamos siendo castigados por lo que no hicimos. Nuestros padres pecaron, y somos nosotros los que estamos pagando el precio” (cf. Lm. 5:7). Ezequiel responde enfatizando que Dios responde según los actos de cada individuo y generación. Los exiliados no pueden evadir su culpa; también sufren por sus propios pecados (Deut. 24:16). El profeta construye su argumento como un estudio de caso que involucra tres generaciones consecutivas. Describe a un hombre justo con un hijo injusto pero un nieto arrepentido y justo. Cada uno es evaluado exactamente con la misma lista de conductas morales, y cada uno recibe exactamente lo que merece.
+
+---
+
+### Ezequiel 18:6
+Comer sobre los montes. Se refiere a participar en comidas sacrificiales en presencia de dioses paganos en los lugares altos (6:13; 20:28; 22:9; cf. Éx. 32:5, 6). Impureza. La ley prohíbe las relaciones sexuales durante el período menstrual de la mujer, cuando está ceremonialmente impura (22:10; cf. Lev. 15:16–33; 18:19). Las emisiones de fluidos vitales corporales hacen que una persona sea ritualmente impura, y el contacto con esas emisiones hace que los demás también sean impuros.
+
+---
+
+### Ezequiel 18:7
+Véase vv. 12, 16; cf. Éx. 22:26; Deut. 24:10–13, 17; Prov. 20:16; Amós 2:8. Prestar dinero con interés está prohibido en el Antiguo Testamento debido a la oportunidad que brinda para la extorsión. Los pobres podían entregar un objeto como garantía de que el préstamo sería devuelto, pero si ese objeto era una prenda de vestir exterior, debía ser devuelto antes del anochecer para protegerlo del frío. Un ostracon (un trozo de cerámica rota con una escritura en él) de finales del siglo VII a. C. registra la queja de un trabajador del campo a un funcionario de la aldea de que su empleador había tomado su prenda de vestir y se la había quedado.
+
+---
+
+### Ezequiel 18:10
+Un hijo que es violento. Tener un padre justo no significa que el hijo injusto escapará del castigo por su pecado. El hijo transgrede deliberadamente la ley en todas las formas en que su padre la guardó. Dios no se permitirá ser simplemente una vía de escape en tiempos de problemas; no se lo puede considerar Salvador sin ser también recibido como Señor. El comportamiento externo a menudo revela el corazón de una persona con más claridad y precisión que sus palabras (Lucas 6:43-45).
+
+---
+
+### Ezequiel 18:14
+su padre. Por el contrario, tener un padre injusto no traerá juicio sobre un hijo justo (v. 10 nota; Deut. 24:16; 2 R 14:6).
+
+---
+
+### Ezequiel 18:21
+Si Dios juzga a cada generación por sus propios pecados, los contemporáneos de Ezequiel son parte de una generación que está bajo El juicio de Dios. ¿Hay alguna esperanza para su futuro? Ezequiel añade dos casos más: los malvados que se apartan de su pecado y los justos que abandonan su fidelidad. El cambio real es posible si hay arrepentimiento. Por otra parte, quienes tienen una relación correcta con Dios necesitan perseverar en la fidelidad, sin cansarse de hacer lo que es correcto (Gálatas 6:9). Esta es precisamente la razón por la que Ezequiel ha sido designado como centinela de Israel (cap. 3).
+
+---
+
+### Ezequiel 18:30
+Esta es una declaración resumida. El problema fundamental para Israel, y para todo el pueblo, no es la injusticia de Dios sino la falta de justicia. La casa de Israel merece totalmente el juicio de Dios; el pecado nunca puede tomarse a la ligera en la relación de uno con Dios. Sin embargo, dentro de las solemnes advertencias sobre la gravedad del pecado y la amenaza que representa, queda la seguridad de que Dios no desea ni se deleita en la muerte de los malvados (2 Ped. 3:9). Dios es justo y misericordioso, y todos los que se arrepientan encontrarán el camino a la vida (2 Cr. 6:37–39; Is. 30:15; 59:20; Jer. 18:8; Mt. 4:17; Mc. 4:17). 1:4, 15; Lucas 13:3, 5; 15:7, 10; 24:47; Hechos 3:19; 17:30; 2 Cor. 7:10).
+
+---
+
+### Ezequiel 18:31
+haceos un corazón nuevo y una nueva Espíritu nuevo. En otro lugar Dios manda también lo que sólo Él puede dar (cf. Dt 1, 1-13). 10:16 con 30:6). Como reconoce el mismo Ezequiel, el corazón y el espíritu nuevos son dones de Dios (36:26) y no fruto del esfuerzo humano (cf. Ef. 2:8, 9). Ezequiel exhorta a sus oyentes a buscarlas no por mérito propio, sino por arrepentimiento (v. 32).
+
+---
+
+### Ezequiel 19:1
+Ezequiel presenta otra alegoría usando el tipo de poesía hebrea que se usa comúnmente para los cantos fúnebres y los lamentos. Esta poesía tiene un ritmo particular que la audiencia de Ezequiel reconocerá. El mismo ritmo se utiliza en textos como 26:17, 18; 28:12-19; 32:2-8. Se llama qinah , o ritmo fúnebre (Introducción a Lamentaciones: género y características literarias). En este caso, aquellos por quienes se llora aún no están muertos. El lamento afirma la certeza de su destino.
+
+---
+
+### Ezequiel 19:2
+La leona. La leona representa a la nación de Israel o la ciudad de Jerusalén, que ha producido estos cachorros, o reyes. (Cf. Sal. 87:5; Is. 50:1; 54:1; Gá. 4:26, 27 para la imagen de Jerusalén como madre.) El león es frecuentemente una imagen de la realeza davídica (Gén. 49:9; Miq. 5:8). El NT Espera al “León de la tribu de Judá” para restablecer el reino de Dios (Apocalipsis 5:5).
+
+---
+
+### Ezequiel 19:4
+Egipto. Joacaz reina solo tres meses antes de ser llevado cautivo a Egipto por el faraón Necao en el año 609 a. C. Su breve reinado se caracteriza en términos puramente negativos (2 R. 23:31– 34; 2 Cr. 23:32-33). 36:2–4).
+
+---
+
+### Ezequiel 19:5
+Otro. Ezequiel omite cualquier descripción del reinado de Joacim y pasa a su hijo Joaquín (o posiblemente Sedequías; ambos son exiliados por Nabucodonosor). Segundo de Reyes no menciona ningún exilio para Joacim (2 R 23:36–24:7; cf. 2 Cr 36:5–8); aparentemente murió en Jerusalén.
+
+---
+
+### Ezequiel 19:9
+Babilonia. Joacim se ha rebelado contra Nabucodonosor, y la ira del rey de Babilonia se dirige contra su hijo Joaquín. Ezequiel describe su deportación a Babilonia en el año 597 a. C. (2 R. 24:8–16; 2 Cr. 36:9, 10). Joaquín es encarcelado hasta el reinado de Evil- merodac (562–560 a. C.; 2 R. 25:27–30).
+
+---
+
+### Ezequiel 19:10
+una vid. Al igual que el león, la vid en una viña es una imagen familiar para la tribu real de Judá (ver Is. 5:1– 7). La planté en perfectas condiciones junto al agua; así, creció fuerte.
+
+---
+
+### Ezequiel 19:12
+viento del este. Como en 17:9, 10, el viento del este es un instrumento de la voluntad de Yahweh (Éx. 10:13; 14:21; Sal. 78:26; Os. 13:15; Jon. 4:8). El viento del este trae el calor del desierto y marchitará la vid. El orgullo de Judá la lleva a ser desarraigada, como la vid del capítulo 17.
+
+---
+
+### Ezequiel 19:14
+No hay un tronco fuerte. El fin del reino de Judá se describe como un tiempo en el que la vid es arrancada de raíz y no queda ninguna rama para hacer un cetro de gobernante. Para el uso de una rama como símbolo del rey mesiánico, véase la nota sobre 17:22. El fuego que ha salido de una de sus ramas (Sedequías) consume el fruto (la tierra y el pueblo) y las otras ramas (el resto de la casa real). Aunque en este momento Sedequías todavía no está muerto, su caída ya es tan segura que es hora de cantar su lamento.
+
+---
+
+### Ezequiel 20:1
+Séptimo año. Una vez más los ancianos de los exiliados se reúnen para buscar instrucción del profeta, aproximadamente un año después de la fecha mencionada por última vez (8:1; cf. 14:1). La fecha es el diez de Ab (agosto de 591 a. C.), cinco años antes de que Jerusalén fuera incendiada (Jer. 52:12). Normalmente, consultar al Señor es algo bueno, pero Él ya ha condenado a estas personas por la idolatría de su corazón, y se niega a recibir su petición. Como resultado, su pregunta ni siquiera se registra, solo la acusación del Señor contra ellos.
+
+---
+
+### Ezequiel 20:4
+La acusación comienza con un relato de la constante historia de infidelidad de Israel hacia el Señor. Al igual que el capítulo 18, es la historia de tres generaciones que tuvieron que elegir entre obedecer las leyes vivificantes del Señor o seguir el camino de la desobediencia. Estas generaciones son, sucesivamente, la generación que experimentó el éxodo de Egipto (vv. 5-9), la generación que pasó toda su vida en el desierto (vv. 10-17) y la generación posterior (vv. 18-23). Cada generación recibió los estatutos del Señor, especialmente el mandamiento del sábado, cuyo descanso era una señal de su liberación de Egipto. Pero cada generación, a su vez, se rebeló contra el Señor y violó sus sábados, pisoteando la señal que el Señor les había dado. Por lo tanto, cada uno experimentó las maldiciones del pacto en lugar de sus bendiciones, culminando con el hecho de que el Señor dio a la tercera generación “estatutos que no eran buenos” (v. 25), de modo que ofrecieron a sus hijos primogénitos al dios Moloc (v. 26). Esto fue exactamente lo opuesto a la meta del éxodo, que liberó a Israel, el hijo primogénito del Señor (Éx. 4:22), de Egipto para que el pueblo pudiera ofrecer adoración pura en la Tierra Prometida. El Señor a veces entrega a quienes descuidan Su revelación misericordiosa a sus propios hijos. Depravación, con consecuencias terribles (ver Romanos 1:18-25).
+
+---
+
+### Ezequiel 20:5
+Juré. Esta frase se repite varias veces en el capítulo (vv. 5, 6, 15, 23, 28, 42). Dios se había comprometido con Israel. y cumpliría sus promesas. Véase Éxodo 3:6–10; 6:2–8.
+
+---
+
+### Ezequiel 20:8
+Los ídolos de Egipto. El Pentateuco no registra detalles sobre la vida religiosa de los israelitas durante su esclavitud en Egipto, pero es seguro inferir que asimilaron la religión de la cultura de allí tal como lo hicieron más tarde en Canaán. El incidente con el becerro de oro (Éxodo 32) debe entenderse en el contexto de la idolatría en Egipto. Véase 23:3; Josué 24:14.
+
+---
+
+### Ezequiel 20:12
+Los sábados. El sábado (vv. 13, 16, 21, 24) se destaca como una ley exclusiva de Israel, una que lo distinguía más claramente de las naciones. El sábado se cita a menudo como un ejemplo importante que representa toda la ley (22:8, 26; 23:38; 44:24; cf. Neh. 13:18; Is. 56:2, 4, 6; Jer. 12:1-13). 17:19–27)
+
+---
+
+### Ezequiel 20:13
+Se rebelaron. La primera generación en el desierto se rebeló contra Dios (Éx. 17:2; Núm. 14:1–19; 16; 17; 20:10, 24; 25; 26:9; 27:14; Deut. 1:26, 43; 9:7; 31:27). Mis sábados. Véase Números 15:32–36.
+
+---
+
+### Ezequiel 20:23
+La amenaza del exilio existía incluso antes de que el pueblo entrara en la tierra (Levítico 26:32-35; Deuteronomio 28 : 64-67; Salmo 106:26, 27). Moisés predijo que se rebelarían contra el Señor una vez que estuvieran en la tierra (Deuteronomio 31:27, 29).
+
+---
+
+### Ezequiel 20:25
+estatutos... y reglas. Posiblemente una Declaración que resume las quejas del pueblo (cf. Nm 11,1).
+
+---
+
+### Ezequiel 20:26
+sus primogénitos. La ley es el don gratuito de Dios (v. 11 nota), pero cuando se pervierte trae muerte. La práctica del sacrificio de niños en el antiguo Israel era una perversión de sus leyes con respecto a los primogénitos (Éx. 13:1, 2, 11–16; 22:29; 34:19, 20; Núm. 18:15, 16). Todo primogénito pertenecía al Señor, y debía ser redimido en lugar de sacrificado. En Jesucristo, el Señor sustituiría a Su propio primogénito como el Cordero de Dios que redime a Su pueblo de la ira de Dios (Col. 1:15– 20; 1 Tes. 1:10; cf. Génesis 22).
+
+---
+
+### Ezequiel 20:27
+La historia de rebelión de Israel se refleja en el comportamiento de la generación actual. Hasta los días del profeta, los mismos patrones de idolatría y sacrificio de niños han continuado. No podemos esperar con razón preguntar al Señor y escuchar de Él.
+
+---
+
+### Ezequiel 20:29
+Los lugares altos. Segundo libro de Reyes evalúa a casi todos los gobernantes de Judá en términos de lo que hicieron con los lugares altos alrededor de Jerusalén, ya que eran los ejemplos más obvios y flagrantes de idolatría pública.
+
+---
+
+### Ezequiel 20
+El deseo de ser como las naciones circundantes (v. 32) refleja 1 Sam. 8:20; el pueblo ha rechazado a Dios (1 Sam. 8:7, 8), y por lo tanto se enfrentan al juicio, al igual que las generaciones anteriores en el relato de Ezequiel de la historia de Israel. Pero así como Dios no abandonó a las generaciones anteriores de su pueblo escogido, ahora promete un nuevo éxodo y un regreso a la experiencia del desierto (vv. 33-35). Así como solo los fieles y obedientes de la generación del desierto cruzaron a la tierra (Núm. 14:30, 38), así también Dios purificará nuevamente a la nación para traer un pueblo fiel a la tierra (vv. 36–38). El honor del nombre de Dios exige que Él cumpla sus promesas, incluso frente a una historia de pecado humano implacable. Israel no puede simplemente elegir ser como las naciones, porque Dios ha escogido la nación para sí.
+
+---
+
+### Ezequiel 20:35
+desierto de los pueblos. Se refiere a la desolación del exilio que está experimentando Israel. Israel va una vez más al desierto de los pueblos. ser juzgados en un “desierto”, tal como lo fue la generación del desierto.
+
+---
+
+### Ezequiel 20:37
+Pasar bajo la vara. Alude a la práctica de contar los animales para el diezmo (Levítico 27:32, 33). Sugiere que sólo quedará una décima parte (cf. Is. 6:13).
+
+---
+
+### Ezequiel 20:38
+Purificación. El objetivo de las catástrofes periódicas que azotan a Israel es, por lo general, producir un remanente purificado, purificado y fiel (nota de 6:8).
+
+---
+
+### Ezequiel 20:39
+Id y servid cada uno a sus ídolos. Ya sea que Israel elija rebelarse o ser fiel, el propósito de Dios de tener un pueblo santo para Sí no puede ser frustrado. Al final, Su pueblo lo adorará en espíritu y en verdad (Juan 4:23, 24). Las elecciones libres que hacen los humanos no pueden frustrar los propósitos soberanos de Dios, que siempre prevalecen.
+
+---
+
+### Ezequiel 20:40
+El remanente fiel adorará en el santo monte de Dios, Sión. Esto prefigura la visión de los capítulos 40–48, donde el profeta ve la restauración de la adoración purificada de Dios. El éxodo será algo que el primero no pudo lograr: un culto puro, ofrecido por un pueblo purificado y redimido por la gracia soberana del Señor, que trata a su pueblo con misericordia y no como merecen nuestros pecados (20:44; cf. Esdras 9:13; Job 33:27; Sal. 103:10; Lam. 3:22, 23, 31–33). Con la venida de Cristo, esta adoración no se ofrece en el monte Gerizim ni siquiera en el monte Sión, sino dondequiera que la gente se reúna en el nombre de Jesús (Juan 4:21).
+
+---
+
+### Ezequiel 20:45
+Esta breve profecía contra el sur es la primera de cuatro secciones, las últimas tres de las cuales están unidas por la palabra clave “espada”, que es una imagen del juicio de Dios (véase 21:1–7, 8–27, 28–32). El AT describe frecuentemente a Dios como un guerrero. Su espada se usa comúnmente contra los enemigos de Israel (Deut. 32:41; Is. 31:8; 34:5–8; 66:16; Jer. 10:1-13). 25:31; 50:35–37; Sof. 2:12). Pero ahora la espada es entregada a los babilonios para que la empuñen contra Judá y Jerusalén.
+
+---
+
+### Ezequiel 20:49
+Un hacedor de parábolas. Como todas las parábolas, esta profecía revela y oculta. Algunos aspectos de la parábola son bastante claros para cualquiera que tenga ojos para ver: se trata de un juicio que abarcará todo y que consumirá todos los árboles, no solo los árboles secos, que se incendian fácilmente, sino también los árboles verdes, que normalmente son más difíciles de prender fuego. Cubrirá toda la tierra, de sur a norte, y continuará indefinidamente sin apagarse. Otros aspectos no son inmediatamente claros: ¿cuál es la “tierra del sur” que está siendo juzgada? La interpretación posterior aporta la información que faltaba en la parábola.
+
+---
+
+### Ezequiel 21:1
+La imagen cambia del fuego a la espada como agente del juicio, pero el mensaje sigue siendo el mismo. Los tres términos para “sur” en la parábola se corresponden con tres objetos de juicio: Jerusalén, Israel y sus santuarios. Queda claro que Israel es el “Tierra del sur” desde la perspectiva de sus enemigos, que tradicionalmente vienen del norte (nota 1:4). Esta vez, sin embargo, el enemigo es el Señor mismo, que viene contra ella en juicio. Este juicio abarcará a justos y malvados. Los árboles de la parábola son iguales: los árboles verdes y secos, respectivamente.
+
+---
+
+### Ezequiel 21:6
+gemir. El profeta debe gemir simbólicamente de dolor por el juicio venidero, que se describe en términos Idénticos a los del capítulo 7.
+
+---
+
+### Ezequiel 21:9
+La espada se afila y también Pulido. Estas acciones preparan el arma para su uso, después de lo cual se la pasa al verdugo (v. 11).
+
+---
+
+### Ezequiel 21:10
+Estos versículos y el 27 están en común en parte por sus alusiones al cetro de Judá (Gén. 49:10). Una vara de madera no es nada contra una espada de hierro, y Judá no es rival para Nabucodonosor . Sin embargo, la traducción del versículo 10 es incierta. Lo que sí está claro es la inevitabilidad del juicio venidero.
+
+---
+
+### Ezequiel 21
+La espada del Señor es la espada del rey de Babilonia. Ezequiel probablemente dibuja un mapa que parece una “Y” invertida rayada en la tierra o en un ladrillo (nota 4:1-3). Nabucodonosor vendrá desde el norte, acercándose a una bifurcación en el camino. La bifurcación oriental llevará a los ejércitos babilónicos por el Camino Real, una carretera importante que pasa por la actual Jordania. La bifurcación occidental llevará a los babilonios por la Vía Maris, una importante carretera internacional en la llanura costera al oeste de Jerusalén. Una opción de ruta lo llevará a Rabá, la capital de los amonitas, mientras que el otro lo acercará a Jerusalén.
+
+---
+
+### Ezequiel 21:21
+adivinación. El rey de Babilonia utiliza varias formas de obtener guía de los dioses: (1) consultar a los “terafines”, objetos religiosos usados en el culto; (2) adivinación mediante el examen de los contornos y las marcas en los hígados de aves o de ovejas sacrificadas (hepatoscopia); (3) el uso de flechas como medio para echar suertes. El Señor usará la adivinación falsa, a la que Su pueblo es tan adicto (véase 13:7), para persuadir al rey pagano a hacer Su santa voluntad.
+
+---
+
+### Ezequiel 21:23
+Juramentos solemnes. Los judíos juraron lealtad a Nabucodonosor, pero no han cumplido sus compromisos. En respuesta, Nabucodonosor sitió Jerusalén en enero de 587 a. C.
+
+---
+
+### Ezequiel 21:25
+Oh profano malvado... quítate La corona. El príncipe profano y malvado es Sedequías, el último rey de Judá (nota 17:1-10). Al no mencionar su nombre, el profeta deja en claro que es el cargo el que está bajo juicio, no solo Sedequías mismo. El turbante y la corona, los emblemas de la realeza, serán despojados, humillando a aquel que una vez fue exaltado.
+
+---
+
+### Ezequiel 21:27
+aquel a quien pertenece el juicio. Este oráculo transforma la tradicional promesa mesiánica de Génesis 49:10 en una palabra de juicio: el que viene es Nabucodonosor, designado por Dios para juzgar a su pueblo (véase 23:24).
+
+---
+
+### Ezequiel 21:28
+De los versículos 18-23 parecería que los babilonios atacarán a Jerusalén pero perdonarán a Amón. Este tercer y último cántico de espada explica que Amón también probará la ira de Dios en la furia de los babilonios (Jer. 49:1-6). Aunque el juicio comienza con la casa de Dios, no termina allí. Amón se alió con Jerusalén y Egipto contra los babilonios en 588 a. C. Sin embargo, cuando Jerusalén es atacada, Amón se aprovecha de la debilidad de su antiguo aliado (Jer. 40:11, 14; 41:10, 15; cf. 2 Reyes 24:2)
+
+---
+
+### Ezequiel 21:30
+Devuélvela a su vaina. Una vez que la obra de Babilonia como agente de juicio de Dios esté completa, el imperio experimentará el juicio del Señor en su propio país. Sus pecados también serán juzgados, aunque el Señor los haya usado como herramienta de Su juicio.
+
+---
+
+### Ezequiel 22:2
+ciudad sangrienta. Este primero de los tres oráculos del capítulo 22 gira en torno a repetidas referencias a la sangre (vv. 2, 3, 4, 6, 9, 12, 13; cf. v. 27). El profeta actúa como fiscal mientras la ciudad de Jerusalén es acusada de crímenes morales y rituales. Los cargos se extraen principalmente de Levítico 18-20, 25.
+
+---
+
+### Ezequiel 22:7
+Padre y madre. Abusan de sus propios padres, quebrantando el quinto mandamiento (Deut. 5:16; Miq. 7:6; Ro. 1:30; Efe. 6:1; Col. 3:20; 2 Tim. 3:2), así como el mandamiento contra el asesinato y el mandamiento de recordar el sábado. el extranjero... el huérfano y la viuda. Véase nota sobre Sal. 9:18. Véase también Deut. 10:18; 14:29; 24:17; 26:12, 13; 27:19; Sal. 68:5; 72:4; 146:9; Is. 1:17; 10:1, 2; Jer. 7:6, 7; 22:3; Zac. 7:10; Mal. 3:5).
+
+---
+
+### Ezequiel 22:10
+Descubrir la desnudez de su padre. Descubrir la desnudez de un padre significa tener relaciones sexuales con su esposa. la gama de relaciones sexuales prohibidas, véase Lev. 18:6–23; 20:10–21.
+
+---
+
+### Ezequiel 22:12
+Me habéis olvidado. Judá Varios pecados son síntomas de un problema más profundo: se han olvidado del Señor. Deuteronomio 8:19 declara: “Si te olvidas del Señor tu Dios... de cierto perecerás”.
+
+---
+
+### Ezequiel 22:13
+Golpeo mi mano. Un gesto de ira que precede al juicio del Señor de dispersar a Su pueblo. En lugar de ser el pueblo santo del Señor, serán profanados.
+
+---
+
+### Ezequiel 22
+Judá será reunida en Jerusalén para ser juzgada, tal como se reúne el metal en el horno de una fundición. Normalmente, la reunión es algo bueno en el Antiguo Testamento, el precursor de la bendición. Así también, la imagen del fuego purificador es a menudo una imagen positiva de un juicio divino sobre Israel diseñado para purgarla del pecado y producir un pueblo puro (nota 6:8). La experiencia de Israel en Egipto se compara al tiempo que pasó en un horno (Deut. 4:20; 1 R. 8:51; Jer. 11:4), y el exilio será un horno refinador para Israel (cf. Sal. 66:10; 119:119; Pro. 17:3; 25:4; Is. 1:25; 48:10; Jer. 9:7; Zac. 13:9; Mal. 3:2, 3; 1 Cor. 3:12–15; 1 Ped. 1:7). Sin embargo, si sólo la escoria va al fuego, nada positivo surgirá. Todos los juicios anteriores no han logrado purificar la tierra; ella todavía está contaminada. La lista de pecados que se presenta aquí se extrae de Sofonías 3:3, 4, donde el enfoque se centra en los pecados de los líderes de Judá: los príncipes, sacerdotes, líderes y profetas. Todos estos grupos han fracasado, lo que ha provocado que el pueblo se extravíe.
+
+---
+
+### Ezequiel 22:30
+Véase la nota sobre 13:5. El Señor ha buscado a alguien que reconstruya el muro y se ponga en la brecha, como lo hizo Moisés después de que el pueblo pecó con el becerro de oro. En este caso, sin embargo, el Señor no encuentra a nadie que desvíe Su ira, y por eso Su furia se derramará sobre ellos en toda su extensión. En lugar de enfrentar el pecado del pueblo, los profetas hablan con visiones falsas, blanqueando un muro endeble en lugar de fortificar una verdadera línea de defensa (véase 13:10- 12).
+
+---
+
+### Ezequiel 23:1
+Como en el capítulo 16, Ezequiel describe la historia de Israel y Judá en forma de una metáfora extensa y gráfica. La historia de dos hermanas inmorales es la historia de dos ciudades: “Ohola” es Samaria, la capital del reino del norte, y “Oholibá” es Jerusalén, la capital del reino del sur. Incluso sus nombres suenan parecidos, y sus historias y destinos están igualmente entrelazados.
+
+---
+
+### Ezequiel 23:3
+Se prostituyó. La acusación contra los dos reinos comienza con su prostitución en sus primeros días en Egipto (16:26; 20:5–9). Incluso antes de casarse con el Señor, estas dos hermanas mostraron su verdadera naturaleza. Sin embargo, el Señor las eligió para ser Suyas. El matrimonio es una metáfora bíblica clave para la relación de pacto del Señor con su pueblo, que hace de su búsqueda de ídolos una forma de adulterio (cf. Oseas 1–3).
+
+---
+
+### Ezequiel 23:5
+Los amantes. El juramento de Israel de lealtad exclusiva al Señor en el tiempo del éxodo (cf. Éx. 24) sería quebrantado por alianzas extranjeras así como por la idolatría (vv. 5–10; 16:26 nota; cf. Os. 8:9). Las alianzas con Asiria formaron parte de la estrategia política de Israel desde mediados del siglo VIII a. C. La prostitución no les aseguró la admiración ni el afecto de los amantes asirios, sino todo lo contrario (vv. 9, 10). Finalmente, Asiria destruyó el reino del norte en el año 722 a. C. y dispersó a su pueblo por todo el imperio asirio (2 R. 17:5, 6).
+
+---
+
+### Ezequiel 23:11
+El destino del reino del norte ya es historia antigua en este punto. El profeta se centra en el destino venidero (y coincidente) de Judá, la hermana menor.
+
+---
+
+### Ezequiel 23:14
+más. Judá no es simplemente como Israel —Es peor. Pecó de la misma manera con los asirios antes de transferir su lealtad a los babilonios (2 R 20:12-18; 23:29; Is 39:1). También ha hecho propuestas a Egipto (23:19-21). No ha sido seducida simplemente por extraños que pasaban por allí; ella misma ha mandado llamar a los babilonios para satisfacer su lujuria. De hecho, la búsqueda de placeres de Judá ha ido más allá del nivel humano hasta alcanzar profundidades absolutamente bestiales (v. 20). Lo que los reyes de Judá han considerado una sabia estrategia política, el Señor lo condena como adulterio desenfrenado. Cuando recuerdan a Egipto, recuerdan los placeres prohibidos de esa época en lugar de pensar en la liberación del Señor en el éxodo. El resultado de tal depravación es inevitable. juicio. Las naciones a las que ella ha cortejado vendrán y abusarán de ella.
+
+---
+
+### Ezequiel 23:23
+Pekod y Shoa y Koa. Quizás Tribus arameas al este del río Tigris. Estas naciones desconocidas probablemente fueron elegidas porque sus nombres no solo riman en hebreo, sino que suenan como “Castigo, grito de guerra y alarido”.
+
+---
+
+### Ezequiel 23:25
+Véase 16:35–41. Lo que la esposa adúltera (Judá) ha hecho en privado, ahora se le hace en público. En este caso, dado que su adulterio es peor que el de su hermana, también lo será su castigo. No solo será desnudada, sino que quedará físicamente desfigurada y le cortarán la nariz y las orejas.
+
+---
+
+### Ezequiel 23:31
+La copa es una metáfora común en la Biblia. En muchos casos simboliza las bendiciones de Dios (Sal. 16:5; 23:5; 116:13; 1 Cor. 10:16). También puede representar la ira de Dios (Sal. 75:7, 8; Is. 51:17–19). 20; Jer. 25:15–29; 49:12; 51:7; Justicia. 4:21; Hab. 2:16; Zac. 12:2; Apocalipsis 14:9–11). En este caso, se trata de una copa amarga de juicio. Jesús menciona esta copa de ira en el huerto de Getsemaní (Mateo 26:39, 42), y aparece en el relato de Juan sobre la muerte de Jesús (Juan 18:11; 19:28-30).
+
+---
+
+### Ezequiel 23:34
+Como para librarse de las partes de su ser. anatomía que antes eran la sede de su placer (v. 21).
+
+---
+
+### Ezequiel 23:36
+Ezequiel asume nuevamente el papel de fiscal, condenando a Jerusalén por sus pecados (ver 22:2). Además de la infidelidad política mencionada anteriormente, ella también ha cometido otros pecados de culto. Lejos de ser la hermosa ciudad santa, Jerusalén se ha convertido en una prostituta vieja y desgastada. Una vez más, la realidad histórica aparece a través de la metáfora: las adúlteras no solo serán apedreadas sino que serán asesinadas a espada y sus casas quemadas. 24:1–14 Ezequiel ofrece otra alegoría, la de una olla de cocción. Dos oráculos que la aplican se presentan con la misma frase: “¡Ay de la ciudad sanguinaria!” (vv. 6, 9).
+
+---
+
+### Ezequiel 24:1
+La fecha del comienzo del asedio de la ciudad se identifica ordinariamente como el 15 de enero del 587 a.C. (cf. 2 R. 25:1; Jer. 52:4). La fórmula de la fecha aquí no coincide con la secuencia del resto del libro, sino que corresponde exactamente a la de 2 Reyes. El evento que Ezequiel ha advertido sobre finalmente llega. Literalmente, la palabra Hb. traducida como “ asedió” indica que Nabucodonosor “se apoyó en” Jerusalén. Esta misma palabra se usa para un adorador que presionaba sus manos sobre un animal traído para ser sacrificado (Lev. 1:4; 3:2). Jerusalén se convierte así en un cordero sacrificado, aunque está lejos de serlo. siendo sin defecto.
+
+---
+
+### Ezequiel 24:3
+pot. Ezequiel ya ha utilizado la imagen de una olla para cocinar en 11:2–12 (cf. Jer. 1:13, 14; Miq. 3:3). Desde el comienzo Descripción, parece que se están haciendo preparativos para una comida festiva en donde se cocinan las mejores carnes. Sin embargo, lo que debería ser una comida sabrosa se convierte en Resulta ser un desastre. La carne seleccionada que entra sale uniformemente mala.
+
+---
+
+### Ezequiel 24:6
+corrosión. La olla también está oxidada y más allá de la limpieza. El profeta compara la corrosión con el derramamiento de sangre y la culpa en la ciudad. Aunque sus ocupantes son removidos pieza por pieza y dispersados por el En los rincones más lejanos del mundo, la culpa de la ciudad permanece como escoria en el fondo de la tierra. la olla. Compárese la denuncia del derramamiento de sangre en la ciudad en 22:1–16; 36:18. Cf. 2 R. 21:16; 24:4; Is. 26:21; 59:7; Lam. 4:13; Os. 4:2; Joel 3:21; Miqueas 3:10.
+
+---
+
+### Ezequiel 24:7
+La sangre derramada y descubierta clama para ser vengado; note el mismo concepto en Génesis 4:10; Job 16:18. El Señor lo hará. derramará su sangre descubierta sobre una roca desnuda como venganza.
+
+---
+
+### Ezequiel 24:11
+caliente. El caldero se hierve hasta secarse en vano Esfuerzo por limpiarlo, pero la espuma es tan resistente que incluso calentando el caldero El fuego al rojo vivo no la purificará. La impureza de Jerusalén es indeleble, y por eso Dios la purificará. Hay que destruir la ciudad.
+
+---
+
+### Ezequiel 24
+La vida personal de los profetas es A menudo se entrelazan con sus mensajes. A Oseas se le ordenó casarse con una prostituta (Oseas 1-3), mientras que a Isaías se le ordenó caminar desnudo y descalzo. durante tres años (Is. 20:2-5). En el caso de Ezequiel, cuando muere su esposa, se le prohíbe seguir las prácticas de duelo habituales, que incluyen lamentarse y llorando; quitándose el sombrero y cubriéndose la cabeza con polvo y ceniza (Jos. 7:6; 1 Sam. 4:12; Job 2:12); quitarse las sandalias (2 Sam. 15:30; Is. 20:2); y cubrirse la cabeza o el rostro (Ester 6:12; Jeremías 14:3, 4). Ezequiel debe comportarse exteriormente como si No ha sucedido nada, aunque su corazón debe estar muy conmovido.
+
+---
+
+### Ezequiel 24:19
+La extraña conducta de Ezequiel tiene el efecto deseado de despertar la curiosidad del pueblo. Su respuesta es que esto es una señal: Dios está a punto de quitar el templo, que es el deleite de sus ojos, profanándolo y destruyendo a los hijos e hijas que muchos de ellos han dejado atrás en Jerusalén. Sin embargo, en ese día, la escala de la pérdida será tan abrumadora, afectando a casi todos los individuos, que no habrá posibilidad de realizar los ritos normales de duelo.
+
+---
+
+### Ezequiel 24:27
+No te quedes más mudo. Véase 3:26 y nota. El mensaje de Ezequiel se verá confirmado cuando llegue a los exiliados la noticia de que Jerusalén ha sido destruida, y ese mismo día él será liberado del silencio que Dios le ha impuesto. Entonces podrá nuevamente pronunciar palabras de esperanza al resto de los exiliados.
+
+---
+
+### Ezequiel 25:1
+Entre las advertencias de la destrucción de Jerusalén (caps. 1–24) y las profecías de esperanza y restauración (caps. 33–48), Ezequiel incluye una sección de oráculos contra naciones extranjeras. Las naciones denunciadas aquí por Ezequiel incluyen seis de los vecinos inmediatos de Judá en el orden de las agujas del reloj, comenzando con Amón en el este (caps. 25–28) y concluyendo con un séptimo oráculo culminante contra Egipto (caps. 29–32). La función de estos oráculos es alentar al propio pueblo de Dios, a quien están dirigidos, asegurándoles el juicio sobre aquellos que los han atacado. Si este lado negativo del pacto abrahámico todavía está en su lugar (“a los que te deshonran, maldeciré”; Génesis 12:3), entonces la esperanza positiva de bendición para Israel todavía está viva. 25:1–7 Ezequiel ya había hablado contra Amón (21:28–32). La relación de Israel y Judá con los amonitas es larga y variada, principalmente un registro de conflictos. También se encuentran oráculos contra Amón en Jeremías 49:1–6; Amós 1:13– 15; Sof. 2:8, 9. Se acusa a los amonitas de regocijarse por la victoria de Judá. Caída y celebración de la destrucción del templo.
+
+---
+
+### Ezequiel 25:5
+"Lo sabréis". Ver nota sobre 6:7. VOLVER EZEQUIEL 25:5
+
+---
+
+### Ezequiel 25:6
+Porque... por lo tanto. El castigo El crimen se ajusta al delito: porque se han regocijado por el daño hecho a Jerusalén, los propios amonitas se convertirán en presa de una potencia extranjera. Aunque muchos de los pequeños estados de la zona escapan a la destrucción durante la invasión babilónica de 587-586 a. C., fuentes ajenas a la Biblia indican que Nabucodonosor destruye a Amón y Moab en 582 a. C. El profeta hace la misma observación en 21:28-32.
+
+---
+
+### Ezequiel 25:8
+Moab. La relación de Israel y Judá con Moab es en gran parte una historia de conflicto, y otros profetas incluyen oráculos contra esta nación (Is. 15; 16; Jer. 48; Amós 2:1-3; Sof. 2:8, 9). Moab se ha burlado de Judá al decir: “Judá es como todas las demás naciones”, lo cual, irónicamente, es exactamente como han estado viviendo sus habitantes (véase 20:32). Sin embargo, dada la elección soberana del Señor de Su pueblo, esa declaración nunca puede ser en última instancia cierta. A diferencia de Judá, que será restaurada, Moab compartirá el destino de destrucción de Amón.
+
+---
+
+### Ezequiel 25:12
+Edom. Edom ha ido más allá que Amón y Moab y de hecho ha hecho incursiones en Judá en el tiempo de la caída de Jerusalén (35:15; 36:5; Sal. 137:7–9; Lam. 4:21, 22). En el libro de Abdías, se le encarga a Edom matar a los fugitivos y entregar a los sobrevivientes a los babilonios (Abd. 11–14). La enemistad entre Israel y Edom se remonta en la Biblia a la relación hostil entre Jacob y Esaú (Gén. 13:1-14). 25:23, 30). Ezequiel incluye un segundo oráculo contra Edom en el capítulo 35, y otros profetas también hacen pronunciamientos contra esta nación (Is. 34:5–11; Jer. 49:7–22; Amós 1:11, 12; Mal. 1:3–5).
+
+---
+
+### Ezequiel 25:15
+Filisteos. Las naciones mencionadas hasta ahora están todas al este del río Jordán y del mar Muerto. Los filisteos ocupan la llanura costera al oeste de Judá, controlando un largo segmento de la vital carretera costera internacional. Las reclamaciones territoriales conflictivas y los intereses estratégicos en pugna han dado lugar a una larga historia de relaciones hostiles con Israel y han conducido a crímenes no especificados durante el asalto babilónico. Ezequiel ya ha hablado de esta enemistad (16:27, 57). Otros profetas también incluyen oráculos contra los filisteos (Is. 14:29–31; Jer. 47; Joel 3:4–6; Amós 1:6–8; Sof. 2:4–7; Zac. 10:1- 13). 9:5–7). Los filisteos fueron el enemigo más destacado de Israel durante el gobierno de los jueces y la monarquía unida.
+
+---
+
+### Ezequiel 25:16
+Cereteos. Los filisteos parecen haber entrado en Canaán en la segunda mitad del segundo milenio a. C. como parte de la gran migración de pueblos conocidos en los registros egipcios como los “pueblos del mar”. A un grupo de filisteos se lo identifica como “cereteos”, probablemente asociándolos con Creta. Véase la nota sobre 1 Sam. 30:14.
+
+---
+
+### Ezequiel 26:1
+Estos capítulos están dedicados a los oráculos contra los vecinos fenicios de Israel, principalmente Tiro (26:1–28:19) pero también Sidón (28:20–26). Los oráculos contra Tiro están divididos en subsecciones, cada una introducida con la frase “la palabra del Señor vino a mí” y terminando con la frase “Has llegado a un final terrible y ya no existirás más para siempre”. (26:1–21; 27:1–36; 28:1–19). Hubo conflictos militares ocasionales entre Israel y los fenicios, pero la Biblia menciona a Tiro y Sidón con más frecuencia como la fuente de cultos paganos, especialmente el culto a Baal que los fenicios apoyaban (Jue. 10:6; 1 R. 11:1, 5, 33; 16:31; 2 R. 23:13). Los fenicios proporcionaron a Israel comercio y mano de obra experta (2 S. 5:11; 1 R. 5:1, 6; 7:13, 14; 9:11; 2 Cr. 2:3, 13, 14; Esd. 3:7; Neh. 13:16; Hch. 12:20). Otros libros proféticos también incluyen oráculos contra Tiro y Sidón (Is. 23; Joel 3:4-6; Amós 1:9, 10; Zac. 9:2-4).
+
+---
+
+### Ezequiel 26:2
+El reino de Judá controlaba a veces las rutas comerciales que conducían a través de las llanuras costeras hasta Egipto, así como a Arabia y África a través del puerto de Ezión-geber. Tiro se beneficiaría si Jerusalén perdiera el control de estas rutas comerciales. Por lo tanto, al igual que sus vecinos, Tiro se ha regocijado por la caída de Jerusalén. Sin embargo, no ha tenido en cuenta al Dios de Israel. En lugar de abrir el camino al comercio, se abrirá para las naciones que vendrán contra ella para hacerle la guerra. Al igual que Jerusalén, será saqueada por un ejército invasor.
+
+---
+
+### Ezequiel 26:7
+Poco después de la caída de Jerusalén, Nabucodonosor pone sitio a Tiro. La parte de la ciudad que está en tierra firme cae rápidamente en 585 a. C., pero la fortaleza de la isla desafía a los ejércitos de Babilonia durante trece años hasta 572 a. C. (29:17, 18). El detalle con el que Ezequiel describe el asalto subraya la certeza del resultado del conflicto. Tiro terminará siendo una roca desnuda, un refugio desolado para los pescadores locales, en lugar de la metrópolis bulliciosa que había imaginado convertirse.
+
+---
+
+### Ezequiel 26:15
+La destrucción de Tiro también afectará a todos sus socios comerciales, que están ubicados a lo largo de la costa mediterránea. La ciudad llorará y cantará canciones de lamentación por su destrucción, que será tan amplia como si la gran ciudad se hundiera en las profundidades de las olas del océano.
+
+---
+
+### Ezequiel 26:19
+aguas... pozo. La Biblia y otros textos antiguos del Cercano Oriente suelen utilizar la palabra “aguas” como metáfora de la muerte (Éx. 15:5, 8, 10; Job 26:5; Sal. 32:6; 69:2, 14; Lam. 3:54), y el “pozo” es sinónimo de Seol, el reino de los muertos (31:14, 16; 32:18, 23, 24, 30; cf. Job 33:18–30; Sal. 30:3, 9; 55:23; 88:4–6; 103:4; 143:7; Prov. 1:12; Is. 14:15; 38:18). Estas dos imágenes se combinan en 28:8; Sal. 69:15; Jon. 2:5, 6. El profeta describe estas aguas mitológicas del caos que envuelven a la isla y a sus habitantes (28:2). nota).
+
+---
+
+### Ezequiel 27:1
+El segundo oráculo contra Tiro se presenta en forma de un canto fúnebre que compara la gloria pasada de Tiro con su destrucción inminente.
+
+---
+
+### Ezequiel 27:3
+La ciudad-isla de Tiro se asemeja a un lujoso barco construido con los mejores materiales y tripulado por una tripulación experimentada procedente de todas las zonas circundantes. Las ubicaciones geográficas descritas en esta sección cubren la mayor parte del mundo conocido en los días de Ezequiel. Senir es el nombre amorreo del monte Hermón (Deut. 3:9). Elisa es parte de Chipre. Sidón, Arvad y Gebal (Biblos) son ciudades costeras del Mediterráneo. Los soldados vienen de Persia al este, Lud (Lidia) en Asia Menor al norte y Put (Libia) al sur. Helech es Cilicia, la región que rodea a Tarso, mientras que Gamad probablemente está en el norte de Siria.
+
+---
+
+### Ezequiel 27:12
+El gran barco que representa a Tiro ha hecho negocios con una amplia gama de clientes. Tarsis está en el lejano oeste, posiblemente parte de España. Javán es Grecia, mientras que Tubal y Mesec están en Anatolia (la actual Turquía), junto con Bet-togarma. Dedán es la región costera al norte de Tiro. Minit es una fuente de trigo en Transjordania. Helbón es una ciudad a diez millas (16 km) al norte de Damasco, y Sahar puede estar ubicada cerca. Es probable que Uzal se encuentre en las estribaciones de Anatolia, mientras que Saba está en el suroeste de Arabia, cerca de Raama, que siempre se menciona junto con ella. Harán, Cané, Edén (que no debe confundirse con el jardín del Génesis) y Asur están en Mesopotamia. El nombre "Chilmad" es desconocido y puede ser obra de un copista involuntario. Error en las palabras “todos los medios”. La lista de carga de Tiro incluye prácticamente todos los mercancía que se puede comprar o vender, desde esclavos hasta caballos , plata hasta sillas de montar mantas, tintes y especias exóticas. Para la participación de Tiro en el tráfico de esclavos, véase Joel 3:4–6.
+
+---
+
+### Ezequiel 27:26
+Nadie en los días de Ezequiel podía Concibe la derrota de Tiro. Sin embargo, su fuerza, riqueza y habilidad son No hay rival para los mares que obedecen el mandato de Dios. 27:26 viento del este. El viento del este a menudo representa el juicio de Dios (véase Ezequiel 10:13). 17:10; 19:12). El destino de Tiro será una advertencia para todas las demás naciones que la observan. Desde la orilla.
+
+---
+
+### Ezequiel 28
+El príncipe de Tiro. El tercer oráculo Se dirige al príncipe de Tiro, que personifica la arrogancia de la ciudad. Su destino También es suyo. Él reclama la divinidad y afirma que está en un trono en el corazón del mar caótico e indomable. En el antiguo Oriente Próximo, el agua Las profundidades del océano primigenio son un símbolo común de los poderes del caos y muerte. Los arqueólogos han descubierto más de un relato mítico de la creación. en el que “el Mar” aparece como un dragón o monstruo marino que será matado por los dioses. Pero en realidad, el príncipe de Tiro es sólo un hombre.
+
+---
+
+### Ezequiel 28:3
+Véase la nota sobre 14:14 . Un aspecto de la El derecho del príncipe a su estatus divino se basa en su sabiduría y su capacidad para comprender secretos, capacidades como las del profeta Daniel (cf. Dan. 8:26; 1 2:4). El rey afirma que su gran riqueza se debe a esta sabiduría secreta. Como en el caso del gran barco en el Sin embargo, según el oráculo anterior, su esplendor es sólo el precursor de su destrucción. Su muerte a manos de los babilonios probará de manera concluyente que él es En realidad, es humano y no divino. En lugar de vivir entre los dioses, será arrojado al sepulcro, a la morada de los muertos.
+
+---
+
+### Ezequiel 28:12
+una lamentación. Véase la nota sobre 19:1–14. Los lamentos a menudo elogian a sus sujetos en términos elogiosos. rey de Tiro. Etbaal gobierna Tiro en ese momento. El profeta describe la manera en que Dios ha favorecido a Et-baal al retratar al rey como un ser primigenio, una figura como Adán, la corona y el epítome de la creación, viviendo en el jardín paradisíaco que Dios le había dado. hecho hasta que, como Adán, se halló en él maldad (v. 15).
+
+---
+
+### Ezequiel 28:13
+jardín... montaña. El jardín del Edén estaba situado en una montaña, lo que explica por qué de allí podía salir una sola fuente de agua para regar los cuatro ángulos de la tierra (Gén. 2:10-14). También contenía piedras preciosas (Gén. 2:11, 12). En la Biblia, los encuentros con Dios suelen tener lugar en las cimas de las montañas (20:40; cf. Éx. 19:23; Dt. 33:2; Sal. 43:3; 48:1; 87:1; 99:9; Is. 27:13; 56:7; 57:13; 66:20). El templo fue construido sobre una montaña y estaba decorado con motivos florales (40:16–37; 41:18–20, 25–27; cf. 1 R 6:29, 32, 35; 7:18, 20, 22, 36, 42; 2 Cr 3:5).
+
+---
+
+### Ezequiel 28:16
+Te desecho como cosa profana. Esta descripción exaltada (y quizás sarcástica) de la grandeza del rey de Tiro prepara para la profundidad de su caída venidera. Al igual que Adán, será desterrado de el monte de Dios, condenado a morir por su rebelión contra Dios.
+
+---
+
+### Ezequiel 28:20
+A Sidón se la suele asociar con su socia comercial Tiro, a 40 km al sur de la costa mediterránea. No se le imputan cargos específicos; se presume que es culpable de los mismos delitos que su vecina más grande.
+
+---
+
+### Ezequiel 28:24
+Israel no sólo conocerá el poder del Señor a través de la destrucción de sus enemigos, sino que también experimentará el regreso de Dios a su tierra. Israel entonces florecerá, ya que las naciones que han sido sus adversarias habrán sido eliminadas. Con la paz restaurada, emprenderá proyectos a largo plazo, como construir casas y plantar viñedos (cf. Is. 65:21).
+
+---
+
+### Ezequiel 29:1
+Los seis oráculos contra las naciones extranjeras en los capítulos 25–28 estaban dirigidos principalmente contra los estados menores y los vecinos inmediatos de Israel. Sin embargo, estos cuatro capítulos están dirigidos contra Egipto, uno de los grandes imperios del mundo antiguo. Este séptimo oráculo en sí está compuesto de siete profecías contra Egipto, y todas ellas están fechadas (29:1, 17; 30:20; 31:1; 32:1, 17) excepto la profecía que comienza en 30:1. 29:1 Año décimo. En el año 587 a. C., cuando Nabucodonosor comienza a sitiar Jerusalén.
+
+---
+
+### Ezequiel 29:3
+dragón. Egipto es comparado con un monstruo marino (vv. 3–5). El término utilizado puede designar tanto a los abundantes cocodrilos del Nilo como al monstruo marino que representa el caos en la mitología del antiguo Cercano Oriente. La Biblia llama a esta criatura mitológica “dragón”, “Leviatán” o “Rahab” (32:2; cf. Job 3:8; 7:12; 9:13 nota; 41:1; Sal. 74:13, 14; 89:10; Is. 27:1; 30:7; 51:9; Ap. 12:15; 20:2). “Rahab” también se usa como una designación poética de Egipto (Sal. 87:4; Is. 30:7). En la mitología de las culturas que rodean a Israel, este monstruo marino es un dios que rivaliza con otros dioses, pero en la Biblia se lo desmitifica como simplemente otra criatura que vive en sumisión al mandato de Yahvé (véase Génesis 1:21). En este oráculo, los matices míticos se mezclan con la metáfora del Faraón como un temible cocodrilo descansando en el Nilo. VOLVER EZEQUIEL 29:3
+
+---
+
+### Ezequiel 29:4
+anzuelos. Dios sacará este cocodrilo del río tan fácilmente como los pescadores sacan un pez, y lo dejará pudriéndose en la orilla. Véase la nota sobre 28:2. Como las imágenes de Tiro como un poderoso barco a punto de hundirse (cap. 27) y su rey como el hombre original a punto de ser arrojado del jardín (cap. 28), la imagen del Faraón como un cocodrilo gigante prepara el camino para la introducción de Dios como el gran cazador que lo capturará.
+
+---
+
+### Ezequiel 29:5
+os daré por alimento. Las aves y los animales son dados a la humanidad como alimento (Gén. 1:30; 9:2, 3); la inversión de esta relación es una maldición proverbial (32:4; cf. Dt. 28:26; Sal. 79:2; Jer. 7:33; 15:3; 16:4; 19:7; 34:20).
+
+---
+
+### Ezequiel 29:6
+La descripción que hace Ezequiel de Egipto como una caña astillada recuerda los comentarios similares del comandante de campo asirio a Ezequías (2 R 18:21). Como en el caso de las demás naciones, el pecado de Egipto se refiere específicamente a su relación con Israel y Judá. Egipto prometió apoyar a Judá en su rebelión contra Babilonia, pero demostró no ser confiable. Aunque el pueblo de Dios es culpable de confiar en Egipto y no en el Señor, Egipto también es culpable de solicitar y alentar su desobediencia.
+
+---
+
+### Ezequiel 29:10
+De Migdol a Siena. Toda la tierra de Egipto será destruida, de norte a sur (véase también 30:6). Migdol está en el norte de Egipto, un sitio en la ruta del éxodo (Éx. 14:2; Núm. 33:7; Jer. 44:1; 46:14). Siena está en el sur de Egipto, en la primera catarata del Nilo. Es el punto terminal para la navegación en aguas profundas del Nilo y representa la frontera sur de Egipto.
+
+---
+
+### Ezequiel 29:11
+Es difícil fijar un período histórico definido de cuarenta años para el exilio egipcio. El número puede ser simbólico de una generación entera en lugar de considerarse un período definido (cf. Los cuarenta años de exilio de Judá (4:6). El exilio de Egipto será como el de Judá: será esparcida por tierras lejanas y luego será traída de regreso por el Señor. Sin embargo, mientras que Judá será completamente restaurada, Egipto seguirá siendo una sombra de lo que fue, ya no será una fuente de tentación para el pueblo de Dios.
+
+---
+
+### Ezequiel 29:17
+vigésimo séptimo año. Este oráculo se pronuncia en abril de 571 a. C., dieciséis años después del oráculo anterior (29:1). Es la fecha más tardía mencionada en el libro, posterior incluso a la visión de los capítulos 40-48.
+
+---
+
+### Ezequiel 29:18
+no obtuvo nada de Tiro. El sitio de Nabucodonosor a Tiro duró trece años (nota 26:7). El sitio fue largo y costoso, y las recompensas no compensaron el esfuerzo. Para compensar a Nabucodonosor por sus labores, el Señor lo recompensará con el botín de Egipto.
+
+---
+
+### Ezequiel 29:21
+El cuerno. Un cuerno es un símbolo común de poder político en la Biblia (Deut. 33:17; 1 Sam. 2:10; 2 Sam. 22:3; Sal. 18:2; 75:4, 5, 10; 89:24; 92:10; 112:9; 132:17; 148:14; Jer. 48:25; Dan. 7:7, 8, 20, 21; Zac. 1:18-21; Ap. 17:12). Este oráculo contra Egipto termina encontrando esperanza para Israel (cf. 28:24-26). Incluso en los oráculos contra las naciones, el enfoque principal siempre permanece en la relación de Dios con Su propio pueblo. Abre tus labios. Ver notas sobre 24:27 y 33:22.
+
+---
+
+### Ezequiel 30:1
+Este es el único oráculo de Ezequiel contra Egipto que no está fechado. Es posible que haya sido dado entre enero y abril de 587 a. C. (29:1; 30:20). Repite el contenido del primer oráculo en forma de lamento.
+
+---
+
+### Ezequiel 30:5
+Cus... Libia. Además de Egipto, se derramará juicio sobre todos sus aliados: Cus (Etiopía), Fut (parte de Libia), Lud (Lidia), toda Arabia y Libia.
+
+---
+
+### Ezequiel 30:14
+Zoán. En el delta oriental del Nilo; también conocida como Tanis. Está cerca de donde los israelitas trabajaron anteriormente como esclavos de Egipto.
+
+---
+
+### Ezequiel 30:15
+Pelusio ... En ... Pi- beseth ... Tehaphnehes. Pelusium es una fortaleza en la costa mediterránea, en la frontera noreste de Egipto junto con Tehaphnehes. On es un importante centro religioso para Egipto ubicado cerca del vértice sur del delta del Nilo. Pi-beseth solo se menciona aquí en la Biblia. Está en el delta oriental y sirvió como capital. Ciudad durante las dinastías XXII y XXII (950–725 a. C.). EZEQUIEL 30:15
+
+---
+
+### Ezequiel 30:18
+El día será oscuro. Tal como en el Éxodo plaga, la luz se convertirá en tinieblas (Éxodo 10:21-23).
+
+---
+
+### Ezequiel 30:20
+Undécimo año. Abril de 586 a. C. Justo antes de la caída de Jerusalén, lo que descarta cualquier esperanza de ayuda y liberación de Egipto.
+
+---
+
+### Ezequiel 30:21
+El faraón Hofra envía un ejército para ayudar a Sedequías, pero es rechazado (Jer. 37:1–10; cf. Eze. 17:15–17; 29:6, 7) . El “brazo” es una figura de poder militar. Los exiliados que viven en Babilonia y la gente de Jerusalén han esperado que Faraón derrote a Babilonia, pero esta profecía les niega esa esperanza. En cambio, Babilonia romperá el brazo de Faraón, dejándolo incapaz de manejar una espada e inútil como aliado para Israel. No hay esperanza de que el brazo sane o sea vendado para que Faraón pueda regresar a la contienda. El brazo que permanece entero será roto, y el brazo ya roto será roto una vez más, dejando a Egipto totalmente indefenso, esperando la batalla final. Golpe que hace caer. Este destino es el resultado de que el Señor fortaleció los brazos de Nabucodonosor.
+
+---
+
+### Ezequiel 31:1
+Undécimo año. Junio del 586 a. C., unos meses después del oráculo anterior (30:20). Jerusalén es sitiada y a pocas semanas de ser destruida por Nabucodonosor.
+
+---
+
+### Ezequiel 31:3
+El profeta usa el destino de Asiria como advertencia a Egipto, ya que el otrora poderoso imperio asirio colapsó entre 640 y 609 a. C. Algunos eruditos piensan que es improbable que en un oráculo contra Egipto el enfoque principal recaiga sobre Asiria (vv. 3–17). Sugieren que el error de un copista alteró una de las consonantes del texto y traducen “Asiria” como “ciprés” o “¿a qué puedo compararte?”, un mejor paralelo con la última cláusula del v. 2. Con esta corrección, todo el pasaje trata sobre Egipto. 31:3 Cedro. Ezequiel ya había usado un símbolo similar (cap. 17). Los árboles grandes pueden alcanzar cientos de metros de altura y vivir miles de años; proporcionan una metáfora adecuada para los reinos y las dinastías (17:22–24). Gran parte de la descripción de este árbol se asemeja al árbol sobrenatural del sueño de Nabucodonosor en Daniel 4:1– 12, 19–27. La suntuosidad de la descripción que hace Ezequiel de este árbol se compara con la extravagancia de su descripción de Tiro como un barco mercante ricamente equipado (27:3–11) y su gobernante como el hombre original (28:11–19). El árbol que representa a Asiria es más grande que todos los grandes árboles del jardín de Dios (es decir, el jardín del Edén). Las grandes naciones del mundo viven a su sombra como las aves y las bestias que encuentran refugio en las ramas de un gran árbol.
+
+---
+
+### Ezequiel 31:10
+Al igual que Asiria, Egipto ha olvidado que su grandeza no proviene de sí misma, sino que es un don de Dios. Al igual que en el caso de Tiro, ese orgullo condujo a una gran caída para Asiria cuando el leñador divino blandió su hacha de juicio. Por más altas que se establezcan las naciones y los imperios, con el tiempo todos morirán y descenderán al abismo, el inframundo sombrío que es el lugar de descanso final de los muertos indignos (nota de 26:15-21). El estado final del alma no es tan claro en el Antiguo Testamento como lo es en el Nuevo, pero no obstante es claro que aquellos que se encuentran en la tierra de Egipto son los que se encuentran en la tierra de Egipto. Quienes mueren fuera de la comunión con Dios se enfrentan a una vida desoladora después de la muerte. EZEQUIEL 31:10
+
+---
+
+### Ezequiel 31:15
+La escala del árbol cósmico, Asiria, marca el tono de la magnitud del duelo por su caída. El Líbano, hogar de los cedros, se cubrió de oscuridad, y las naciones que vivían a su sombra se sorprendieron por su desaparición. Así como Asiria fue destruida, Egipto quedará en completa ruina y destrucción.
+
+---
+
+### Ezequiel 32:1
+Año duodécimo. Marzo de 585 a. C., dos meses después de que los exiliados recibieron noticias de la destrucción de Jerusalén (33:21).
+
+---
+
+### Ezequiel 32:2
+león... dragón. En la mitología pagana del antiguo Cercano Oriente, el universo ordenado emerge del caos después de una batalla titánica entre un dios y un gran monstruo marino o dragón llamado “Mar”. Después de la batalla, se crean partes del universo a partir del cadáver del monstruo muerto. Ezequiel se refiere a este mito en varios lugares (nota 28:2; 29:3–5). Aquí Ezequiel compara al faraón con un león y también con el gran dragón marino. La palabra traducida como “dragón” también denota un cocodrilo (nota 29:3). Los faraones de esta época usan ambas imágenes, el león y el cocodrilo, para describirse a sí mismos. El cocodrilo y el león pueden ser cazados y asesinados, como le sucederá al faraón. EZEQUIEL 32:2
+
+---
+
+### Ezequiel 32:6
+El lenguaje de esta sección es similar al que se usa para describir el día del Señor en Isaías 13:10; Joel 2:30, 31; 3:15; Amós 8:9. Véase la nota sobre 7:7. La aparición de Dios como el Guerrero Divino está acompañada de convulsiones en el orden creado. El universo se disuelve en el caos que existía antes de la creación, cuando los cielos estaban oscuros (nota sobre 38:18–23). El enorme cadáver del monstruo muerto cubre la tierra y llena los valles. Aquí la imagen extravagante no tiene un sentido literal, sino que se utiliza metafóricamente para subrayar la magnitud de la muerte del faraón.
+
+---
+
+### Ezequiel 32:11
+espada. Dios someterá al cocodrilo Egipto trayendo los ejércitos de Babilonia contra ella. La “espada del rey de Babilonia” es en realidad la espada del Señor (cap. 21; 30:25). La destrucción será aún mayor que la primera Pascua, cuando solo murieron los primogénitos humanos y animales (Éx. 12:29). En este caso, todas las personas y animales morirán.
+
+---
+
+### Ezequiel 32:14
+fluirá como el aceite. En su tiempo de fortaleza, el Un gran cocodrilo se agita en el arroyo, revolviendo el barro. Después de su muerte, El río volverá a fluir con tranquilidad y tranquilidad.
+
+---
+
+### Ezequiel 32:17
+duodécimo año. Probablemente la primavera del 585 a. C.
+
+---
+
+### Ezequiel 32:18
+al mundo de abajo. El profeta ya ha descrito el descenso de Egipto al inframundo (véase 31:17, 18). Allí, el orgulloso imperio se convirtió en uno más entre los muchos estados poderosos que lo precedieron (Asiria, v. 22; Elam, v. 24; Mesec y Tubal, v. 26; Edom, v. 29; Sidón y “los príncipes del norte”, v. 30). El inframundo (“Seol” o En el Antiguo Testamento, el sepulcro se describe comúnmente como una enorme cámara funeraria donde los muertos tienen una existencia sombría y sin alegría. Véase la nota sobre Is. 14:9–11; también Gén. 37:35; Job 3:17–19; 7:9; 10:20–22; 17:13–16; Sal. 88:5, 11; 115:17; Pro. 1:12; 9:18; Ecl. 9:10; Is. 5:14; 38:18; Hab. 2:5.
+
+---
+
+### Ezequiel 32:19
+los incircuncisos. El término se repite diez veces en los versículos 19-32. El enfoque no está en la falta del procedimiento físico sino en su significado espiritual. Aquellos que no fueron iniciados en el pacto comunidad no disfruta de la protección y provisión eterna del Señor.
+
+---
+
+### Ezequiel 32:26
+Mesec-Tubal. Véase la nota sobre 27:13.
+
+---
+
+### Ezequiel 33:1
+Este capítulo marca el comienzo de la segunda parte del libro de Ezequiel. La primera parte del libro trata principalmente de Jerusalén en el pasado y el presente; la segunda parte se centra en el futuro del pueblo de Dios. 33:1–9 Esta parte del libro comienza reiterando el llamado de Ezequiel a ser centinela (cf. 3:16–21). Se nombra a un centinela como vigilante de la comunidad. En el capítulo 3, el enfoque se centró en la responsabilidad de Ezequiel como centinela de declarar el mensaje fielmente. Aquí, Ezequiel debe decirle al pueblo que él es su centinela, cambiando el enfoque hacia su responsabilidad de escuchar la advertencia del centinela. Incluso ahora que Jerusalén ha caído, todavía pueden encontrar vida si responden a las noticias con arrepentimiento.
+
+---
+
+### Ezequiel 33:10
+Ahora que el mensaje del profeta sobre la destrucción de Jerusalén ha sido vindicado, el pueblo enfrenta la tentación de desesperarse. Necesitan que se les recuerde la buena noticia de que el Señor no se complace en destruir a los malvados y siempre está listo para redimir a quienes se arrepienten y se vuelven a Él. Sin embargo, aquellos que continúan en sus pecados seguramente serán destruidos.
+
+---
+
+### Ezequiel 33:21
+duodécimo año. Enero de 585 a. C. Según 2 Reyes 25:8-10, Jerusalén es destruida por el fuego en el quinto mes del undécimo año del reinado de Joaquín. Es poco probable que haya tardado más de un año y medio para que la noticia recorra la distancia que Esdras cubre en cuatro meses (Esdras 7:9). Más bien, con la excepción de 24:1, Ezequiel está usando un sistema diferente de cómputo de los años según los años de su exilio en lugar de los años del reinado del rey.
+
+---
+
+### Ezequiel 33
+El profeta ha estado en silencio durante un período prolongado; véanse las notas sobre 3:26 y 24:27. Ahora que la noticia de la destrucción de Jerusalén ha llegado a los exiliados, su boca se abre. El punto de inflexión en la propia vida del profeta refleja el punto de inflexión en las perspectivas de su pueblo. Cuando Ezequiel se dirige a (1) los que han permanecido en Judá después de la destrucción de la ciudad (vv. 23-29) y (2) a sus compañeros de exilio (vv. 30-33), reconoce que ninguno de los dos grupos ha cambiado realmente. Los que han permanecido en Judá afirman ser los únicos herederos restantes de la promesa a Abraham. Sin embargo, su comportamiento demuestra que en realidad no son descendientes de Abraham. Aquellos cuyas vidas niegan por completo la fe de Abraham no pueden heredar la tierra prometida a Abraham. En cambio, heredarán las maldiciones del pacto mosaico: la espada, los animales salvajes y la enfermedad (v. 27; véase Lev. 26:22–25).
+
+---
+
+### Ezequiel 33:25
+comer carne con sangre. Esta práctica Está prohibido en Génesis 9:4; Levítico 7:26, 27; 17:10; Deuteronomio 12:16, 23.
+
+---
+
+### Ezequiel 33:26
+profana a la mujer de su prójimo. Véase 18:6, 11, 15.
+
+---
+
+### Ezequiel 33:30
+La situación no es mucho mejor entre los compañeros de exilio de Ezequiel que en Judá. Ahora que los acontecimientos han confirmado la verdad de sus palabras, Ezequiel ya no es ignorado ni ridiculizado, sino que se ha convertido en una forma popular de entretenimiento. Sin embargo, el pueblo todavía no escucha el contenido de sus mensajes para arrepentirse y obedecer (v. 11).
+
+---
+
+### Ezequiel 34:1
+En la Biblia, un rebaño de ovejas es una imagen común para el pueblo de Dios, con el rey como el pastor auxiliar y Dios como el Gran Pastor (Sal. 23). Sin embargo, los pastores de Israel (sus reyes) no protegieron a su rebaño. En lugar de cuidar a las ovejas que estaban débiles, heridas o enfermas, se alimentaron a sí mismos a expensas del rebaño. Gobernaron a las ovejas con fuerza y dureza (v. 4), una frase que recuerda el trato abusivo que Israel enfrentó a manos de los egipcios (Éx. 1:13, 14). Como resultado de su negligencia y crueldad, el rebaño del Señor ha sido esparcido sobre la faz de la tierra.
+
+---
+
+### Ezequiel 34:11
+Yo mismo. Habiendo dejado de lado a los pastores infieles, Dios mismo asume el papel de pastor (Lucas 15:3-16). 7), rescatando a su rebaño de sus garras. Buscará a los que se han dispersado y los traerá a salvo a casa, a las montañas de Israel, el centro de la tierra que Dios prometió a Abraham. Como en el Salmo 23, el Señor hará que su rebaño descanse en buenas tierras de pastoreo y en ricos pastos. Vendará a las heridas y fortalecerá a las débiles.
+
+---
+
+### Ezequiel 34:12
+un día de nubes y de densas tinieblas. Este lenguaje se asocia ordinariamente con el día del Señor (nota 7:7; cf. Is. 60:2; Jer. 13:16; 23:12; Joel 2:1, 2; Amós 5:18–20; Sof. 1:15).
+
+---
+
+### Ezequiel 34:17
+carneros y machos cabríos. El juicio de Dios no se limita a los pastores, sino que incluirá a los más poderosos entre el ganado. Algunos de los animales del rebaño han estado intimidando a otros; estos probablemente representan a los miembros de las clases altas de la sociedad de Jerusalén que han oprimido a los pobres. Existe una situación similar en la comunidad de la restauración (Nehemías 5).
+
+---
+
+### Ezequiel 34:23
+David. Esta promesa de restauración (vv. 6, 10–16) mira hacia el reino mesiánico. El Siervo de Dios, uno como David, el rey conforme al corazón de Dios (1 Sam. 13:14), gobernará en paz, justicia y prosperidad que excederán las conocidas durante el gobierno del David histórico. Ningún descendiente de David en el período de la restauración cumple la descripción profética de Ezequiel del futuro rey de Israel. El NT identifica a Jesús como el Buen Pastor (Juan 10:11–14). Él es el cumplimiento de la promesa a David en 2 Sam. 7 de que uno de sus descendientes reinará en su trono para siempre.
+
+---
+
+### Ezequiel 34:24
+príncipe. Ver nota sobre 37:24.
+
+---
+
+### Ezequiel 34:25
+pacto de paz... bendición. Este no es un pacto enteramente nuevo y diferente del que se hizo en el monte Sinaí (cf. Romanos 8:3, 4). Más bien, es un pacto que realmente logra lo que la ley prometió en el monte Sinaí pero que nunca pudo cumplir debido al pecado de Israel. En lugar de la maldición del pacto que Israel se ganó por su desobediencia, el Señor dará a Su pueblo bendiciones del pacto, incluyendo seguridad, abundancia agrícola en la tierra y una relación restaurada con el Señor (véase Levítico 26:4-13). 34:25 Desterrar a las fieras. Las fieras son una maldición del pacto por la desobediencia. (Lev. 26:6; Deut. 33:20; 1 R. 13:24–28; 20:36; 2 R. 2:24; 17:25, 26;). VOLVER EZEQUIEL 34:25, 26
+
+---
+
+### Ezequiel 34:30
+Y sabrán. Véase nota sobre 6:7. Con ellos... mi pueblo. La esencia del pacto de Dios con Israel es que el Señor será su Dios, y ellos serán Su pueblo (11:20; 36:28; cf. Éx. 6:7; Lv. 26:12; Dt. 7:6; 14:2; 27:9; 29:13; Sal. 50:7; Is. 51:22; Jer. 7:23; 11:4; 30:22; Joel 2:27).
+
+---
+
+### Ezequiel 35:2
+El monte Seir. Edom está ubicado a lo largo del margen de tierra cultivable al sureste del Mar Muerto; Seir es la principal cadena montañosa del país. El monte Seir se usa como sinónimo de Edom (v. 15; Gn. 32:3; 36:8, 9; Dt. 2:8; Jue. 5:4; 2 Cr. 25:14). Este oráculo de juicio contra el monte Seir forma un telón de fondo contrastante que muestra la gracia del Señor en Restauración de los montes de Israel en el capítulo 36 (cf. Mal. 1:2–5).
+
+---
+
+### Ezequiel 35
+Los edomitas, descendientes de Esaú, ayudaron al rey Nabucodonosor en su asalto a Jerusalén, eliminando a los fugitivos y entregándolos de vuelta a los babilonios (Abd. 10– 14; Mal. 1:2–5). Esta actitud fue motivada tanto por un deseo de apoderarse de su territorio como por la antigua enemistad contra los descendientes del hermano de Esaú, Jacob (cf. Gn. 27). Por esa enemistad, el Señor juzgará a Edom y destruirá su tierra para siempre.
+
+---
+
+### Ezequiel 35:10
+Dos naciones: Israel y Judá. Tomaremos posesión de ellos. Cf. Dt 2,2-6, pasaje que prohíbe a Israel tomar el territorio de Edom porque Dios se lo dio a los descendientes de Esaú.
+
+---
+
+### Ezequiel 36
+La profecía de juicio dirigida contra el monte Seir (cap. 35) es seguida por una profecía de restauración dirigida a las montañas de Israel. Esto revierte la devastación amenazada para estas mismas montañas en el cap. 6, mientras que el destino de Edom representa el destino de todos los enemigos de Israel que la han insultado y se han apropiado de su tierra. Israel prosperará y será más numeroso que antes del reciente desastre (vv. 11, 12; cf. Zac. 2:4). Los profetas a menudo describen la futura bendición de Dios sobre la tierra en términos de una multitud de hijos, cuando las maldiciones del pacto de esterilidad y abortos espontáneos son quitado (37:25; Is. 49:20; 54:1; 59:21; Jer. 30:20; 31:17; Zac. 8:5).
+
+---
+
+### Ezequiel 36:2
+alturas antiguas. Esta frase se refiere a la tierra que Dios le prometió a Israel, o si se toma estrictamente, a las alturas de Sión (17:23; 34:14; Deut. 32:13; Sal. 48:2; 78:69; Is. 58:14; Jer. 31:12).
+
+---
+
+### Ezequiel 36:15
+El oprobio. La vergüenza de Israel será quitada y reemplazada por la vergüenza de sus enemigos.
+
+---
+
+### Ezequiel 36:16
+En el pasado, el pecado de Israel contaminó su tierra, haciéndola inservible para la morada divina, de la misma manera que las telas menstruales se volvían impuras al entrar en contacto con el flujo de sangre mensual de una mujer. No había nada pecaminoso en este proceso natural, sin embargo, cualquier pérdida de fluidos vitales corporales, como sangre o semen, contaminaba a las personas al alejarlas del reino de la vida. Véase la nota sobre 18:6.
+
+---
+
+### Ezequiel 36:20
+Cuando Dios juzgó a Su pueblo por su pecado y lo expulsó de su tierra, Su nombre cayó en vergüenza, ya que las naciones concluyeron que el Señor no podía mantener a Su pueblo a salvo en su propia tierra. La preocupación por el honor de Su santo nombre llevó al Señor a dispersarlos, pero la misma preocupación por Su nombre también lo llevará finalmente a reunir a los remanente de su pueblo.
+
+---
+
+### Ezequiel 36:25
+rociar. La aspersión o el derramamiento de agua se refiere a las purificaciones rituales para eliminar la contaminación religiosa (Éx. 30:17–21; Lev. 14:52; Núm. 19:17–19). También se utiliza como símbolo del don del Espíritu de Dios en la unción de reyes y sacerdotes y en el llamado profético (Jl. 2:28, 29). El derramamiento del Espíritu de Dios es una señal de la era mesiánica (37:14; 39:29; cf. Is. 42:1; 44:3; 59:21). Este rico simbolismo se aplica al bautismo en el NT. El lenguaje de los versículos 25-27 tiene un paralelo cercano con el del Salmo 51:7-11.
+
+---
+
+### Ezequiel 36:26
+corazón nuevo... espíritu nuevo. Véase 11:19 y la nota sobre 18:31. El corazón y el espíritu son el lugar donde se encuentran los pensamientos y la voluntad que sustentan las acciones. La transformación de Israel no será sólo externa sino también interna. En lugar de un corazón de piedra, incapaz de responder a Dios con amor y obediencia, Dios proveerá un corazón nuevo y un espíritu nuevo. Nótese que estos cambios vienen como resultado de la iniciativa divina y no del esfuerzo humano. Jeremías describe el nuevo pacto de la misma manera (Jer. 31:33 nota; cf. Prov. 3:3; 7:3; Ro. 2:15, 29; 2 Cor. 3:3).
+
+---
+
+### Ezequiel 36:27
+mi Espíritu. El nuevo espíritu será el Espíritu de Dios que transformará a aquellos en quienes mora y los capacitará para obedecer la ley de Dios. Esta es una obra tan gloriosa como la obra original del Espíritu en la creación. Cf. Génesis 1:2; Ezequiel 37:1-10; Romanos 7:6; 8:2-17; Gálatas 5:16-18, 22; 1 Juan 1:1-12. Juan 3:24.
+
+---
+
+### Ezequiel 36:33
+Los lugares desolados serán reedificados. Véase Is. 44:26; 58:12; 61:4.
+
+---
+
+### Ezequiel 36:35
+Edén. Israel como nación es el jardín de Dios; véanse las notas sobre 28:13, 14; 40:16; 47:1, 2. Sin embargo, este jardín se enriquecerá con ciudades rebosantes de gente como Jerusalén durante las tres grandes fiestas anuales de peregrinación. La mayor bendición de todas es la disposición del Señor a escuchar las peticiones de Israel, a diferencia de los días anteriores cuando no les permitía que le consultaran (14:1–3; 20:1– 3).
+
+---
+
+### Ezequiel 37:1
+El AT no presenta una doctrina completa de la resurrección; ésta aguardaba la venida de Cristo (Job 14:14; 19:25, 26; Dan. 12:2; cf. 1 R. 17:17–24; 2 R. 4:8–37; 13:21). La visión de Ezequiel no se refiere a una resurrección general al final de los tiempos; la pregunta que se le plantea no es: “¿Pueden los huesos secos en general ser devueltos a la vida?” sino más bien, “¿Pueden estos huesos secos en particular vivir?” La visión da una esperanza específica e inmediata a los exiliados que anhelan ser restaurados a su propio país (37:14). Por supuesto, el mismo Dios que resucita a estos huesos secos también resucitó a Jesucristo de entre los muertos como las primicias de la resurrección (1 Cor. 15:20), por lo que la esperanza de este pasaje también tiene una aplicación más amplia para todos los creyentes. 37:1 Espíritu. Las palabras “aliento”, “Espíritu” y “viento” en este pasaje representan la misma palabra hebrea, ajustada por las traducciones a los requisitos del contexto (vv. 1, 5, 6, 8, 9, 10, 14). valle. Este es el mismo término usado en 3:22 (ver nota). También es la misma palabra usada para describir la ubicación de la Torre de Babel en Génesis 11:2. Por lo tanto, es lo opuesto a la “montaña muy alta” donde Ezequiel tiene su visión en Ezequiel 3:22. 40:2.
+
+---
+
+### Ezequiel 37:2
+muy seco. Ezequiel no ve simplemente una variedad de cadáveres recientemente fallecidos, sino un enorme campo de destrucción, cubierto de esqueletos secos y desmembrados. Para Ezequiel, la respuesta a la pregunta del Señor sobre si estos huesos pueden vivir debe parecer una obviedad. “No”. Sin embargo, el profeta devuelve la pregunta con cautela al Señor, sin pretender ser capaz de leer sus propósitos. Obviamente, el Señor tiene el poder de hacer lo que quiera; la verdadera pregunta es si es su voluntad resucitar estos huesos secos.
+
+---
+
+### Ezequiel 37:4
+Profetizar. En la creación, Dios habló y se creó nueva vida (Gén. 1). Las palabras de Ezequiel son igualmente eficaces en esta visión, porque también son palabras de Dios.
+
+---
+
+### Ezequiel 37:9
+aliento. Al principio, los cuerpos recreados están sin vida, sin espíritu/aliento. Al igual que la creación de Adán en Génesis 2:7, el Israel recreado es formado primero por Dios y luego es vivificado por el Espíritu/aliento de Dios. Después de que el Espíritu entra en los cuerpos, estos se ponen de pie como un ejército poderoso, listos para servir. Esto recuerda el propio llamado de Ezequiel: cuando el profeta cayó postrado en la presencia de la gloria de Dios, el Espíritu entró en él y lo puso de pie (1:28; 2:2; 3:22-24). Ezequiel es, por lo tanto, las primicias de la regeneración prometida del pueblo de Dios.
+
+---
+
+### Ezequiel 37:12
+tumbas. La visión comenzó con tumbas expuestas . y huesos insepultos (v. 2), pero ahora se amplía para incluir la apertura de tumbas. Los exiliados se sienten muertos y enterrados, tan desamparados y sin esperanza como el campo de huesos secos. La visión confirma su absoluta impotencia, pero también los señala hacia Aquel que no sólo tiene el poder de darles una nueva esperanza, sino que también quiere que vivan de nuevo.
+
+---
+
+### Ezequiel 37:14
+"Lo sabréis". La restauración de Israel será el testimonio de Dios de su poder y gobierno.
+
+---
+
+### Ezequiel 37:16
+Un palo. El profeta realiza otro acto de señal (nota de 4:1-3). Dos palos, uno con el nombre del reino del sur, Judá, y el otro con el nombre del reino del norte, Efraín (Israel), se sostienen uno junto al otro en una de las manos del profeta de modo que parezcan estar unidos.
+
+---
+
+### Ezequiel 37
+El profeta interpreta sus acciones simbólicas (vv. 16, 17). Los dos hijos de José fueron Efraín y Manasés; estas dos tribus eran la parte central del reino del norte, tanto así que a veces se designa al reino del norte (Israel) simplemente como “Efraín” (2 Cr. 25:7, 10; Is. 7:2, 9, 17; 11:13; 17:3; Jer. 31:20; Os. 4:17; 6:4; 8:9; 9:8; 10:6; Zac. 9:13). Cayó en manos de los asirios casi un siglo y medio antes del exilio de Judá, y los israelitas se dispersaron entre otras naciones y se asimilaron a ellas. Este pasaje mira hacia atrás a la monarquía unida bajo David y Salomón, y hacia adelante a una futura restauración ideal (33:24; Jer. 3:18; 23:5, 6; Os. 1:11; Amós 9:11). El punto principal no es simplemente que Israel y Judá serán se reunirán, pero eso es algo que el Señor mismo hará. para siempre... para siempre jamás . La repetición de “para siempre” (vv. 25, 26, 28) indica que la reunificación en cuestión es escatológica, es decir, un acontecimiento que ocurrirá en los últimos días. El pueblo reunificado será también un pueblo renovado, purificado de sus ídolos y, por tanto, capaz de morar en la presencia de Dios.
+
+---
+
+### Ezequiel 37:24
+rey. Ezequiel se muestra reacio a utilizar la palabra “rey” en referencia a cualquiera de los gobernantes históricos de Jerusalén, prefiriendo en cambio llamarlos “príncipe” (v. 25; 12:10, 12; 19:1; 21:12, 25; 22:6; 34:24). Aquí, sin embargo, describe al futuro gobernante davídico como “rey” (v. 22, 24), porque él es quien une los dos reinos separados en uno solo. Revela que este pastor-rey es Jesús (34:2–10, 23 y notas), quien reina sobre el pueblo renovado de Dios para siempre (v. 25; 34:31; Juan 10:11, 14; Mateo 2:2; Hechos 5:31). La iglesia —en la que judíos, samaritanos y gentiles están unidos como un solo pueblo bajo un Rey, Jesús— es, por lo tanto, el cumplimiento de esta visión.
+
+---
+
+### Ezequiel 37:26
+pacto de paz. Véase 34:25 y nota. Pacto eterno. Este pacto eterno entró en vigor mediante la ofrenda de la sangre de Cristo (Hebreos 13:20).
+
+---
+
+### Ezequiel 37:27
+Su Dios... mi pueblo. Véase la nota sobre 34:30.
+
+---
+
+### Ezequiel 37:28
+El santuario está en medio de ellos. Para siempre. Al pueblo renovado se le promete un nuevo santuario en el que Dios volverá a morar en medio de ellos. Después de la descripción de la última batalla en los caps. 38; 39, Ezequiel volverá a este tema para describir el templo y la tierra renovados (caps. 40-48). Más de seiscientos años después de Ezequiel, Juan tiene una visión similar (Ap. 21), pero de una ciudad que ya no necesita un templo porque Cristo es su centro y santuario (Ap. 21:22).
+
+---
+
+### Ezequiel 38:1
+Antes de su descripción del futuro templo y la tierra, el profeta describe primero el asalto y la derrota de sus enemigos (cap. 38), seguido por su eliminación (cap. 39). Gog, el príncipe de Magog (v. 2 Nota), resume la oposición constante al reino y al pueblo de Dios. Dios viene como el Guerrero Divino en una batalla cataclísmica, peleando por Su pueblo e infligiendo una derrota apocalíptica a Sus enemigos, preparando el camino para la visión del templo y la tierra renovados (caps. 40-48). Si ni siquiera el último enemigo, Gog, puede separar al Señor de Su pueblo, seguramente nada en toda la creación puede hacerlo (Rom. 8:35–39).
+
+---
+
+### Ezequiel 38:2
+Gog. La identidad de Gog es incierta. A menudo se lo identifica con Giges, rey de Lidia, una tierra en Anatolia (la actual Turquía). En los textos acádicos del siglo VII, Giges es conocido como vasallo asirio; una leyenda posterior le atribuye la invención de la moneda. Sin embargo, esta identificación no es en absoluto segura, ya que el personaje bíblico trasciende las categorías históricas normales y adquiere proporciones tremendamente temibles. Magog. Esta tierra gobernada por Gog tampoco aparece en las listas geográficas existentes ni en las citas de la literatura antigua; puede que no signifique más que “tierra de Gog.” Mesec y Tubal. Aunque la identificación de Gog y Magog sigue siendo incierta, la identificación de Mesec y Tubal no está en duda (nota 27:13). Según los historiadores antiguos Heródoto y Josefo, así como documentos asirios de los siglos XII al VIII a. C., se sabe que se trata de tribus procedentes de Anatolia central y oriental (la actual Turquía). Se han producido considerables malentendidos debido a especulaciones erróneas sobre estos términos geográficos. Algunos han identificado estas ubicaciones con otros sitios conocidos de la geografía contemporánea y los han convertido en parte de conjeturas sobre acontecimientos políticos posteriores. A veces se dice que Mesec y Tubal son Moscú y Tobolsk, dos ciudades rusas muy distantes de la región que menciona Ezequiel. La palabra hebrea traducida como “príncipe” (v. 2) es rosh, y algunos han dicho que significa “Rusia”. Incluso si esta palabra es un nombre geográfico y no debe traducirse como “príncipe”, no es “Rusia”. El nombre “Rusia” fue introducido en la región al norte de Kiev por los vikingos durante la Edad Media, y no se usaba en la época de Ezequiel. La identificación del rosh con Rusia se hizo por primera vez en el siglo XIX, en la época de la Guerra de Crimea, durante un período en el que el expansionismo ruso amenazaba a Europa. Al describir las amenazas a la existencia de Israel, la Biblia comúnmente se refiere a enemigos que vienen del norte (Is. 41:25; Jer. 1:13-15; 4:6; 6:22; 10:22; 13:20; 15:12; 25:9, 26; 46:10, 20, 24; 50:3, 9, 41; Eze. 26:7; 38:6, 15; 39:2; Dan. 11; Zac. 2:6; 6:6–8; cf. Is. 5:26–29; 13:1–13; Hab. 1:5–11; Nah. 2:2–10; 3:1–3). Las referencias a estos enemigos del norte antes del exilio babilónico en el siglo VI a. C. suelen apuntar a Asiria, Babilonia y Persia, los enemigos tradicionales de Israel. Durante y después del exilio babilónico, los enemigos del norte adquieren un matiz más simbólico y apocalíptico. En su descripción del conflicto al final de los tiempos, Ezequiel menciona a las tribus en los márgenes de los reinos del norte como una encarnación de los enemigos del norte que ya figuran en la escatología de Israel (su comprensión de los últimos días). En lugar de añadir especulaciones sobre la historia futura, los lectores modernos deberían entender que el propio Ezequiel utiliza a estas naciones como referencias simbólicas a todos los poderes desplegados contra el pueblo de Dios (cf. Ap. 19; 20). Ezequiel contiene muchos oráculos contra las naciones extranjeras (caps. 29-32), pero no hay ninguno específicamente contra Babilonia, donde él y los exiliados están cautivos. Algunos han sugerido que Magog, Mesec y Tubal están velados Referencias a Babilonia, el enemigo inmediato. Gog y Magog aparecen de nuevo en la descripción apocalíptica que hace Juan del conflicto futuro entre el bien y el mal (Apocalipsis 20:8).
+
+---
+
+### Ezequiel 38:5
+Cus. Véase la nota sobre Is. 18:1.
+
+---
+
+### Ezequiel 38:6
+Gomer. Probablemente un grupo de la zona norte del Mar Negro, conocido por los asirios como los gimirrai y por los griegos como los cimerios. Gog lidera una coalición de siete naciones del sur y del norte. La imagen es la de una movilización total contra el pueblo de Dios. Sin embargo, incluso este acto de rebelión cósmica está completamente bajo el control soberano de Dios; Él trae a estas naciones con garfios en sus mandíbulas, como uno podría dirigir los pasos de un cocodrilo capturado. Compárese con el llamado divino a la guerra en Joel 3:9-11. Bet-togarmá. Véase nota sobre 27:14.
+
+---
+
+### Ezequiel 38:9
+Como una nube. Un enemigo innumerable se reúne (Jer. 4:13; Joel 2:2). La imagen de una tormenta eléctrica recuerda la imagen amenazante pintada en la visión inicial. Gog oculta su apariencia como Dios, llegando en una tormenta.
+
+---
+
+### Ezequiel 38:10
+tramarás un plan malvado. Aunque Dios trae la alianza impía para cumplir sus propósitos santos, no se les obliga a obedecer en contra de su voluntad. Dios es soberano incluso sobre los pensamientos que llenan las mentes de sus adversarios. Gog viene con un propósito, pero Dios tiene Otro propósito para él, como se hará evidente en el capítulo 39.
+
+---
+
+### Ezequiel 38:13
+Seba. El extremo sudoeste de la península arábiga (actual Yemen). Los sabeos son famosos por su comercio (27:22, 23; 1 R. 10:1, 2; Job 6:19; Joel 3:8). Dedán. Territorio en el sur de Edom (25:13; 27:20; cf. Jer. 25:23; 49:8). Las naciones mercaderes del mundo (véase 27:20, 22) se alinean para recibir su parte del botín previsto en esta contienda desigual.
+
+---
+
+### Ezequiel 38:17
+Aquel de quien hablé. Gog no es el que se menciona en profecías anteriores que describen a un enemigo del norte (nota del v. 2). Esas profecías se cumplieron por completo con la destrucción de Jerusalén por parte de Nabucodonosor. En lugar de convertirse en un agente de la ira divina contra Israel, Gog mismo será destruido por esa misma ira.
+
+---
+
+### Ezequiel 38
+Dios mismo será el defensor de Israel. En los pasajes que describen la aparición de Dios como el Guerrero Divino, los profetas suelen hablar de una convulsión correspondiente en el orden creado; la creación se disuelve en el caos primigenio (nota 32:6-8; Is. 13:13; 24:18-20; Jer. 4:23-26; Joel 2:10, 30, 31; Hageo 2:6, 7, 21; cf. Jue. 5:4; Sal. 18:8; 46:3; 77:16-19). El Guerrero Divino traerá sobre sus enemigos las mismas maldiciones del pacto que antes trajo contra Judá.
+
+---
+
+### Ezequiel 39:4
+Te entregaré a las aves de rapiña. Como un nuevo Goliat, la temible actitud de Gog es el preludio de su caída. Estará indefenso ante el Dios viviente, su cuerpo quedará expuesto a las aves del cielo y a las bestias del campo.
+
+---
+
+### Ezequiel 39:7
+No permitiré que mi santo nombre sea Así como el Señor una vez dio a conocer su santidad a través de actos de juicio (36:21), ahora la dará a conocer a través de sus actos de salvación para su pueblo.
+
+---
+
+### Ezequiel 39:9
+Enciendan las armas en el fuego. El profeta usa una imagen gráfica para describir cuán grande será el ejército enemigo y cuán total será su derrota: los israelitas reunirán las armas de los vencidos y tendrán suficiente leña para siete años (Sal. 46:9). Irónicamente, seis tipos diferentes de armas de madera son los únicos objetos que sobreviven al fuego del cielo. La única contribución de Israel a la batalla es recoger este armamento abandonado; lo único que tienen que hacer es observar al Señor en acción.
+
+---
+
+### Ezequiel 39:11
+lugar de sepultura. Las hordas de Gog serán enterradas en las fronteras de Israel, cerca del Mar Muerto. Después de siete meses de trabajo, Los detalles del entierro seguirán siendo la búsqueda de cuerpos (vv. 14, 15).
+
+---
+
+### Ezequiel 39:14
+purificar. El contacto con un cadáver hace que uno quede ceremonialmente impuro (Levítico 11:24-28, 39; 22:4), por lo que será necesario purificar la tierra enterrando todos los cadáveres.
+
+---
+
+### Ezequiel 39:15
+Levantará junto a ella una señal. Gog llega con todas sus hordas esperando que el pueblo de Dios sea una presa fácil. En lugar de entregar a Sión en sus manos, Dios le dará una lápida (Hb. ziun , una evidente juego de palabras). Gog viene en busca de una ciudad, pero en su lugar encuentra una tumba (cf. Apocalipsis 20:10). Hamón-gog. El valle se llamará “Valle de las Hordas de Gog”. Este valle lleno de los cadáveres del ejército de Gog es una inversión de la visión en 37:1– 10, donde un valle de huesos muertos se convirtió en un ejército.
+
+---
+
+### Ezequiel 39:17
+Fiesta de sacrificios. Véase la nota sobre 29:5. Por lo general, el sacrificio significa que los animales se convierten en alimento. Aquí la imagen se invierte: los enemigos humanos son sacrificados y los animales comen. Con esta inversión del orden creado (Gén. 1:30; 9:2, 3), el profeta muestra cómo el universo se disuelve en el caos bajo el juicio de Dios (38:18-23 nota). La misma imagen se utiliza en Apocalipsis 12:1-13. 19:17, 18 (Is. 34:6, 7; Jer. 46:10; Sof. 1:7–9).
+
+---
+
+### Ezequiel 39:18
+Basán. Una región al este del Mar de Galilea conocida por su ganado de calidad (Deut. 32:14; Sal. 22:12; Amós 4:1).
+
+---
+
+### Ezequiel 39:19
+come grasa... bebe sangre. Estas partes de un Los animales sacrificatorios se ofrecen comúnmente a Dios (44:15; Lev. 3:17).
+
+---
+
+### Ezequiel 39
+Esta sección deja en claro la lección que los oyentes de Ezequiel deben sacar de esta visión: Dios demuestra Su gloria en toda la historia a través del juicio y la restauración de Su pueblo. El exilio babilónico no muestra que Dios haya fallado en Sus promesas; por el contrario, demuestra a Israel y a las naciones por igual que la soberanía del Señor es universal. Aunque Dios ha afligido a Su pueblo, no lo ha abandonado. Él lo traerá a casa (vv. 25-29), y lo transformará por Su Espíritu para que un juicio similar no sea necesario después (nota 36:26; 11:19; 18:31; 37:14; Joel 2:28). Después de describir cómo Dios aplastará a Sus enemigos (caps. 38; 39), el profeta pasa a una descripción de la gloriosa restauración del pueblo de Dios (caps. 40-48). Si ni siquiera Gog puede destruir al nuevo Israel de Dios, ¿qué enemigo podrá separarlos de Su amor (Rom. 8:31–39)?
+
+---
+
+### Ezequiel 40:1
+La visión de Ezequiel del templo restaurado combina muchos hilos de la tradición bíblica. Ezequiel entrelaza los La visión de Ezequiel se basa en la interpretación habitual de Jerusalén como la ciudad que Dios ha elegido para morar, con referencias al monte Sinaí y al jardín del Edén. Sin embargo, la ciudad en la visión de Ezequiel no se llama Jerusalén, y está geográficamente ubicada significativamente más al norte que Jerusalén. Los pecados de la antigua ciudad de Jerusalén no pueden simplemente olvidarse (ver caps. 16; 23); su restauración incluye un nuevo nombre que coincide con su nuevo carácter (48:35). Un ángel guía al profeta en un recorrido por la ciudad, comenzando por las puertas del patio exterior del templo (40:6–27) y terminando después de varios capítulos con una división de la tierra entre las doce tribus (47:13–48:35). Las interpretaciones de estos capítulos varían ampliamente. Algunos han visto en estos pasajes un plano y especificaciones de construcción para un templo que se construirá en el futuro (43:10, 11). Sin embargo, se omiten detalles clave, como la altura de los edificios y los materiales que se utilizarán, lo que impide tal interpretación. Otros elementos de la visión profética también parecen ir mucho más allá de una comprensión literal (p. ej., 47:1–48:35). 12). Por lo tanto, otros intérpretes entienden la visión del templo de Ezequiel como una descripción en gran medida simbólica de la manera en que Dios bendice a su pueblo en Cristo, en la que el templo representa de manera preeminente la presencia de Dios en medio de su pueblo. Mediante una visión simbólica (40:2; Nm. 12:6), el profeta describe, por medio de la arquitectura, la legislación y la geografía, un momento en el futuro en el que la presencia de Dios entre su pueblo purificado trascenderá todo lo que Israel haya experimentado en la historia. Los capítulos 40-48 son, pues, el desarrollo detallado de la promesa dada en 37:24-38. 40:1 año veinticinco. El día diez del séptimo mes de un año jubilar, que ocurre cada cincuenta años, se toca una trompeta para proclamar la llegada de la libertad en toda la tierra (Levítico 25:8-13). Ezequiel recibe su visión de un nuevo futuro para su pueblo aproximadamente a mitad de camino entre el exilio y la restauración del exilio.
+
+---
+
+### Ezequiel 40:2
+en una montaña muy alta. Las revelaciones de Dios en el Antiguo Testamento suelen tener lugar en las cimas de las montañas, en particular en el monte Sinaí, donde Moisés recibió la ley de Dios y el diseño del tabernáculo (Éxodo 19-40). Moisés también vio la Tierra Prometida desde la cima de otra montaña, aunque no vivió para entrar en ella (Deut. 34:1-4). Así también, Ezequiel recibe una legislación y un diseño para un santuario en la cima de una montaña, aunque no vivirá para verlo cumplido.
+
+---
+
+### Ezequiel 40:3
+un hombre. Un guía angelical conduce el El profeta en su recorrido por la ciudad (cf. Zac. 1:14). Al igual que las criaturas celestiales de la visión inicial de Ezequiel, la apariencia del ángel es como el bronce. caña de medir. Véase 2 Reyes 21:13; Amós 7:7, 8; Zacarías 2:1, 2; Apocalipsis 21:10, 15. La medición es un tema clave en Ezequiel 40-48.
+
+---
+
+### Ezequiel 40:4
+Declara todo lo que ves. Juan recibe instrucciones similares (Apocalipsis 1:11). Esta visión contiene un mensaje para los contemporáneos de Ezequiel, no sólo para aquellos que vivirían en algún momento distante en el futuro.
+
+---
+
+### Ezequiel 40:5
+Un muro. Lo primero que ve el profeta es un muro alto y grueso que separa el área de lo sagrado del profano, una separación que los sacerdotes no lograron establecer en 22:26. El acceso al ámbito de lo sagrado en el nuevo templo está estrictamente regulado para evitar que vuelva a ser profanado. codos. Hay al menos dos codos estándar, el codo corto de aproximadamente 17,4 pulgadas (44 cm), y el codo largo, utilizado aquí, de aproximadamente 20,4 pulgadas (52 cm) (43:13; cf. 2 Cr. 3:3). La vara mide unos diez pies de largo (3 m).
+
+---
+
+### Ezequiel 40:6
+La puerta que da al este. Con muros tan altos y gruesos, las puertas controlan el acceso al templo. La puerta que da al este es la más importante de las puertas y por eso se describe primero. Subiendo sus escalones. Se llega al templo por escalones que llevan a una plataforma elevada que es el atrio exterior. Más escalones conducen a una plataforma más alta que es el atrio interior (vv. 34, 37). Desde allí una escalera conduce al edificio del templo (v. 49; 41:8). Cuanto más elevada sea la elevación y más cerca esté del santuario interior, mayor será el grado de santidad. La visita del profeta comienza desde el exterior y avanza hacia el centro, al que se llega al final del capítulo 41. Luego regresa hacia el exterior, terminando en las cocinas del patio exterior en 46:19-24.
+
+---
+
+### Ezequiel 40:9
+vestíbulo. Estas puertas se parecen a las puertas del período salomónico desenterradas en las excavaciones de Hazor, Meguido y Gezer (1 R. 9:15), pero son significativamente más grandes en tamaño. El camino a través del vestíbulo El centro de la puerta está flanqueado por tres salas de guardia a cada lado.
+
+---
+
+### Ezequiel 40:16
+palmeras. Véase también los versículos 22, 31, 34, 37. La decoración de los antiguos santuarios de Israel es principalmente botánica; variedades de árboles y plantas decoran el área sagrada (Éx. 25:34; 37:19; 1 R. 6:18, 29, 32, 35) En este sentido, los santuarios de Israel sugieren la belleza del Edén y establecen delante de Israel la meta de morar nuevamente en el jardín de Dios (28:13, 14 nota). VOLVER EZEQUIEL 40:16
+
+---
+
+### Ezequiel 40:17
+El atrio exterior. Los adoradores pueden ingresar al atrio exterior, pero sólo los sacerdotes y los levitas pueden ingresar al atrio interior. El texto no especifica las dimensiones exactas ni el uso de las treinta habitaciones en el perímetro del atrio exterior, lo cual es otra forma de realzar el contraste entre el área exterior menos significativa del templo y el crucial espacio sagrado central.
+
+---
+
+### Ezequiel 40:20
+Las puertas del norte y del sur tienen el mismo aspecto que la puerta del este (vv. 5-16). No hay puerta del oeste porque el área detrás del Lugar Santísimo está bloqueada para evitar el acceso al templo desde atrás.
+
+---
+
+### Ezequiel 40:28
+El patio interior. El patio interior está separado del patio exterior y se eleva por ocho escalones más. También tiene tres puertas importantes (vv. 28–37). Sin embargo, no se menciona ningún muro. Es posible que la elevación proporcione una separación suficiente y al mismo tiempo permita una visión clara de las actividades dentro del área interior, o puede que simplemente se omita la mención del muro.
+
+---
+
+### Ezequiel 40:38
+lavado. Los animales ofrecidos para el sacrificio son sacrificados en las puertas del atrio interior (43:13–27). Después de sacrificados los animales, se lavan las partes (cf. Lv. 1:9, 13; 2 Cr. 4:6) y se cuelgan en ganchos (v. 43). El tiempo dedicado a este detalle resalta el enfoque radical del nuevo templo como lugar de sacrificio para la expiación, en contraste con el templo de Salomón, que era igualmente un lugar de sacrificio y una casa de oración (1 R. 8:28–30; Is. 56:7).
+
+---
+
+### Ezequiel 40:46
+los hijos de Sadoc, quienes solos... Acercaos. Véase la nota sobre 44:15. Otro tema importante en estos capítulos es la restricción del acceso a Dios a aquellos que Él ha elegido y que son aptos para entrar en el espacio sagrado.
+
+---
+
+### Ezequiel 40:47
+El atrio. Los temas del sacrificio y el acceso restringido se unen en la descripción del atrio interior, que es un cuadrado perfecto, como todos los espacios sagrados del AT. El altar del sacrificio, donde sólo los sacerdotes sadoquitas ofrecerán los sacrificios, está en el centro geométrico de este atrio.
+
+---
+
+### Ezequiel 41:4
+Al igual que el templo de Salomón que lo precedió, el templo de la visión de Ezequiel tiene tres habitaciones: un vestíbulo o pórtico (40:48, 49); un santuario exterior (41:1, 2); y el santuario interior o Lugar Santísimo (41:3, 4). El edificio del templo está situado más alto que el patio circundante y se llega a él por escaleras que conducen al pórtico (nota 40:6). El aumento de altura representa una santidad creciente a medida que uno se acerca a la habitación interior. El edificio del templo también tiene paredes gruesas, pero como el acceso ya está restringido, las puertas pueden reemplazarse por puertas simples. Debido a que el santuario es el espacio más importante del nuevo templo, se describe con el mayor detalle y con las medidas más precisas. El santuario y sus espacios asociados forman un segundo cuadrado de 100 codos, que coincide con el patio interior. veinte codos. El Lugar Santísimo en el tabernáculo y el Lugar Santísimo en el templo de Salomón también son cubos perfectos, iguales en longitud, anchura y altura (cf. Ap. 21:16). En el templo de Ezequiel, Al Lugar Santísimo se accede por aberturas cada vez más estrechas. VOLVER EZEQUIEL 41:4
+
+---
+
+### Ezequiel 40:49
+Las columnas presumiblemente se parecen a Jaquín y Booz, las columnas que estaban afuera del templo de Salomón (1 Rey. 7:15–22).
+
+---
+
+### Ezequiel 41:3
+Entró. El acceso al Lugar Santísimo está restringido al sumo sacerdote en el Día de la Expiación (Lev. 16; cf. Heb. 9:11–14). Como medida del acceso restringido en el nuevo templo, el ángel puede entrar en esta habitación, pero Ezequiel no puede, incluso antes de que la gloria del Señor regrese para establecerse allí (43:1–5).
+
+---
+
+### Ezequiel 41
+Alrededor de los lados norte, oeste y sur del edificio del templo se construyeron habitaciones. Probablemente se usaron para almacenar equipo y las riquezas del templo (cf. 42:13; 1 R. 6:5–10). El segundo y tercer piso están desfasados de modo que cada uno es un codo más ancho que el nivel inferior. El edificio en la parte trasera del templo puede simplemente protegerlo del acceso no autorizado.
+
+---
+
+### Ezequiel 41:18
+Los querubines. Los querubines son como los descritos en los oráculos de juicio anteriores de Ezequiel (nota de 1:5-9). Sin embargo, cuando Esculpidos en relieve, se los representa con dos caras en lugar de cuatro. Estas imágenes tradicionales de los guardaespaldas celestiales del Señor también adornaban el Tabernáculo y templo de Salomón (Éx. 26:1; 1 R. 6:29).
+
+---
+
+### Ezequiel 41:22
+altar. La mesa del pan de la Presencia se describe como un altar solamente aquí, lo que resalta el enfoque de Ezequiel en el templo como un lugar de sacrificio.
+
+---
+
+### Ezequiel 42:1
+Estas habitaciones no deben confundirse con las construidas en el perímetro del edificio del templo mismo (nota 41:5–12). Se encuentran a lo largo de los lados norte y sur del muro que separa los patios interior y exterior, y se utilizan para las actividades que los sacerdotes debían realizar al entrar y salir del patio interior, con su mayor nivel de santidad. Estas normas representan un aumento significativo en el cuidado que se toma para separar lo sagrado de lo profano en comparación con las leyes equivalentes en Levítico (véase 42:20).
+
+---
+
+### Ezequiel 42:20
+El muro. El muro exterior separa el recinto sagrado del secular; véase la nota sobre 40:7. Al terminar donde comenzó, con el muro, Ezequiel se centra en este principio de separación. 500. Quinientos codos es la suma de las longitudes de la puerta exterior norte (50), parte del atrio exterior (100), la puerta interior norte (50), el atrio interior (100), la puerta interior sur (50), parte del atrio exterior (100) y la puerta exterior sur (50). A diferencia del diseño menos regular del tabernáculo y El templo de Salomón, el complejo del templo de Ezequiel, es en sí mismo cuadrado.
+
+---
+
+### Ezequiel 43:1
+El profeta había tenido una visión anterior de la gloria del Señor que se alejaba de la ciudad (10:18–22; 11:22–24); ahora en su visión él presencia su regreso. La gloria viene del este, la dirección hacia donde había partido (11:23). A diferencia de su partida lenta y vacilante, el regreso de la gloria es repentino y rápido, acompañado por el rugido característico de muchas aguas (ver 1:24), lo que lleva al profeta a caer de nuevo sobre su rostro. El Señor llenó el tabernáculo y el templo de Salomón cuando fueron dedicados (Éx. 40:34, 35; 1 R. 8:10, 11; 2 Cr. 5:13, 14; 7:1, 2; cf. Is. 60:1–3). Véase la nota sobre 11:22–24. El templo del período de la restauración, construido por Zorobabel, no se construyó según la visión de Ezequiel. Es una versión reconstruida del templo de Salomón, aunque carece de su esplendor anterior (Esd. 3:12, 13; Hageo 2:3). Sin embargo, Hageo profetiza que la gloria del templo de Zorobabel superará a la del de Salomón (Hageo 2:7–9), porque la presencia de Dios estará allí. En última instancia, esto se cumple en Cristo y su templo, la iglesia.
+
+---
+
+### Ezequiel 43:7
+trono. El templo de Jerusalén se entiende como el lugar donde Dios tenía su trono, donde está entronizado en el Lugar Santísimo sobre el arca, que es el estrado de sus pies (1 Sam. 4:4; 2 Sam. 6:2; 2 R. 19:15; 1 Cr. 13:6; Sal. 80:1; 99:1; 132:13, 14; Is. 6:1; 37:16). Lo significativo de la afirmación es que este templo será el trono del Señor para siempre; los pecados de su pueblo nunca más lo alejarán de su santuario. Los cadáveres de sus reyes. En el pasado, los reyes de Israel profanaron el templo tanto por su adulterio espiritual como por colocar lápidas conmemorativas para los reyes muertos en los terrenos del templo del Dios viviente. En el futuro, los reyes serán colocados en su lugar apropiado a una mayor distancia de la residencia del gran Rey, Dios mismo.
+
+---
+
+### Ezequiel 43:12
+La ley del templo. La visión del templo de Ezequiel es el único cuerpo de ley ritual en la Biblia que no proviene de la boca de Moisés. Al igual que Moisés, Ezequiel recibe esta ley en un monte alto (40:2; Éx. 25:9, 40). Esta ley no pretende sustituir las leyes de Moisés, con las que no puede armonizarse. Más bien, es otra manera de plantear los mismos puntos fundamentales que El templo visionario de Ezequiel. Aquí se describe la teología en forma de legislación.
+
+---
+
+### Ezequiel 43:13
+codos. Véase la nota sobre 40:5. Altar. El altar está construido como una serie de plataformas, cada una más pequeña que la de abajo, similar a una pirámide escalonada o zigurat. Los antiguos rabinos tuvieron muchas discusiones sobre este altar, ya que su construcción contradice el mandamiento de que el altar no debe tener escalones (Éxodo 20:24-26). Los escalones ascienden por el lado este para evitar cualquier repetición del culto al sol en 8:16, donde el pueblo le dio la espalda a Dios. La importancia del aspecto sacrificial de la vida del templo se enfatiza por el enorme tamaño del altar y su ubicación en el centro geométrico de todo el complejo del templo.
+
+---
+
+### Ezequiel 43:18
+arrojando sangre. Véase Éxodo 29:16; Lv. 4:6; 5:9. El nuevo altar debe ser consagrado antes de poder ponerse en uso (2 Cr. 7:8, 9). Un procedimiento similar se siguió cuando se consagró el altar del templo de Salomón.
+
+---
+
+### Ezequiel 43:19
+La familia de Sadoc. Véase la nota sobre 44:15.
+
+---
+
+### Ezequiel 43:21
+afuera. Véase Éxodo 29:14; Levítico 4:12, 21; 8:17; 9:11; 16:27. El escritor de Hebreos interpreta estas instrucciones como una Aspecto de la ofrenda de Cristo de sí mismo (Hebreos 13:11-13).
+
+---
+
+### Ezequiel 44:1
+cerrada. El profeta ha estado en el atrio interior (43:5), pero ahora es llevado a la puerta oriental. Esa puerta permanecerá cerrada porque la gloria del Señor ha entrado en el templo a través de ella (v. 2; 43:4; cf. Sal. 24:7–10). El hecho de que la puerta esté cerrada también puede implicar que el Señor nunca más abandonará el templo (43:7, 9).
+
+---
+
+### Ezequiel 44:3
+El príncipe. Puesto que la puerta está cerrada, la entrada se convierte en una habitación; en esta habitación se le permitirá al príncipe comer su porción de las comidas sacrificiales. En la visión de Ezequiel representa la relación especial que el rey prometido mantendrá con el Señor. Véase la nota sobre 37:24.
+
+---
+
+### Ezequiel 44:4
+Aunque algunas porciones del AT enfatizar las restricciones a la participación de extranjeros en el culto de Israel (Éx. 12:43; Lev. 22:25; Neh. 9:2; Jer. 51:51), otros pasajes anticipan la participación de extranjeros (47:22, 23; cf. 1 R. 8:41, 43; 2 Cr. 6:32, 33; Is. 56:3, 6–8; cf. Zac. 14:21; Efe. 2:12, 19). Restricciones similares para los extranjeros caracterizan otros escritos del período posterior al exilio babilónico (Esd. 4:1–20). 3; 10:10–44; Neh. 13:1–9; Hag. 2:14). La cuestión en este pasaje no es simplemente que estas personas sean extranjeras, sino que son incircuncisas, es decir, no han llegado a ser parte del pueblo de Dios. Lo más probable es que esto se refiera a la práctica de utilizar mercenarios extranjeros para proteger el templo (2 R. 11:14–19), un papel que el Señor asigna específicamente a los levitas (Nm. 1:53). En el Nuevo Israel del nuevo pacto, la iglesia, todas esas distinciones entre judíos y gentiles han sido eliminadas, ya que judíos y gentiles juntos llegan a ser parte del nuevo pueblo de Dios en Cristo (Ef. 2:11–18; 3:6).
+
+---
+
+### Ezequiel 44:10
+Las tareas que habían sido delegadas erróneamente a extranjeros incircuncisos serán nuevamente realizadas por los levitas (Núm. 1:50–53; 3:6, 8, 28–32; 1 Cr. 23:24–32; 2 Cr. 8:14, 15). Aunque los levitas estaban involucrados en el pecado de idolatría del pueblo y por lo tanto no podían entrar al atrio interior como lo hacían los sacerdotes, aun así conservaban un papel importante. El sacerdocio en sí estaba restringido al linaje de Sadoc, quien había perseverado en la fidelidad a Dios (v. 15; 40:45, 46). La recompensa por esa fidelidad pasada es un acceso más cercano a la presencia de Dios, mientras que los que fueron infieles se mantienen a distancia del Señor.
+
+---
+
+### Ezequiel 44:15
+Sadoc. Sadoc sirvió como sumo sacerdote junto a Abiatar durante el reinado de David (2 Sam. 15:24–29; 20:25). Abiatar fue destituido porque apoyó a Adonías contra Salomón (1 R. 1:7; 2:26), pero Sadoc apoyó a Salomón y se convirtió en el único sumo sacerdote. Anteriormente, el sacerdocio había estado restringido entre los levitas a los descendientes de Aarón (Éx. 28:1; Lev. 8:2–7; 9:1–24; Núm. 20:25–28; 1 Cr. 6:48–53), y Ezequiel prevé una restricción adicional para una familia de Aarón.
+
+---
+
+### Ezequiel 44:17
+El corolario de un mayor acceso para los sacerdotes sadoquitas es una mayor responsabilidad en la santidad ritual. Su comportamiento está regulado mucho más estrictamente que el del pueblo en general. Tienen que vestir solo lino en lugar de lana para no contaminarse con la emisión de sudor. No pueden entrar en contacto con el reino de los muertos, Los sacerdotes no deben beber vino cuando están de servicio, ya sea por contacto con un cadáver o por observar prácticas rituales de duelo (véase Lev. 21:1-12). Los sacerdotes no deben beber vino cuando están de servicio, ya que los errores sacerdotales pueden tener consecuencias fatales (véase Lev. 10:9). Pueden casarse solo con una virgen o la viuda de un sacerdote, de modo que no haya dudas sobre el linaje sacerdotal de los hijos del matrimonio. Una vez más, el profeta insiste en una distinción radical entre lo santo y lo común, lo inmundo y lo limpio (v. 23).
+
+---
+
+### Ezequiel 44:24
+jueces. Para el papel judicial de los sacerdotes, véase 1 Crónicas 26:29; 2 Crónicas 19:8–11.
+
+---
+
+### Ezequiel 44:28
+Yo soy su herencia. El resto de Israel recibirá una parte de la Tierra Prometida reasignada (véase 47:13- 48:35), pero los sacerdotes no recibirán ninguna parte propia, ya que el Señor es su herencia. Se les debe proveer por medio de las ofrendas y sacrificios regulares que se hacen en el templo.
+
+---
+
+### Ezequiel 44:31
+comed de todo lo que esté muerto. La prohibición de comer carne de un animal hallado muerto forma parte de la separación radical de los sacerdotes del reino de la muerte.
+
+---
+
+### Ezequiel 45:1
+La distribución de la tierra se tratará con mayor detalle en el capítulo 47. El tema aquí son los recintos sagrados, donde vivirán los sacerdotes y los levitas. Ezequiel describe un área sagrada en el centro de la tierra, un cuadrado de 25.000 codos (aproximadamente 13 km) de lado, subdividido a su vez en tres franjas de tierra (cf. Ap. 21:16). La zona norte (aproximadamente 25 En la zona central de la ciudad (que abarca una superficie de 12 kilómetros cuadrados, 65 kilómetros cuadrados) se reserva para el uso de los levitas. La zona central contiene el santuario y está reservada para los sacerdotes. La zona sur, que tiene aproximadamente la mitad del tamaño de las otras dos, se le da a la ciudad misma. El área al este y al oeste de los 12 kilómetros cuadrados se le da al príncipe, mientras que el área al norte y al sur se debe dividir entre las otras tribus. Es interesante que en la visión de Ezequiel el templo mismo está fuera de la ciudad propiamente dicha, manteniendo una zona de amortiguación contra la profanación de lo sagrado por la entrada de lo profano. El elemento clave en la restauración de la tierra es mantener la pureza necesaria para que el Señor habite en medio de su pueblo. También es el Señor quien distribuye la tierra, no los príncipes.
+
+---
+
+### Ezequiel 45:9
+La responsabilidad principal del príncipe era establecer la justicia y la rectitud entre el pueblo. Al príncipe se le asignaban tierras suficientes para satisfacer sus propias necesidades y sostener el ministerio del templo sin ser una carga para el pueblo. Las medidas que utiliza para recolectar los diezmos y las ofrendas del pueblo para el templo deben ser justas, en lugar de ajustar las balanzas para asegurarse ganancias. Al parecer, el uso de pesas y balanzas falsas era común antes del exilio (Levítico 19:35, 36; Deuteronomio 25:13-16; Proverbios 12:1-13). 11:1; Amós 8:5; Miqueas 6:10-12).
+
+---
+
+### Ezequiel 45:11
+homer. Diez batos o efas hacen un homer, o aproximadamente cincuenta galones (190 L).
+
+---
+
+### Ezequiel 45:12
+siclo... mina. Un siclo equivale aproximadamente a dos quintas partes de una onza (11 g); una mina de sesenta siclos equivale aproximadamente a una libra y media (0,7 kg). La mina normalmente equivale a cincuenta siclos.
+
+---
+
+### Ezequiel 45
+Los príncipes de Israel también son responsables de hacer ofrendas en nombre del pueblo (vv. 13-17). El pueblo dará ofrendas en especie al príncipe, quien a su vez las proporcionará al santuario (cf. 2 Jn 1:13-17). Crónicas 30:24). Véanse las notas sobre 37:24; 44:3. Estas regulaciones cubren aspectos de las observancias ceremoniales del Día de Año Nuevo (vv. 18-20), la Pascua (vv. 21-22), 24) y Tabernáculos (v. 25) en el séptimo mes. Esta legislación representa modificaciones dramáticas de la práctica litúrgica anterior, reemplazando las tres festividades distintivas del calendario mosaico con dos festividades que son prácticamente idénticas. El enfoque central de ambas festividades es la purificación del pecado, un tema central en estos capítulos.
+
+---
+
+### Ezequiel 45:19
+altar. Compárese con la consagración del altar en Éxodo 29:35-37.
+
+---
+
+### Ezequiel 45:24
+hin. Medida líquida de aproximadamente un galón (3,6 L).
+
+---
+
+### Ezequiel 46:2
+príncipe. Al príncipe se le permitirá entrar hasta el umbral interior de la puerta oriental en el atrio interior en los días festivos; en los demás días entrará y saldrá con el pueblo común (vv. 9, 10) a menos que esté haciendo una ofrenda voluntaria (v. 12). El príncipe tiene privilegios especiales con referencia a la puerta oriental en el patio exterior (44:1 nota; 44:3 nota), aunque nada como el control sobre la adoración ejercido por los reyes antes del exilio babilónico (p. ej., 2 R. 16:10-12). Desde su posición privilegiada en el umbral de la puerta interior, el príncipe tendrá una vista completa del patio interior y el gran altar; pero la entrada al patio interior está restringida a los sacerdotes y levitas. En contraste, la gente común debe ofrecer su adoración fuera de la puerta de entrada al patio interior, separada de este por ocho escalones y un corredor de noventa pies de largo.
+
+---
+
+### Ezequiel 46:4
+holocausto. Las especificaciones para esta ofrenda difieren de las ofrendas del sábado en Números 28:9, donde se requieren dos corderos y ningún carnero.
+
+---
+
+### Ezequiel 46:6
+día de la luna nueva. El primer día del mes. Las especificaciones nuevamente difieren de la legislación anterior (Núm. 28:11).
+
+---
+
+### Ezequiel 46:10
+El príncipe entrará con ellos. El príncipe acompaña al pueblo cuando pasa por el templo, actuando como su representante en la adoración.
+
+---
+
+### Ezequiel 46:13
+diariamente. Mientras que la mayoría de las normas anteriores se refieren a las ofrendas en días particulares del calendario litúrgico del AT, Dios debe ser adorado todos los días en Israel (vv. 13–15). Las disposiciones para estas ofrendas diarias difieren de la práctica anterior (Núm. 28:3–8; 2 R. 16:15; 1 Cr. 12:1-13). 16:40; 2 Crónicas 13:11; 31:3). La imagen de la comida de estos sacrificios representa la comunión y el compañerismo en la mesa habitual entre el Señor y su pueblo.
+
+---
+
+### Ezequiel 46:16
+Al redimir a Israel de Egipto y luego de Babilonia, Dios los sacó del lugar de esclavitud pero también les aseguró una herencia en su propia tierra. Se suponía que la tierra era inalienable (Levítico 25:14-17, 23, 24; 1 Reyes 21), lo que representaba la permanencia de la redención y la herencia que Dios proveyó (1 Pedro 1:4). Estos versículos abordan la tentación, antes común, del príncipe de adquirir tierras adicionales para proveer para sus hijos o recompensar a sus siervos leales, y así oprimiendo a la gente común.
+
+---
+
+### Ezequiel 46:17
+año de libertad. Muy probablemente una referencia hasta el año del jubileo (Lev. 25:8–17; 27:24; Is. 61:1, 2).
+
+---
+
+### Ezequiel 46:20
+Hornear. El culto del AT combina el sacrificio y la oración con la comida y la actividad social. Estas normas especifican los lugares donde los levitas preparan las ofrendas para las comidas sacrificiales que comen los adoradores. El recorrido por el templo termina donde comenzó, en la parte exterior del atrio exterior.
+
+---
+
+### Ezequiel 47:1
+El atrio del tabernáculo tenía una gran pileta o lavatorio donde se lavaban los sacerdotes (Éx. 30:17-21). El templo de Salomón albergaba un mar mucho más grande (1 R. 7:23-26). Este mar se utilizaba para el lavado ritual (2 Cr. 4:6), pero también simbolizaba el océano primigenio, que ya no era un símbolo amenazador del caos (28:2 nota), sino que Dios lo sometió al servicio de su templo. En la visión del templo de Ezequiel, estas fuentes anteriores son reemplazadas por un río dador de vida (Ap. 21:1; 22:1, 2). La fuente del tabernáculo y el mar del templo están al sur del altar en el atrio del santuario; el río también se origina al sur del altar. Este pasaje debe compararse con otros que hablan de un río en la ciudad de Dios (Sal. 46:4) o describen la erupción de un arroyo en la ciudad (Joel 3:18; Zac. 14:3-8). Dado que el templo simboliza en parte el paraíso, el río de Ezequiel Recuerda los ríos que brotaban del jardín del Edén (Gén. 2:10-14).
+
+---
+
+### Ezequiel 47:3
+El río trae vida dondequiera que pasa, transformando a Israel en un jardín paradisíaco. Da vida incluso a las aguas saladas sin vida del Mar Muerto, recordando la transformación de los huesos secos en el capítulo 37. Es más, este río sobrenatural crece dramáticamente desde pequeños comienzos hasta convertirse en un poderoso torrente que es imposible de cruzar. Los exiliados deben notar esto y recordar que la obra de Dios a menudo comienza de maneras pequeñas pero culmina en grandeza (Zac. 4:10; Mt. 13:31, 32). Jesús apeló a las imágenes utilizadas en este pasaje para describirse a sí mismo. Le dijo a la mujer samaritana que Él es la fuente del agua que da vida (Juan 4:10-14). Cuando los discípulos se sorprendieron de que Jesús estuviera hablando con una mujer samaritana, les habló de una cosecha interminable que ya había comenzado (Juan 4:27-38), aprovechando La imagen de Ezequiel de los árboles que producen doce cosechas al año. Juan también registra la diciendo que Él es la fuente de corrientes de agua viva, añadiendo el comentario de que Jesús estaba hablando del Espíritu de Dios (Juan 7:37–39).
+
+---
+
+### Ezequiel 47:10
+En-gadi... Eneglaim. De un lado al otro del Mar Muerto. Una señal de la nueva vida en el mar es la abundancia de peces donde antes no los había.
+
+---
+
+### Ezequiel 47:11
+pantanos y ciénagas. Los pantanos y ciénagas se dejarán para la sal. La sal es un producto útil y bajo el antiguo pacto se usa a menudo en ceremonias de celebración de pactos debido a su carácter inmutable.
+
+---
+
+### Ezequiel 47:13
+José tendrá dos porciones. En la visión de Ezequiel, la tierra será dividida equitativamente entre las doce tribus. Puesto que la tribu de Leví recibe su herencia territorial dentro del recinto sagrado de Jerusalén (nota 45:1–8), el número doce se mantiene sustituyendo a José por los dos hijos de José, Efraín y Manasés (Gén. 48:1–6). Israel y Judá ahora está reunida en una sola nación (ver 37:15–28).
+
+---
+
+### Ezequiel 47:14
+vuestra herencia. Esta es la tierra que Dios prometió a los patriarcas (Gén. 12:7; 15:18-21; 22:17; 28:4), y que fue poseída durante los reinados de David y Salomón (1 R. 8:65; 1 Cr. 13:5; 2 Jn. 1:13). Crónicas 9:26).
+
+---
+
+### Ezequiel 48:1
+En la visión de Ezequiel, la distribución de la tierra entre las tribus es diferente de lo que era antes del exilio. A cada tribu se le asigna una franja horizontal de tierra que conecta con las fronteras oriental y occidental, alineada con el eje sagrado este-oeste del templo. Los estatus de las esposas de Jacob y de las tribus individuales parecen ser los factores determinantes en la disposición de las tribus (cf. Nm. 2, 3). Las tribus más septentrionales (Dan, Aser y Neftalí) están tradicionalmente ubicadas en el norte; la tribu más meridional (Gad, v. 27) es históricamente una tribu del norte. Estas cuatro tribus son los hijos de la sierva de Lea, Zilpa, y de la sierva de Raquel, Bilha (Gn. 30:3–8, 10–13); como tales, están ubicadas en los extremos exteriores de las asignaciones tribales en la visión de Ezequiel. Judá es la tribu más cercana al norte del área sagrada en el centro de la tierra (vv. 8– 22; 45:1–8). Judá es históricamente una tribu del sur; al presentar a la tribu de David como parte de las tribus del norte, Ezequiel puede estar diciendo en efecto que el Norte tendrá una porción en David (cf. 2 Sam. 20:1; 1 R. 12:16; 2 Cr. 10:16). Judá está en el lugar de honor que normalmente pertenece al primogénito, Rubén. Rubén se encuentra inmediatamente al norte de Judá. A continuación se encuentran las dos tribus de José, Efraín y Manasés, descendientes de Jacob a través de su esposa favorita, Raquel. La tribu más cercana al sur del área sagrada es Benjamín. Su lugar privilegiado refleja el estatus privilegiado de Raquel y equilibra la posición privilegiada de las tribus de José en el norte. Las tres tribus restantes del sur (Simeón, Isacar y Zabulón) son descendientes de Lea. Históricamente, Isacar y Zabulón tienen asignaciones en el norte.
+
+---
+
+### Ezequiel 48:8
+Esta descripción es una ampliación de 45:1–8. La extensión de la descripción de esta porción única en comparación con la breve descripción de las porciones para las tribus resalta su importancia central. La franja sagrada no está en el centro geográfico de la tierra, ya que hay siete tribus al norte y cinco al sur. No obstante, el centro espiritual de la La tierra se ha movido considerablemente al norte de la antigua ubicación en Jerusalén.
+
+---
+
+### Ezequiel 48:11
+hijos de Sadoc. Véase la nota sobre 44:15.
+
+---
+
+### Ezequiel 48:30
+La ciudad tiene doce puertas que llevan el nombre de las doce tribus (cf. Ap. 21:12–14). El enfoque en las salidas de la ciudad subraya el tema del acceso que recorre estos capítulos. Dado que una puerta lleva el nombre de Leví, Efraín y Manasés son reemplazados por su padre José. Curiosamente, las tres puertas más importantes están orientadas al norte, en lugar de al este, para poder abrirse hacia el templo. La ciudad es un símbolo visible de unidad para la doce tribus, y presumiblemente contiene residentes de cada tribu.
+
+---
+
+### Ezequiel 48:35
+El Señor está allí. La ciudad que solía ser conocida como Jerusalén ahora recibe un nuevo nombre que coincide con su estado transformado. Desde el comienzo del Antiguo Testamento, Dios reveló su intención de estar con su pueblo. Caminó y habló con ellos en el jardín del Edén y habitó en santuarios construidos en medio de ellos. La promesa de un niño llamado Emanuel señala un día en el que Dios estaría “con nosotros” (nota del texto de Is. 7:14). El NT termina de la misma manera que termina el libro de Ezequiel. Juan también describe la ciudad de Dios y un tiempo en el que Dios vivirá cara a cara con los seres humanos (Ap. 21:3); termina con la oración: “Amén. Ven, Señor Jesús” (Ap 22,20).
+
+---

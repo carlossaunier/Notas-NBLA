@@ -1,0 +1,1596 @@
+# Notas de Estudio - Deuteronomio
+
+### Deuteronomio 1:1
+Estos versículos introductorios preparan el escenario, identificando a Moisés y las circunstancias de sus discursos al pueblo justo antes de morir y de que el pueblo cruzara el Jordán. 1:1 Más allá del Jordán. Véase Introducción: Autor. El Arabá frente a Suph. La ubicación exacta es incierta, pero en conjunto, la descripción apunta a la región de Moab. Este Arabá o “llanura” Se extiende a lo largo del borde oriental de Palestina desde el mar de Galilea hacia el sur hasta el golfo de Aqaba. Suph, que significa “juncos”, puede referirse a un lugar en Moab cerca del río Arnón. Los nombres de Parán y Hazerot se mencionan durante los viajes de Israel en la península del Sinaí (Núm. 10:12; 11:35; 12:16; 33:17), pero no está claro si son los mismos lugares que se mencionan aquí. Tofel, Labán y Dizahab solo se mencionan aquí.
+
+---
+
+### Deuteronomio 1:2
+Once días de viaje. La distancia entre Horeb y Cades-barnea es de aproximadamente 240 kilómetros. Los israelitas fueron por el camino del monte Seir, lo que probablemente significa que viajaron parte del tiempo a lo largo del valle al norte de Ezión-geber, un viaje de 175 kilómetros. millas (280 km) o más. Llegaban en poco tiempo si toda la nación llegaba en once días. Pero el “viaje de once días” podría ser una expresión convencional para la distancia involucrada en lugar del tiempo empleado en este viaje en particular.
+
+---
+
+### Deuteronomio 1:3
+El año cuarenta. Esta fecha (cuarenta años desde el éxodo de Egipto) sirve para fijar el tiempo del libro en su conjunto. Los años del juicio divino han terminado (Núm. 14:33, 34), e Israel se prepara para entrar en la Tierra Prometida. Este período de cuarenta años incluyó treinta y ocho años en el desierto, seguidos de dos años para la conquista de Transjordania (2:14).
+
+---
+
+### Deuteronomio 1:4
+Sehón ... Og. La conquista de Transjordania se detalla en 2:24–3:11. Hesbón. El nombre se ha conservado en el actual Tell Hesbán, situado en Transjordania, a unas treinta y cinco millas (56 km) al este de Jerusalén. Las excavaciones exhaustivas no han descubierto restos en Hesbán de la época de Moisés (es decir, del siglo XIV a. C.). Es posible que un montículo cercano que sí contenga Los restos del siglo XIV son el Hesbón de la época de Moisés. Edrei. El nombre probablemente se conserve en el nombre de la ciudad de la moderna Dera, en la frontera entre Siria y Jordania, que sí tiene ruinas de este período.
+
+---
+
+### Deuteronomio 1:5
+en la tierra de Moab. Los israelitas están acampados en las llanuras de Moab (p. ej., Nm. 22:1; 26:3, 63), también llamada “la tierra de Moab” (p. ej., Dt. 29:1; 32:49). Esto probablemente se refiere a la región al norte del Mar Muerto y al este del río Jordán. Este territorio alguna vez fue parte de Moab, pero Sehón el amorreo expulsó a los moabitas hacia el sur antes de la llegada de Israel (Nm. 21:26). Jefté relata esta historia en Jue. 11:14-27. para explicar esta ley. A punto de entrar en la tierra prometida, Moisés, como su líder durante los últimos cuarenta años, explica a los israelitas las obligaciones que deben cumplir como pueblo del pacto de Dios. El término "ley" traduce la palabra hebrea torá , que tiene la connotación de enseñanza o instrucción. El término español "ley" es demasiado limitado para ser una traducción exacta, ya que gran parte del material expuesto por Moisés no está formulado como legislación. Las obligaciones del pacto no se limitan a las leyes. Debido a que Moisés explica al pueblo las obligaciones dadas en el Monte Sinaí, gran parte del libro de Deuteronomio suena como un sermón con exhortación a obedecer lo que se enseña.
+
+---
+
+### Deuteronomio 1:6
+Moisés repasa la historia de Israel antes de esta ocasión de ratificación del pacto. Ofrece un diario de viaje de los movimientos de la nación desde la región del Sinaí hasta Horma, luego al Arnón y hasta la zona de Transjordania. Este segmento del libro concluye con una descripción general del pacto que ahora debe renovarse con la generación nacida en el desierto. 1:6 Horeb. Nombre de la zona que rodea al monte Sinaí y que lo incluye. El nombre Sinaí casi siempre tiene la designación de “monte” o “desierto”. Horeb solo tiene una vez la designación de “monte” (Éx. 33:6), y probablemente denota una región más grande que la que abarca el término Sinaí.
+
+---
+
+### Deuteronomio 1:7
+la tierra de los cananeos. Estas fronteras de la Tierra Prometida fueron dadas a Abraham en Génesis 15:17-21. La promesa a Abraham incluía expulsar a los cananeos y a las demás naciones (Gén. 15:14).
+
+---
+
+### Deuteronomio 1
+CABALLERO Juró. El juramento solemne de Dios de dar la tierra a los descendientes de Abraham se menciona al menos seis veces en Génesis y se encuentra al menos veinticinco veces en Deuteronomio (también se menciona en Éxodo, Levítico y Números). Deuteronomio anticipa que los israelitas muy pronto comenzarán a tomar posesión de la tierra de Canaán.
+
+---
+
+### Deuteronomio 1:13
+Escoged... hombres sabios. Una referencia al episodio en el que Moisés siguió el buen consejo de Jetro, su suegro (Éx. 18:24-26). Durante el año en el monte Sinaí, Moisés, bajo la dirección de Dios, organizó el sistema judicial y el culto de la nación. Con respecto a los jueces, véase 16:18; 17:8-13; 19:17.
+
+---
+
+### Deuteronomio 1:19
+Cades-barnea. El lugar se llamaba simplemente “Cades” en Números 13:26. Cades significa “lugar santo”, y sin duda los habitantes originales dieron ese nombre a muchos lugares supuestamente sagrados. Este lugar se llamaba Cades-barnea para distinguirlo de otros lugares similares. lugares (por ejemplo, en Judá, Josué 15:23; en Neftalí, Jueces 4:6).
+
+---
+
+### Deuteronomio 1:26
+Pero se rebelaron. Este relato del fracaso del pueblo en Cades es muy similar al relato de Números 13.
+
+---
+
+### Deuteronomio 1:28
+Los anaceos. El nombre “Anak” Aparece en textos egipcios de principios del segundo milenio como el nombre de un gobernante de Palestina. Probablemente esté relacionado con el Anac bíblico, cuyos descendientes vivían en Hebrón (Núm. 13:22). Eran más altos que los israelitas y eran temidos por su destreza militar. Josué los conquistó y sus remanentes se unieron a los filisteos (Jos. 12:21, 22).
+
+---
+
+### Deuteronomio 1:33
+en el fuego de la noche. La mención de la columna de fuego y la nube se refiere a Éxodo 13:21, donde la columna los guió fuera de Egipto, y especialmente a Números 9:15-23, que habla de la guía del Señor a lo largo de todo el viaje por el desierto.
+
+---
+
+### Deuteronomio 1:37
+Aun conmigo el CABALLERO era enojado. La mención de la condenación de la generación perdida recuerda que Dios también estaba disgustado con Moisés y se negó a permitirle entrar en Canaán (32:51; Núm. 20:9–11 nota; 27:14). Josué, un espía fiel, continuaría como líder (Núm. 27:12–23).
+
+---
+
+### Deuteronomio 1:46
+en Cades muchos días. Poco se dice en Números o Deuteronomio acerca de los cuarenta años de tiempo perdido. Números da ejemplos de las rebeliones del pueblo contra Moisés (Núm. 16; 17). Es probable que la lista de los peregrinajes en Núm. 33:18-49, después de que dejaron Hazerot y el desierto de Parán, indique dónde se instaló el tabernáculo y se quedó el núcleo del pueblo. En cuanto a la mayoría rebelde, es posible que hayan avivado Salieron con sus rebaños a la península del Sinaí en busca de forraje. DEUTERONOMIO 1:46
+
+---
+
+### Deuteronomio 2:1
+dirección del Mar Rojo. Dado que el término “Mar Rojo” podría incluir el Golfo de Aqaba (nota de Éxodo 13:18), es probable que éste fuera el camino del desierto hacia el golfo. recorrimos el monte Seir. O “rodeamos el monte Seir”. Los israelitas vivieron una vida nómada en el desierto.
+
+---
+
+### Deuteronomio 2:4
+vuestros hermanos, el pueblo de Esaú. Como se explica en el versículo 8 y en Números 20:14-21, los edomitas se negaron a pasar pacíficamente, por lo que Israel rodeó su territorio. Deuteronomio añade al relato de Números que esta fue la orden del Señor. Los edomitas estaban relacionados con Israel en ascendencia (Gén. 25:25, 26).
+
+---
+
+### Deuteronomio 2:8
+de Elat y Ezión-geber. En Números 33:43, 44 se mencionan paradas en Punón, Obot e Iye-abarim. Punón probablemente sea la moderna Feinan, en el valle al sur del Mar Muerto, donde hay un buen manantial. Israel está pasando por alto a Edom y Moab y atacará Canaán desde la puerta oriental.
+
+---
+
+### Deuteronomio 2
+Los emitas... los horeos. Sabemos poco acerca de estos antiguos habitantes de Transjordania, pero sus nombres aparecen en Génesis 14, el informe de la incursión de los reyes orientales por toda esta zona en los días de Abraham. Los emitas, también llamados refaítas (o “gigantes”), vivían donde más tarde vivió Moab; los zomzomeos, también llamados refaítas, vivían donde más tarde vivieron los amonitas; y los horeos precedieron a los edomitas (vv. 10-12, 20-23). Esta observación de que los emitas y los zomzomeos son altos como los anaceos (pero que, no obstante, habían sido conquistados) eleva la moral de Israel, que todavía tiene que conquistar a los anaceos (la terminación -im de tales nombres es el sufijo plural hebreo) en este momento. punto. La identidad de los horeos es desconcertante. Un pueblo importante de la antigüedad en Mesopotamia eran los hurritas (un equivalente del término hebreo traducido “Horita”). Algunos horitas de Canaán parecen tener nombres hurritas, pero su relación con los hurritas no está clara.
+
+---
+
+### Deuteronomio 2:12
+posesión, que el CABALLERO les dio. Esta frase parece ser una inserción posterior después de que Israel conquistó Canaán, pero Moisés podría haberla pronunciado después de la importante conquista de Transjordania y asentamiento de las dos tribus y media que allí habitan.
+
+---
+
+### Deuteronomio 2:14
+treinta y ocho años. Véase la nota sobre 1:3. como el CABALLERO había jurado. Otra clara referencia a Números, donde Dios juró que la generación infiel moriría en el desierto (Núm. 14:21–23).
+
+---
+
+### Deuteronomio 2:19
+El pueblo de Amón. El parentesco con Amón, al igual que con Moab y Edom, ha sido recordado desde hace mucho tiempo hasta este punto (Gén. 19:37, 38).
+
+---
+
+### Deuteronomio 2:23
+Los aveos. No sabemos nada de este pueblo. Si la Gaza mencionada es la misma que la Gaza del sudeste de Canaán, entonces Moisés la menciona aquí sólo como parte de su estudio de las anteriores dislocaciones de pueblos. Los Caftorim. Si Caftor se refiere a Creta, como es habitual, entonces la referencia es a una comunidad filistea temprana y probablemente local (antes de la gran invasión filistea posterior de alrededor de 1200 a. C.), de la que tal vez era miembro el Abimelec de Génesis 20 (cf. Jeremías 47:4).
+
+---
+
+### Deuteronomio 2:25
+El temor de vosotros. Israel debía comenzar su conquista, pero el pueblo debía recordar que es Dios quien va delante de ellos. Este debía ser el énfasis del pueblo de Dios para siempre (cf. Sal. 44:3).
+
+---
+
+### Deuteronomio 2:27
+Déjame pasar. La misma oferta que se le dio a Edom y Moab. Sin embargo, aquí era la voluntad de Dios que Israel conquistara el territorio. Sehón rechazó la oferta de Moisés, pero Dios tenía el control soberano como lo había tenido con Faraón (Éx. 4:21). La resistencia de Sehón se convirtió en la oportunidad de Israel.
+
+---
+
+### Deuteronomio 2:32
+en Jahaz. A unos once kilómetros al sur de Hesbón, Sijón fue derrotado y su territorio conquistado. Las ciudades fueron puestas bajo la prohibición (es decir, Israel no dejó sobrevivientes, v. 34; Lev. 27:28). Nota). El efecto calculado de la prohibición en tiempos antiguos era hacer que los habitantes de una zona huyeran sin oponer resistencia. A Israel se le ordenó no usar este procedimiento excepto en su conquista de Canaán y Transjordania (20:10-15), donde la nación santa sería corrompida por la influencia de la cultura pagana restante (Sal. 106:34- 39). El nombre de la ciudad de Jahaz se encuentra en la Piedra Moabita del siglo IX a. C. Mesha, rey de Moab, relata cómo capturó la ciudad de los israelitas.
+
+---
+
+### Deuteronomio 3:1
+Og, rey de Basán. Basán era una región fértil situada al este del Jordán y del mar de Galilea, que se extendía desde el río Yarmuk en el sur hasta el monte Hermón en el norte. Hoy es una tierra de trigo, y en la antigüedad era famosa por su ganado y sus rebaños (Sal. 22:12; Deut. 32:14). El botín de esta zona debe haber parecido un tesoro para los israelitas nómadas.
+
+---
+
+### Deuteronomio 3:8
+Más allá del Jordán, en el lado oriental del río. Este territorio era más de la mitad del tamaño de Canaán. Desde el río Arnón hasta el monte Hermón hay aproximadamente 150 millas (240 km). DEUTERONOMIO 3:8
+
+---
+
+### Deuteronomio 3:9
+Sirión... Senir. Ambos términos para el monte Hermón aparecen en textos antiguos cananeos y mesopotámicos.
+
+---
+
+### Deuteronomio 3:11
+Un lecho de hierro. El lecho de Og, de 4,1 x 1,8 m de largo por 1,8 m de ancho, sugiere que era un gigante y que su pueblo, los refaítas, también eran gigantes (nota de 2:10-12). La palabra traducida como “lecho” es poco común y podría ser un eufemismo para referirse a un sarcófago lo suficientemente grande como para contener objetos de la tumba. La referencia al “hierro” puede significar solamente que estaba unido o adornado con hierro, un material nuevo en esta fecha (antes del comienzo de la Edad del Hierro, alrededor del 1200 a. C.). Véase la nota sobre 8:9.
+
+---
+
+### Deuteronomio 3:12
+los rubenitas y los Gaditas. Estas tribus recibieron la parte sur de la Transjordania conquistada. Área escasamente poblada en el período moderno, pero con mayor densidad de población en la antigüedad.
+
+---
+
+### Deuteronomio 3:13
+La media tribu de Manasés. La mitad norte de Galaad, comenzando cerca de Saretán, y todo Basán pertenecían a esta media tribu.
+
+---
+
+### Deuteronomio 3:14
+Jair el manasita. Manasés tuvo un solo hijo, Maquir, y un hijo, Galaad, que tuvo muchos descendientes (Núm. 26:29-34). La conquista de Jair, quien debe haber sido uno de los descendientes de Galaad, se menciona en Números 32:41.
+
+---
+
+### Deuteronomio 3:18
+Todos tus hombres valientes serán Cruz. Nótese la unidad requerida. Nadie puede establecerse hasta que todas las tribus hayan conquistado su herencia. Los detalles se dan en Números 32. Véase el cumplimiento de la promesa en Josué 22.
+
+---
+
+### Deuteronomio 3:22
+CABALLERO Tu Dios... lucha para ti. Cuando Moisés le pasó la orden a Josué (Números 27:12-23), él Enfatizó la promesa: el Señor dará la victoria.
+
+---
+
+### Deuteronomio 3:23
+El relato de Moisés de su oración en el valle frente a Bet-peor es instructivo (vv. 24, 25). Muestra su conocimiento de la ira del Señor a causa de su pecado en Meriba (Núm. 20:12), y su conocimiento de que Dios no “guarda para siempre su enojo” (cf. Sal. 103:9). En la oración, Moisés reconoció el poder soberano de Dios y pidió misericordia. DEUTERONOMIO 3:23
+
+---
+
+### Deuteronomio 3:29
+Bet-peor. Significa “Casa de Peor”. Véase la nota sobre 4:3.
+
+---
+
+### Deuteronomio 4:1
+estatutos... reglas. “Estatutos” puede incluir regulaciones concernientes a la adoración (por ejemplo, Éxodo 12:24, la Pascua); “reglas” Denota leyes de casos (Éxodo 21:1–22:20).
+
+---
+
+### Deuteronomio 4:2
+No añadirás nada. Las instrucciones de Dios a Moisés deben ser consideradas sagradas y mantenerse inviolables (12:32). La certificación similar en Apocalipsis 22:18, 19, que muy posiblemente se basa en esta prohibición de Deuteronomio.
+
+---
+
+### Deuteronomio 4:3
+Baal-peor. Una terrible advertencia. La referencia es a Números 25, que detalla la idolatría en Baal-peor que Dios Juzgado por matar a veinticuatro mil personas.
+
+---
+
+### Deuteronomio 4:6
+los pueblos. La fidelidad de Israel será un testimonio para el mundo de que Dios está cerca de su pueblo y que sus exigencias morales son justas.
+
+---
+
+### Deuteronomio 4:9
+Y las harás saber a tus siervos. Los hijos. Deuteronomio enfatiza la responsabilidad pactal de los padres para con sus hijos (6:7; 11:19). Esta preocupación pactal por los hijos continúa en el NT. (Mateo 19:14 nota; Hechos 2:39; Efesios 6:4).
+
+---
+
+### Deuteronomio 4:10
+cómo en el día en que te presentaste. Una referencia a la gran teofanía (autorrevelación visible de Dios) en el Monte Sinaí. El monte Sinaí, registrado en Éxodo 19:9–20:19, fue una experiencia inolvidable.
+
+---
+
+### Deuteronomio 4:13
+Los Diez Mandamientos. Este título se usa también en 10:4 y Éxodo 34:28. La mayoría de los protestantes suelen dividirlos en cuatro mandamientos que tratan sobre el deber hacia Dios y seis sobre el deber hacia el hombre. Los católicos romanos unen el primero y el segundo y dividen el décimo, lo que da como resultado una división de tres y siete. El mandamiento sobre el sábado es fundamental: se refiere a Dios y es para el beneficio tanto de las personas como de los animales (Marcos 2:27). Los primeros tres mandamientos se refieren exclusivamente a Dios; los últimos seis se refieren a los seres humanos.
+
+---
+
+### Deuteronomio 4:15
+No viste figura alguna. Dios es Espíritu trascendente (Juan 4:24), lo que descarta cualquier representación idólatra de la naturaleza divina en forma de objetos animados (vv. 16-18) y cualquier adoración del orden creado (v. 19).
+
+---
+
+### Deuteronomio 4:20
+El horno de hierro. Un horno caliente utilizado para fundir el hierro, lo que constituye una vívida metáfora de un lugar de gran sufrimiento (nota de 8:9).
+
+---
+
+### Deuteronomio 4:21
+CABALLERO Estaba enojado conmigo. Véase 1:37; 3:26; Núm. 20:12.
+
+---
+
+### Deuteronomio 4:24
+un fuego consumidor. La presencia de Dios a menudo se asocia con el fuego (Gén. 15:17; Éx. 3:3–5; 13:21; Núm. 11:1– 3), y el juicio divino viene ocasionalmente a través del fuego (Lev. 10:2). Dios celoso. Véase la nota sobre Éxodo 20:5.
+
+---
+
+### Deuteronomio 4
+Aquí se encuentra, en forma breve, la advertencia contenida en las maldiciones de 28:15-68. Pero aquí también hay una promesa para los que se arrepienten.
+
+---
+
+### Deuteronomio 4:27
+CABALLERO te dispersará Algunos han tomado estos pasajes como prueba de que Deuteronomio no fue escrito por Moisés, sino por alguien del siglo VI a. C. durante el exilio judío en Babilonia. Sin embargo, la advertencia es general y no se menciona el cautiverio en Babilonia ni las condiciones en ese período posterior, lo que sería de esperar si el libro hubiera sido escrito en esa época.
+
+---
+
+### Deuteronomio 4:30
+los postreros días. Esta frase, repetida en 31:29, se refiere a cualquier tiempo futuro de apostasía y renovación (cf. Nm. 24:14)
+
+---
+
+### Deuteronomio 4:31
+Dios misericordioso. Esta descripción puede hacer alusión al nombre de Dios que se da en Éxodo 34:6 (“el Señor, Dios misericordioso”). El tema del amor de Dios por su pueblo se destaca en Deuteronomio (7:7–9, 13; 10:15, 18; 23:5; 33:3), anticipando la revelación más completa del amor de Dios en el NT (Jn 3:16; Ro 5:8; Efe 2:4, 5; 1 Jn 3:1). El pacto con vuestros padres. Véase 1:8.
+
+---
+
+### Deuteronomio 4:32
+el día que Dios creó al hombre. A excepción del relato de la creación en los primeros capítulos del Génesis, este es el único Mención en el Pentateuco de la creación de los seres humanos.
+
+---
+
+### Deuteronomio 4:34
+en Egipto. Una referencia a la La liberación de Egipto, un tema mencionado repetidamente en Deuteronomio. DEUTERONOMIO 4:34
+
+---
+
+### Deuteronomio 4:37
+su propia presencia. Véase Éxodo 20:11. 33:14.
+
+---
+
+### Deuteronomio 4:41
+Esta sección entre paréntesis, en El estilo narrativo marca el final del primer gran discurso. Moisés nombra las ciudades de refugio para Transjordania. El principio de tener ciudades de refugio se dio en Éxodo 21:13; que debería haber seis se declaró en Números 35:6. Esta sección nombra las tres para Transjordania, mientras que 19:1–13 especifica que se deben designar tres para Canaán. Finalmente, las seis ciudades se nombran en Josué 20:7, 8. Este desarrollo progresivo es consistente con la autoría mosaica y una indicación de que Deuteronomio no fue escrito después de la conquista de Canaán.
+
+---
+
+### Deuteronomio 4:44
+En su segundo discurso (y en la sección que sigue, caps. 12–26), Moisés expone el modo de vida en el pacto. La exposición se centra en el amor al Señor, amor que se manifiesta en obediencia y consagración, como se ejemplifica entre los levitas apartados para el servicio al Señor. El sermón concluye con un avance de la declaración solemne De las obligaciones del pacto que se detallan en los capítulos 27 al 30.
+
+---
+
+### Deuteronomio 4:45
+testimonios... estatutos... reglas. Nótese el uso de lenguaje de pacto. Esta porción de Deuteronomio, con su lista de requisitos de pacto, se asemeja a las secciones de estipulaciones de los tratados antiguos, especialmente los del segundo milenio a. C. (ver Introducción: Fecha y ocasión).
+
+---
+
+### Deuteronomio 4:49
+las laderas del Pisga. Véase la descripción de la zona similar en 3:17.
+
+---
+
+### Deuteronomio 5:1
+Escucha, Israel. Esta forma solemne de dirigirse a Israel se encuentra solamente en Deuteronomio: primero aquí, luego en el gran Shemá de 6:4, y finalmente en la exhortación de 9:1-3. Aquí la Se recuerda el pacto fundacional del Monte Sinaí en Horeb.
+
+---
+
+### Deuteronomio 5:3
+No con nuestros padres. Moisés está diferenciando el pacto del Sinaí de la promesa de la tierra hecha a los patriarcas: Abraham, Isaac y Jacob. No fueron los patriarcas quienes estuvieron ante Dios en el Sinaí, sino los israelitas que salieron de Egipto con Moisés (nota 11:2).
+
+---
+
+### Deuteronomio 5:4
+cara a cara. Directamente, sin mediador. Después de que Dios le habló los Diez Mandamientos al pueblo, por temor pidieron a Moisés que fuera mediador entre ellos y Dios (Éx. 20:18-19).
+
+---
+
+### Deuteronomio 5
+Véase Éxodo 20:2–17 y notas.
+
+---
+
+### Deuteronomio 5:7
+No hay otros dioses. El exaltado monoteísmo de este mandamiento y de todo el Antiguo Testamento era único en la antigüedad. No hay otros dioses (4:39), y está prohibido adorar a cualquier otra cosa que no sea Dios mismo.
+
+---
+
+### Deuteronomio 5:8
+una imagen tallada. Véase 4:15–18; nota sobre Éxodo 20:4.
+
+---
+
+### Deuteronomio 5:10
+a millares. Mientras que la ira de Dios se extiende solo a la tercera y cuarta generación, Su amor se extiende a millares. A la luz de 7:9, algunos interpretan que “millares” se refiere a generaciones. Esto no necesariamente se puede insinuar aquí.
+
+---
+
+### Deuteronomio 5:12
+Observa el día de reposo. La mayoría de los mandamientos del Deuteronomio son casi textualmente idénticos a los del Éxodo. Aunque existen numerosas distinciones sutiles entre los dos pasajes cuando se leen en hebreo, demuestran, no obstante, una interdependencia obvia. El Deuteronomio basa estos mandamientos en la liberación de la esclavitud de Egipto, mientras que el Éxodo cita la obra de creación de Dios como base. El principio sabático continuo ordena un día semanal de descanso. El cambio del séptimo día al primer día o Día del Señor por parte de la iglesia del NT (Ap. 1:10), en celebración de la resurrección de Cristo, señala la inauguración de la nueva creación (1 Cor. 15:45–49; 2 Cor. 5:17; cf. Ex. 20:11) y la redención del creyente de la esclavitud del pecado mediante la muerte y resurrección de Cristo.
+
+---
+
+### Deuteronomio 5:16
+para que tus días sean prolongados. Otros pasajes sugieren que esta cláusula puede ser principalmente una promesa de condiciones establecidas y de larga paz para el pueblo de la tierra, lo que también incluye la libertad de una muerte temprana en la guerra y la revolución (5:33; 30:18, 20; cf. 25:15).
+
+---
+
+### Deuteronomio 5:22
+no añadió más. Lit. “Y no añadió nada más”, tal vez una expresión idiomática que significa que no habló más. Esto encajaría con la declaración de Éxodo de que el pueblo, en su temor, pidió que Dios no les hablara más directamente, sino que se dirigiera a ellos solo a través de Moisés (Éx. 20:19). Dos tablas de piedra. Las tablas se mencionan en Éxodo 31:18, donde se las llama las “dos tablas del testimonio... escritas con el dedo de Dios”. Además, las tablas estaban inscritas por ambos lados (Éxodo 32:15). Estas tablas se rompieron (Éxodo 32:19), pero se hicieron otras nuevas (Éxodo 34:1–4, 27). Llamadas “el testimonio”, las tablas se colocaron en el arca del testimonio (Éxodo 25:16; 40:20), también llamada el “arca del pacto” (Números 10:33). El “testimonio” se refiere al registro escrito que da fe de los términos del pacto (nota de Éxodo 25:16).
+
+---
+
+### Deuteronomio 6:2
+Los días pueden ser largos. Estas palabras traducen la misma frase hebrea que en 5:33. Aquí también podemos entender el significado como “larga vida en la tierra”.
+
+---
+
+### Deuteronomio 6:4
+Escucha, Israel. Este versículo, a menudo llamado Shemá, de la palabra hebrea inicial que significa “escucha”, es la gran confesión de la fe monoteísta de Israel, y hasta el día de hoy los judíos lo recitan por la mañana y por la noche (cf. Mc 12:29). Véase la nota sobre 5:1. El CABALLERO ... CABALLERO es uno. Aunque el hebreo puede traducirse de varias maneras (ver nota del texto), es mejor entender el versículo como una afirmación tanto de la unicidad de Dios como de su unidad o singularidad: el único Dios es “uno” (Marcos 12:29). Sin embargo, como lo implica el AT y lo enseña explícitamente el NT, hay una diferenciación de personas dentro de la unidad de la Deidad. Ver nota teológica “La trinidad de Dios” en la p. 1204.
+
+---
+
+### Deuteronomio 6:5
+todas tus fuerzas. El hebreo expresa totalidad. Por esta razón, el NT a veces lo traduce como “mente y fuerza” (Marcos 12:30). Este es el lenguaje de la devoción. Dios no exige mera obediencia externa a sus mandamientos, sino el amor sincero y el compromiso de toda la persona (Proverbios 23:26).
+
+---
+
+### Deuteronomio 6:8
+frontales entre tus ojos. Las frases de esta sección se multiplican para enfatizar la importancia general de Las exigencias de Dios. Los judíos desde antes de la época de Cristo han tomado estos versículos literalmente y se atan pequeñas cajas que contienen estos versículos en los brazos y en la frente. y los fijarán en los postes de sus puertas (cf. Mt 23,5).
+
+---
+
+### Deuteronomio 6:10
+la tierra que juró darte. Padres. Véase 5:3 y nota. Esta es una de las muchas referencias en Deuteronomio a la solemne promesa de Dios a los patriarcas.
+
+---
+
+### Deuteronomio 6:13
+Por su nombre jurarás. El tercer mandamiento no prohíbe la invocación del nombre de Dios en juramentos y votos (cf. Jue 8,19), pero prohíbe los juramentos y votos falsos. Puesto que jurar por el nombre de un dios implica el reconocimiento y la adoración de ese dios, los israelitas no deben jurar por otros dioses (cf. Jer 5,7; Sof 1,5). Este versículo es citado por Jesús cuando fue tentado por Satanás (Mateo 4:10; Lucas 4:8).
+
+---
+
+### Deuteronomio 6:15
+Un Dios celoso. Véase la nota sobre Éxodo 12:15. 20:5.
+
+---
+
+### Deuteronomio 6:16
+Massah. Esta palabra significa “probándolo” (Éx. 17:7). Más adelante en la historia del Antiguo Testamento, el rey Acaz de Judá cita este versículo de manera poco sincera (Is. 7:12). Jesús lo cita cuando Satanás lo tienta (Mt. 4:7; Lc. 4:12).
+
+---
+
+### Deuteronomio 6:20
+Véase la nota sobre 4:9.
+
+---
+
+### Deuteronomio 6:24
+hacer... temer al Señor. CABALLERO . Véase Juan 14:23.
+
+---
+
+### Deuteronomio 7:1
+Véase la nota sobre 2:32. Aquí se les promete específicamente a los israelitas que el Señor expulsará a los habitantes. Siete naciones. Estas siete naciones son difíciles de identificar. En 20:17 sólo se mencionan seis naciones (como también en Éxodo 3:8, 17; 13:5; 33:2; 34:11), y se omite a los gergeseos. Los jebuseos habitaban en Jebús, otro nombre de Jerusalén, y hay indicios de que eran hurritas (2:10-12). Esquema del documento • Deuteronomio Transjordania. La palabra “cananeo” parece incluirlos a todos.
+
+---
+
+### Deuteronomio 7:2
+destrucción completa. Véase nota 2:32. Algunos piensan que el Dios del Antiguo Testamento fue severo y vengativo al decretar la destrucción de los cananeos, pero esto es olvidar que Dios es justo. Los pecados de los habitantes de la tierra eran extremos, y el tiempo del juicio había llegado (cf. Gn. 15:16). Dios usó a Israel para castigar a los cananeos, pero les advirtió que si Israel cometía apostasía, abandonando al Dios que se les había revelado en su gracia, ellos también perecerían (28:15–68). Siglos después, Dios usó a los asirios y a los babilonios para castigar a Israel.
+
+---
+
+### Deuteronomio 7:3
+No os casaréis con nadie. El matrimonio es el vínculo humano más estrecho y su carácter sagrado está protegido en la ley del Antiguo Testamento. El corolario es que no se debe contraer matrimonio con incrédulos, un principio que se repite en el NT (1 Cor. 7:39). Israel no mantuvo su pureza espiritual y sufrió por ello (Sal. 106:37–39).
+
+---
+
+### Deuteronomio 7:5
+Derribarán sus altares. Israel fue escogido para ser un pueblo santo (v. 6), y Dios no tolera las religiones falsas. Aunque los medios de separación han cambiado, los creyentes de hoy han sido elegidos para la santidad (Efesios 1:4) y están llamados a separarse de la adoración falsa (2 Corintios 10:11). Cor. 6:15–18).
+
+---
+
+### Deuteronomio 7:8
+te ama... guardando el juramento. La elección de Israel como nación santa apartada para Dios (vv. 6, 7) no se basó en ningún mérito o bondad intrínseca de Israel, sino en el amor de Dios y en su fidelidad a las promesas del pacto hechas a los patriarcas (6:10). La elección de Dios de la iglesia se basa en su juramento a Jesús, el hijo de Abraham, el Hijo de Dios. de Dios (Sal. 110:4; Jn. 17:6). Véase la nota teológica “Pacto” en la pág. 37. VOLVER DEUTERONOMIO 7:8
+
+---
+
+### Deuteronomio 7:9
+mil generaciones. Véase 5:10 y nota.
+
+---
+
+### Deuteronomio 7:13
+Bendecirá también el fruto de tu vientre. Véase 28:4, donde se incluye un versículo similar en una letanía de bendiciones. grano... vino... aceite. Los tres alimentos básicos de la antigua economía agrícola, aquí Símbolo de prosperidad (11:14; 14:23; 18:4); el “aceite” es el aceite de oliva que se usa para cocinar y para las lámparas.
+
+---
+
+### Deuteronomio 7:15
+Las enfermedades malignas de Egipto. La misma promesa de salud se da en Éxodo 15:26, y lo contrario se da como una maldición en Deuteronomio 28:60.
+
+---
+
+### Deuteronomio 7:20
+Dios enviará avispas. La palabra hebrea para “avispa” puede significar “depresión” o “desánimo”. La figura de los insectos que pican persiguiendo al enemigo se usa en otros lugares (1:44; Is. 7:18), y la metáfora de una avispa es bastante apropiada (nota de Éx. 23:28). Dios promete luchar por su pueblo con el mismo poder que manifestó en el éxodo (v. 18). VOLVER DEUTERONOMIO 7:20
+
+---
+
+### Deuteronomio 7:21
+grande y temible. Ver nota teológica “La incomprensibilidad de Dios” en la pág. 630.
+
+---
+
+### Deuteronomio 7:25
+Es una abominación. Otro llamado a Israel para que odie por completo la idolatría pagana. Pero los ídolos a menudo estaban hechos de oro y eran valiosos. El metal precioso estaba bajo la prohibición (Hb. herem ); los ídolos debían ser destruidos, y lo que pudiera pasar por el fuego debía ser entregado al Señor (Jos. 6:18, 19).
+
+---
+
+### Deuteronomio 8:3
+maná, que no comisteis, Saber. La entrega inicial del maná se menciona en Éxodo 16:15, y su cese en Josué 5:12. Dios decidió sostener a su pueblo en el desierto por un medio que antes desconocían. Mediante esta provisión milagrosa, Dios humilló al pueblo (al desafiar su autosuficiencia) y puso a prueba su obediencia (v. 16; cf. Éx. 16:16–30). No sólo de pan vive el hombre. Véase Mateo 4:4; Lucas 4:4. Toda palabra que sale de la boca del CABALLERO . Aún más básico para la vida. que el alimento físico es la Palabra sustentadora de Dios (Hebreos 1:3).
+
+---
+
+### Deuteronomio 8:4
+Vuestros vestidos no se gastaron. Esta preservación milagrosa también se menciona en 29:5, pero en ningún otro lugar.
+
+---
+
+### Deuteronomio 8:5
+Como un hombre que disciplina a su hijo. Dios les permitió tener hambre para mostrarles su provisión (v. 3). La disciplina suele incluir una dificultad inicial seguida de una bendición (Prov. 3:11, 12; Heb. 12:5, 6).
+
+---
+
+### Deuteronomio 8:7
+una buena tierra... hierro... cobre. La descripción es más extensa que la conocida expresión “que mana leche y miel” que se encuentra en la mayor parte del resto del Pentateuco. Palestina ciertamente tenía más variedad y más lluvia que la tierra plana de Gosén, pero hoy gran parte de la tierra es árida. El clima puede haber sido diferente en ese entonces, ya que una pequeña diferencia en la lluvia puede afectar significativamente la productividad. La tierra hoy ha sufrido años de mala administración: las colinas modernas que en tiempos recientes estaban cubiertas de bosques ahora son estériles. En los relieves asirios de alrededor del 800 a. C., Israel está representado con frondosos viñedos y uvas, y no hay razón para negar la caracterización de la tierra como agradable (11:9-12).
+
+---
+
+### Deuteronomio 8:9
+cuyas piedras son hierro. La Edad del Hierro (c. 1200–300 a. C.) llegó a Palestina después de la muerte de Moisés (c. 1406 a. C.), pero el hierro ya se conocía antes de eso. Los inventarios de la antigua Ugarit (c. 1400 a. C.) mencionan dos talentos de hierro. Las minas de cobre de la península del Sinaí y la zona del sur de Transjordania eran un recurso valioso en la antigüedad y probablemente fueron una fuente de la riqueza de Salomón.
+
+---
+
+### Deuteronomio 8:19
+si lo olvidas. La fidelidad constante es el requisito para la bendición. Israel sin Dios no es mejor que los paganos. Pero Dios cumplirá su pacto con los padres y salvará a un remanente escogido por gracia (v. 18; Rom. 11:28, 29).
+
+---
+
+### Deuteronomio 9:1
+Escucha, Israel. Véase la nota 5:1. En esta larga sección de exhortación (9:1–11:32), Moisés se dirige al futuro. En la próxima conquista de Canaán, Dios irá delante de ellos (v. 3). DEUTERONOMIO 9:1
+
+---
+
+### Deuteronomio 9:2
+Los anaceos. Véase 1:28; 2:21. Los anaceos habían asustado a los espías infieles cuarenta años antes (Núm. 13:22, 28).
+
+---
+
+### Deuteronomio 9:4
+a causa de mi justicia. Note el triple énfasis en esta sección (vv. 4-6) de que la victoria no se debió a la bondad de Israel sino que fue enteramente obra de la gracia de Dios. La repetición era característica de la literatura hebrea y ayudaba al aprendizaje y la memorización.
+
+---
+
+### Deuteronomio 9:9
+Subí al monte. Moisés vuelve a contar la historia dada en Éxodo (Éx. 24:12, 18; 32:7–10, 15–20).
+
+---
+
+### Deuteronomio 9:21
+el arroyo que descendía de La montaña. Hoy en día, ningún arroyo desciende del monte Sinaí, el pico que a menudo se identifica con el monte Sinaí (Éxodo 16:1). El suelo tiene algo de humedad y crecen arbustos bajos, pero la mención de un arroyo implica que en tiempos de Moisés había más lluvia que ahora (8:7–9).
+
+---
+
+### Deuteronomio 9:22
+Tabera. Véase Números 11:3. Masah. Véase 6:16 y Éxodo 17:7. Kibrot-hataava. Ver Núm. 11:34.
+
+---
+
+### Deuteronomio 9:23
+Vosotros os rebelasteis. La absoluta persistencia de los israelitas en la rebelión (v. 24) señala la importancia de la intercesión de Moisés (vv. 25-28; Éx. 32:11-13) y el poder misericordioso de Dios, que permanece fiel a su pacto a pesar de las fallas de su pueblo (v. 29)
+
+---
+
+### Deuteronomio 10
+Resumiendo el material de Éxodo 34:1–4 y 37:1–9, Moisés aquí resume la recepción de los mandamientos y la construcción del arca. Las tablas se colocaron en el arca cuando se erigió el tabernáculo, como se menciona en Éxodo 40:20. 10:1 Dos tablas de piedra. Se ha asumido generalmente que la ley fue escrita una sola vez, y que la extensión del material requería dos tablas o una tabla doble. Más recientemente, algunos han sugerido que había dos tablas, cada una de ellas una copia separada de la ley. Esto refleja la antigua práctica de proporcionar a cada parte del tratado una copia del acuerdo. Debido a que el arca era tanto el lugar de la presencia de Dios con su pueblo como el punto focal de la adoración de Israel, era Es apropiado que ambas copias de los términos del pacto se guarden en el arca. Véase la nota sobre Éxodo 31:18.
+
+---
+
+### Deuteronomio 10:4
+Los Diez Mandamientos. Véase la nota sobre 4:13.
+
+---
+
+### Deuteronomio 10:6
+Algunos han sugerido que esta sección entre paréntesis interrumpe la narración y, por lo tanto, es una inserción posterior. Sin embargo, es evidente que esta sección une varios temas del contexto precedente: el papel de Aarón en el incidente del becerro de oro, por el cual fue amenazado de muerte, lo cual fue evitado solo por la intercesión de Moisés (9:20); la posesión inminente de la tierra (9:1-4), en la que los levitas no participarían porque el Señor era su herencia (v. 9; cf. 9:29); y el arca (vv. 1-5), que los levitas debían cuidar (v. 8). Los viajes de los versículos 6 y 7 parecen corresponderse con los de Núm. 33:31-33. Estos desplazamientos son difíciles de localizar porque sólo podemos identificar unos pocos de los lugares mencionados. 10:6 Mosera... Aarón murió. Esta mención de la muerte de Aarón subraya la eficacia de la intercesión de Moisés (9:20). Aarón no fue asesinado en el Sinaí, sino vivió hasta el año cuarenta después del éxodo (Núm. 33:38).
+
+---
+
+### Deuteronomio 10:8
+En aquel tiempo. Esto no se refiere al momento de la muerte de Aarón (v. 6) ni a los acontecimientos del v. 7, sino al momento de la revelación en el Sinaí (Éx. 28; 29).
+
+---
+
+### Deuteronomio 10:11
+a sus padres. A los patriarcas (9:5; Éxodo 33:1).
+
+---
+
+### Deuteronomio 10:12
+¿Qué significa el CABALLERO su Dios te lo pide. Esta pregunta retórica se parece a la muy citada Mic. 6:8, que nos llama a la justicia, a la misericordia y a la humildad en nuestro caminar con Dios (cf. Mateo 23:23). Andar con Dios requiere que lo amemos con todo nuestro ser y guardemos sus mandamientos: el amor y la obediencia van de la mano (Juan 14:23). Amar a Dios con todo nuestro ser es el mayor mandamiento (Deuteronomio 6:5; Marcos 12:29- 34)
+
+---
+
+### Deuteronomio 10:15
+a vosotros sobre todo. El contraste es noble, entre la soberanía de Dios sobre toda la creación y su gracia común a toda ella (v. 14) y su amor especial y electivo por los patriarcas y la nación (v. 15).
+
+---
+
+### Deuteronomio 10:16
+Circuncidad... vuestro corazón. Este versículo (junto con Deut. 30:6 y Jer. 4:4) es una respuesta eficaz para aquellos que imaginan que el Antiguo Testamento enseña meramente una religión de forma exterior. La circuncisión fue una señal del pacto de Dios con Abraham (Génesis 17:10-14). Lo que realmente importaba era una vida orientada hacia lo que el pacto prometía y exigía, no el acto físico de la circuncisión en sí. Como indica Pablo, la circuncisión en sí no tiene significado salvador. La verdadera circuncisión es “de la corazón, por el Espíritu, no por la letra” (Rom. 2:29).
+
+---
+
+### Deuteronomio 10:18
+Él hace justicia. El Señor de incomparable grandeza y soberanía (“Dios de dioses y Señor de señores”, v. 17) también se revela como el Dios sumamente compasivo que se preocupa profundamente por los más pequeños de la sociedad humana: los huérfanos, las viudas y los extranjeros. En esto, Él es nuestro ejemplo (v. 19).
+
+---
+
+### Deuteronomio 10:22
+setenta. Véase la nota sobre Éxodo 1:5. La mención del número de los que entraron en Egipto pone de relieve el gran amor de Dios al aumentar la población de Israel.
+
+---
+
+### Deuteronomio 11:2
+Vuestros hijos. Puesto que el pueblo ha visto la maravillosa liberación de Dios (v. 8), debe obedecer los mandamientos de Dios con mayor fidelidad. En su mención de “hijos”, no parece que Moisés distinga a los adultos mayores de cuarenta años de su audiencia, que vieron el éxodo, de los jóvenes que no lo vieron. La generación más joven también ha visto el cuidado y la disciplina preservadores de Dios en el desierto (vv. 5, 6). Por lo tanto, es probable que Moisés esté distinguiendo a la generación actual a la que se dirige de sus hijos que aún no han nacido.
+
+---
+
+### Deuteronomio 11:6
+Datán y Abiram. Moisés distingue a Datán y Abiram de Coré. Asimismo, el Salmo 106:17 no incluye a Coré entre los enterrados vivos. Esta distinción no se debe a que la información acerca de Coré pertenezca a un tiempo posterior de escritura, como algunos han sostenido; más bien, esta distinción de Moisés es precisa. Una lectura más atenta del registro en Núm. 16:16–35 muestra que Coré estaba en el tabernáculo entre los 250 hombres con Datán y Abiram, que no eran levitas, estaban al frente de sus tiendas con sus familias cuando la tierra los tragó, y la familia de Coré con sus hijos. Pero Coré mismo pereció con los 250 en el fuego enviado por el Señor. DEUTERONOMIO 11:6
+
+---
+
+### Deuteronomio 11:9
+Larga vida en la tierra. Véase la nota sobre 5:16.
+
+---
+
+### Deuteronomio 11:10
+La regaban. No está claro el detalle preciso de esta alusión. Puede referirse a las compuertas de los canales de irrigación (que a menudo se abrían con el pie del jardinero), o a la pesada práctica de llevar agua en baldes. A diferencia de la Tierra Prometida, que tenía suficiente lluvia para la agricultura (vv. 9, 11), el árido Egipto dependía en gran medida de la irrigación para la agricultura.
+
+---
+
+### Deuteronomio 11:13
+con todo tu corazón. El mandato de amar al Señor “con todo tu corazón” (6:5) se repite en Deuteronomio nueve veces.
+
+---
+
+### Deuteronomio 11:14
+grano... vino... aceite. Véase la nota sobre 7:13.
+
+---
+
+### Deuteronomio 11:19
+enséñalas a tus hijos. Véase la nota sobre 4:9 y las exhortaciones y metáforas similares en 6:6–9.
+
+---
+
+### Deuteronomio 11:24
+Todo lugar... donde tu pie La misma expresión y los mismos límites de Canaán se repiten en Josué 1:3-5. Debido a que los límites deben incluir un límite sur, “Desierto” probablemente se refiere al desierto del Sinaí. Sus límites incluyen todo el territorio actual de Israel y Líbano, junto con parte de Siria. Esta expresión puede referirse a la práctica de obtener el título formal de una tierra caminando por ella.
+
+---
+
+### Deuteronomio 11:26
+Una bendición y una maldición. Esta introducción a la ceremonia de bendición y maldición que se llevará a cabo en Ebal y Gerizim se reitera en Deuteronomio 30:19 al final del discurso de Moisés. Bajo inspiración divina, Moisés enfatiza la obligación del pueblo de amar a Dios y obedecer sus mandamientos.
+
+---
+
+### Deuteronomio 11:29
+Monte Gerizim... Monte Ebal. Los detalles de esta ceremonia se proporcionan en los capítulos 27 y 28; la ceremonia En sí, se lleva a cabo según la dirección de Moisés por Josué (Jos. 8:30-35). La frase “al otro lado del Jordán... hacia donde se pone el sol” (v. 30) apunta a una ubicación en Canaán (es decir, al oeste del Jordán). Según Génesis 12:6, la “encina de More” estaba cerca de Siquem. La ubicación precisa de Gilgal es incierta, pero parece haber estado cerca de Jericó (Josué 4:19). Los cananeos habitaban todo este territorio, y no hay razón para dudar de la identificación habitual de estas montañas como las dos montañas cerca de Siquem a lo largo del camino principal de norte a sur.
+
+---
+
+### Deuteronomio 12:1
+Moisés continúa exponiendo el modo de vida del pacto, reiterando las leyes que rigen la adoración y la conducta de Israel. Las leyes se refieren a temas que van desde la idolatría hasta los diezmos, desde los sacerdotes hasta el divorcio, desde las naciones hasta el individuo. La sección concluye con exhortaciones a obedecer al Señor, que es a la vez redentor y rey. 12:1 Estatutos y reglas. Véase la nota de 4:1. Moisés explica en los capítulos 12-26 las obligaciones del pacto.
+
+---
+
+### Deuteronomio 12:5
+el lugar donde el CABALLERO su Dios escogerá. Este pasaje se ha utilizado para argumentar que Deuteronomio fue escrito en el siglo VI a.C., de modo de apoyar la centralización del culto en Jerusalén por parte de Josías en ese período (Introducción: Fecha y ocasión). Pero esa perspectiva, que presupone una teoría evolucionista insostenible del desarrollo de la religión israelita, interpreta mal este versículo. La referencia aquí al “lugar” ciertamente no implica necesariamente que la ubicación del templo en Jerusalén fuera conocida cuando se escribió este texto. En el curso de la historia de Israel, el culto al Señor se centró sucesivamente en varios lugares: Silo (Jos. 18:1) y Gabaón (1 Cr. 12:13). 16:39) y más tarde en Jerusalén. El énfasis aquí está en el contraste entre “el lugar... que el SEÑOR tu Dios escoja” y “los lugares donde las naciones ... sirvieron a sus dioses” (v. 2). Pureza de adoración en obediencia al mandato divino, En lugar de la centralización, lo que se tiene en cuenta es el principio.
+
+---
+
+### Deuteronomio 12:7
+Comer... regocijarse. Algunos sacrificios son compartidos por sacerdotes y adoradores. La adoración de Israel debe ser santa, reverente y alegre. La adoración al Dios santo implica arrepentimiento y purificación, pero el corazón redimido está lleno de alegría y alabanza. Los Salmos frecuentemente expresa una devoción tan gozosa.
+
+---
+
+### Deuteronomio 12:12
+no ... herencia. Las ofrendas de los adoradores son, en parte, para sustentar a los sacerdotes y levitas, a quienes no se les asignan tierras de cultivo propias (10:6–9).
+
+---
+
+### Deuteronomio 12:15
+matanza... dentro de cualquiera de vuestras ciudades. La misma regla se da en los versículos 20 y 21. Pueden sacrificar para obtener carne en cualquier lugar, pero la carne de los sacrificios y los alimentos consagrados a Dios sólo pueden comerse en el lugar central de adoración. Véase nota Lev. 17:3.
+
+---
+
+### Deuteronomio 12:21
+Si el lugar... está demasiado lejos. Véase 14:24–26.
+
+---
+
+### Deuteronomio 12:23
+La sangre es la vida. El mismo principio se da en Génesis 9:4 y Levítico 17:10-14. El tratamiento de la sangre en el sistema de sacrificios muestra que representa la vida del animal. Cuando la sangre se acaba, la vida se acaba. Cuando se rocía sangre sobre el altar, se derrama vida inocente por un pecador culpable. Los sacrificios del Antiguo Testamento muestran una teología de sustitución del inocente por el culpable. Este concepto anticipa algo más importante por venir, porque un animal, no importa cuán perfecto sea, no es de ninguna manera tan valioso como un ser humano (Miqueas 6:6, 7). Por esta razón, Isaías 53:10 anticipa el Siervo inocente del Señor muriendo como ofrenda por el pecado (cf. Jn 1,29).
+
+---
+
+### Deuteronomio 12:31
+hasta queman a sus hijos y sus hijas. El sacrificio de niños era común en la antigüedad, especialmente en la colonia fenicia de Cartago en el norte de África. En las antiguas culturas paganas, a veces se sacrificaban niños en tiempos de gran necesidad como expresión de devoción a un dios (2 Reyes 3:27). Incluso algunos israelitas participaban en ocasiones de esta práctica. práctica detestable (Jue. 11:30–40; Sal. 106:34–39; Jer. 7:31).
+
+---
+
+### Deuteronomio 12:32
+No añadiréis nada. Véase 4:2.
+
+---
+
+### Deuteronomio 13:1
+Moisés da advertencias contra la apostasía en el capítulo 13. La primera (vv. 1–5) se refiere a los falsos profetas. En algunas secciones se advierte contra un pariente cercano que tienta a un miembro de la familia a la apostasía (vv. 6-11) y contra la apostasía de todo un pueblo (vv. 12-18). En cada caso, la pena es la muerte. 13:1–5 La advertencia contra un falso profeta se da para enfatizar que, aunque un profeta parezca tener credenciales impresionantes, la prueba teológica sigue siendo crucial. Ningún profeta verdadero puede promover una religión falsa, ya que el Dios de Israel es el verdadero y único Dios. Todos los demás dioses son creaciones de los hombres. Quienes los siguen y los adoran deben ser eliminados de Israel.
+
+---
+
+### Deuteronomio 13:6
+La atención se dirige al segundo caso de seducción a la apostasía. 13:6 tu hermano... amigo. Los lazos más estrechos de la tierra no disuelven el obligación de permanecer fieles al Dios único y verdadero (cf. 21,18-21).
+
+---
+
+### Deuteronomio 13:10
+Véase la nota teológica “El triple uso de la ley”.
+
+---
+
+### Deuteronomio 13:12
+En el tercer caso de apostasía, se considera el caso de una ciudad entera. Primero, se lleva a cabo una investigación (vv. 12- 14). Si lo que se dice es verdad, la ciudad debe ser destruida (vv. 14-15). 15) Nótese que el botín de la ciudad no debe tomarse para beneficio propio (vv. 16–17). 18) La idea de obtener ganancias puede nublar el juicio de quienes investigan las acusaciones de apostasía. La palabra hebrea para “montón” es tel, la palabra que usan ahora los arqueólogos para referirse a los montículos que comprenden las ruinas de generaciones sucesivas de las ciudades enterradas que excavan.
+
+---
+
+### Deuteronomio 14:1
+No os sajaréis... Por los muertos. Véase Levítico 19:27, 28, donde se dan las mismas reglas. Los detalles de esta costumbre no están claros, pero sin duda implica prácticas asociadas con el culto a los antepasados y el duelo ritual pagano. Debido a que Israel ha sido elegido por Dios como Su posesión especial (v. 2; 26:18), Israel debe ser diferente y debe rechazar toda religión pagana y los rituales asociados a ella.
+
+---
+
+### Deuteronomio 14:3
+Esta sección y Núm. 5:1–21 4 son las principales referencias a la legislación en materia de limpieza e impureza fuera de Lev. 11–15. El único fundamento dado para las prohibiciones es que Israel debe ser santo para el Señor. Se han sugerido varias razones, que van desde lo religioso hasta lo médico, para estas leyes. Si bien en algunos casos las prohibiciones requieren lo que es un buen procedimiento de salud pública, la distinción entre limpio e inmundo no es una cuestión de salud. Más bien, refleja una manera importante de ver el mundo, una visión en la que la santidad y la limpieza se asocian con la vida y la inmundicia con la muerte. Ser santo es ser como Dios, la fuente de vida; ser inmundo es estar bajo el poder de la muerte. Las leyes alimentarias distinguirán a Israel como una nación santa; las demás naciones se consideran inmundas. Con la venida de Jesús y la inauguración de una nueva era en los propósitos redentores de Dios, la composición de la nación santa cambia con la incorporación de los gentiles (1 Ped. 2:9). Véanse las notas Lev. 11–15. 15.
+
+---
+
+### Deuteronomio 14:11
+Todas las aves limpias. No se da una fórmula sencilla para identificar a las aves limpias. En general, las aves carroñeras son impuras, probablemente debido a su contacto frecuente con carroña. Estas aves también podrían representar un riesgo para la salud. Algunas de las aves mencionadas en los versículos 12 al 18 ya no se pueden identificar con precisión.
+
+---
+
+### Deuteronomio 14:19
+insectos alados. Pero hay excepciones: Lev. 11:22 menciona explícitamente la langosta, destruyendo al saltamontes, al grillo y al saltamontes como limpios.
+
+---
+
+### Deuteronomio 14:21
+un cabrito en el vientre de su madre Leche. Esta prohibición no se explica completamente. Aparece también en Éxodo 23:19 y 34:26, y es la base de la práctica entre los judíos ortodoxos de no comer leche y productos cárnicos juntos. Algunos también han sugerido que cocinar una cabra en leche puede haber sido una práctica cananea con implicaciones religiosas paganas, pero la evidencia no es clara. Lo más probable es que la regulación tenga como objetivo evitar mezclar la vida y la muerte; la leche está destinada a nutrir al cabrito y, por lo tanto, no debe asociarse con su muerte.
+
+---
+
+### Deuteronomio 14:22
+diezmo. La décima parte. La costumbre del diezmo era conocida desde la época de los patriarcas (Gén. 14:20; 28:22). Levítico 27:32 especifica que el diezmo de los animales no debe ser seleccionado sino que debe ser “todos los que pasan bajo el cayado del pastor.”
+
+---
+
+### Deuteronomio 14:23
+antes de la CABALLERO El diezmo debe llevarse al santuario (12:17), donde los adoradores deben comer una porción en alegre comunión con los sacerdotes, los levitas y los pobres. Lejos de ser un requisito oneroso, la entrega del diezmo debe ser una ocasión de celebración y adoración (nota 12:7; cf. 2 Cor. 9:7).
+
+---
+
+### Deuteronomio 14:24
+si el camino es demasiado largo. Viajar en el mundo antiguo no era fácil, y el transporte de productos agrícolas era aún más difícil. Aquí, Moisés da una solución práctica para estos antiguos israelitas. —pueden convertir los bienes en dinero y llevar el dinero (v. 25).
+
+---
+
+### Deuteronomio 14:28
+Al final de cada tres El diezmo del tercer año se menciona nuevamente sólo en 26:12, y los detalles precisos no están claros. Debido a que es un regalo especial para los levitas y los pobres, y debido a que las ciudades levitas estarán esparcidas por todo Israel (Josué 21), será poco práctico llevar todos los diezmos de una sola vez al lugar central de adoración. Por lo tanto, estas ofrendas del diezmo deben almacenarse en las ciudades de Israel y usarse para ayudar a los necesitados.
+
+---
+
+### Deuteronomio 15:1
+cada siete años... conceder un El año sabático fue establecido y descrito en Éxodo 23:10, 11 y Levítico 25:1-7, que requieren que la tierra permanezca en barbecho durante el séptimo año. Este pasaje (15 : 1-11) agrega la disposición de que las deudas deben ser perdonadas en ese año. Puesto que un préstamo podía concertarse poco antes del año sabático, y por lo tanto ser perdonado casi inmediatamente, podría equivaler a un regalo. Por esta razón, los versículos 7-11 advierten contra negarse a prestar a los pobres en estas circunstancias.
+
+---
+
+### Deuteronomio 15:4
+No habrá pobres. Aquí aparentemente se está considerando el perdón de los préstamos personales a los pobres. Dios desea bendecir materialmente a Su pueblo en la Tierra Prometida para que los préstamos sean innecesarios (vv. 5, 6). Aunque la obediencia plena dará como resultado la erradicación de la pobreza en Israel, Moisés reconoce de manera realista que seguirá habiendo cierta pobreza (v. 11; cf. Mt. 26:11). El año sabático y las disposiciones del Jubileo (Lv. 25:8–34) son disposiciones misericordiosas de Dios para minimizar la opresión de los pobres en Israel.
+
+---
+
+### Deuteronomio 15:12
+Si tu hermano... fuere vendido. Como esta ley de servidumbre es similar a la reglamentación del año sabático, se podría pensar que el año sabático liberaba a todos los esclavos. Pero eso no está dicho. Más bien, el período de servidumbre es de seis años para cada esclavo hebreo, y en el séptimo año queda libre. Al recordar la experiencia de servidumbre de la nación en Egipto (v. 15), Israel debe ser misericordioso con sus esclavos. Los esclavos tendrán derechos (Éx. 21:1–11, 20), y las disposiciones de redención aquí son generosas: al esclavo liberado se le debe dar algo con lo que pueda comenzar de nuevo (v. 13, 14; cf. Éx. 12:35, 36). La ley de servidumbre descrita no contradice la disposición para la libertad en el Año del Jubileo (Lev. 25:39–43). Esa disposición probablemente se refiere al caso especial de un siervo empobrecido cuya propiedad ancestral ha desaparecido y que, por lo tanto, no tiene a dónde ir si es liberado. Cuando llegue el Año del Jubileo, su hogar será restaurado y él irá a él.
+
+---
+
+### Deuteronomio 15:19
+Todo primogénito... dedicará. Véase la nota de texto de 12:17; 15:19. No se trabajará el primogénito del buey ni se trasquilará el primogénito de la oveja . porque deben ser entregados al Señor mientras aún son jóvenes.
+
+---
+
+### Deuteronomio 15:21
+cualquier defecto. Véase 17:1. VOLVER DEUTERONOMIO 15:21
+
+---
+
+### Deuteronomio 16:1
+La mayor parte del capítulo 16 trata de las tres fiestas de peregrinación, llamadas así porque requieren que todos los varones adultos las celebren en el santuario. Estas fiestas se mencionan brevemente en Éxodo 23:14–17. 17, y termina con el mismo mandato dado en lenguaje similar en Deuteronomio 16:16: cada hombre debe traer su ofrenda. Las fiestas se enumeran nuevamente en Éxodo 34:18- 23, donde la Pascua simplemente se incluye con la Fiesta de los Panes sin Levadura, estrechamente asociada a ella (nota de Éxodo 23:15). Las cinco fiestas principales se enumeran con más detalle en Levítico 23, y se enumeran con sus ofrendas en Números 28; 29. 16:1 el mes de Abib. En Éxodo, la Pascua (Éx. 12:1–14) y la Fiesta de los Panes sin Levadura (Éx. 12:15–20) fueron instituidas en el “primer mes” (Éx. 12:2, 18), también llamado el mes de Abib, uno de los nombres de los meses cananeos (Éx. 13:4; 23:15). El nombre babilónico del primer mes es Nisán, y el mes babilónico es Nisán. Los nombres aparecen en el AT de los períodos exílico y postexílico (por ejemplo, Ester 3:7). Celebrar la Pascua. Véanse las notas sobre Éxodo 12:1-26. La Pascua simboliza claramente la sustitución, puesto que el cordero es inmolado en lugar del primogénito. Aunque la sangre de los animales no puede, por sí misma, redimir a los seres humanos, el cordero pascual señala el sacrificio eficaz de Cristo (Hebreos 10:1-14). Por eso Pablo está plenamente justificado al decir: “Nuestra Pascua, Cristo, ya fue inmolada” (1 Corintios 5:7; cf. Juan 19:31-36).
+
+---
+
+### Deuteronomio 16:6
+en el lugar... Dios Escoge. En el lugar del santuario. Véase nota 12:5.
+
+---
+
+### Deuteronomio 16:7
+por la mañana... ve a tu El cordero o el cabrito deben ser sacrificados en el santuario al atardecer, asados en ese lugar durante varias horas y luego comidos a medianoche. Después de la celebración, el pueblo regresará a sus tiendas por la mañana. Después de su asentamiento en Canaán, cuando se reúnan en el santuario central, la mayoría seguramente volverá a vivir en tiendas. En tiempos modernos, la Pascua samaritana se celebra el 15 de julio. El Monte Gerizim se realiza precisamente de esta manera.
+
+---
+
+### Deuteronomio 16:9
+La Pascua siempre se celebra el día catorce del primer mes (que corresponde a marzo-abril modernos). Los israelitas usan el mes lunar, por lo que la Pascua siempre se celebra cerca de la luna llena. Asociada con la Pascua está la presentación de la primera gavilla madura de grano (Levítico 23:4-14). El día siguiente al séptimo sábado después de esa presentación (Levítico 23:15, 16) se celebra la “Fiesta de las Semanas” de un día (v. 10), llamada “Pentecostés” en el NT debido a este cálculo de cincuenta días (y siete semanas).
+
+---
+
+### Deuteronomio 16:13
+La “Fiesta de las Cabañas” (v. 13) Se llama así porque durante una semana el pueblo debe reunirse en el santuario y vivir en estructuras temporales. Comienza el día quince del séptimo mes lunar (actualmente septiembre-octubre), al final de la temporada agrícola después de que se ha trillado el grano y se han cosechado las uvas. Naturalmente, el diezmo de la cosecha debe llevarse en esta fiesta, que también es para conmemorar la experiencia de peregrinación de Israel al salir de Egipto (Levítico 23:43). Además, en cada séptima celebración de esta fiesta, deben leerse públicamente las obligaciones del pacto registradas por Moisés (31:10-13; Nehemías 8).
+
+---
+
+### Deuteronomio 16:18
+nombrar jueces y oficiales. Moisés nombró líderes en el Sinaí (1:13), y esta sección especifica que tal La organización debe continuar. Además, el alto ideal de la justicia es guiar su conducta (nota 19:15–21).
+
+---
+
+### Deuteronomio 16:19
+el soborno ciega. Este hecho es A menudo se enfatiza (Éxodo 23:8; Proverbios 17:23).
+
+---
+
+### Deuteronomio 16:21
+Asera. Una referencia a la postes de madera, imágenes o árboles que representan a la diosa cananea Asera. No debe haber ningún compromiso con la idolatría pagana (17:2-7). A pesar de tal Advertencias: estos santuarios paganos de Asera más tarde se convierten en una trampa para los israelitas. (Jue. 3:7, 8; 2 R. 13:6; 17:10).
+
+---
+
+### Deuteronomio 17:1
+defecto... defecto . Se ordenó repetidamente que cualquier defecto o falla hace que un animal no sea apto para sacrificio (15:21; Lev. 22:19–25; Núm. 19:2). Además, Lev. 21:16–23 especifica que Cualquier sacerdote con una deformidad física no puede oficiar. El simbolismo es claro: Dios es santo (Levítico 21:23) y exige perfección. Ser plenamente santo es ser completamente perfectos, tanto física como moralmente. Como símbolos de la perfección venidera Salvador y su digno sacrificio, los animales del sacrificio deben ser sin defecto.
+
+---
+
+### Deuteronomio 17:2
+Se trata del pecado de idolatría , cuya gravedad queda demostrada por la constante prescripción de la pena de muerte. (v. 5; cap. 13). En tales casos, el objetivo judicial no es la rehabilitación o restitución sino para purgar a Israel de la abominación de la idolatría (vv . 4, 7). El pacto originalmente ratificado en el Monte Sinaí exige lealtad exclusiva a Dios de los israelitas. No deben tener otros dioses (Éxodo 20:3).
+
+---
+
+### Deuteronomio 17:6
+dos testigos o de tres testigos. La condena no se produce sobre la base de testimonios de oídas. Dos o más testigos Tres testigos deben estar de acuerdo (v. 6; 19:15–19; Núm. 35:30), y deben ser suficientemente convencidos y sinceros para participar en la lapidación, saben que El castigo por el falso testimonio de un delito es el mismo que el del delito en sí (19:19). No existe tortura para la confesión ni tortura de testigos.
+
+---
+
+### Deuteronomio 17:8
+exige una decisión. No conocemos los detalles precisos del antiguo sistema judicial israelita (nota de 19:15–21). Había tribunales de grado para encargarse de los casos difíciles (Éx. 18:21-26), con sacerdotes que juzgaban y también otros jueces, probablemente ancianos tribales o líderes escogidos del pueblo. No había jueces profesionales en el antiguo Israel. Este pasaje enfatiza que el oficio judicial es ordenado divinamente y que los veredictos debían aceptarse bajo pena de muerte (v. 12).
+
+---
+
+### Deuteronomio 17:14
+La referencia a “un rey” (v. 14) es condicional y no necesariamente implica que el texto fue escrito cuando un rey gobernaba Israel, aunque los críticos han argumentado que con su referencia a caballos, esposas y riquezas, la sección se refiere a Salomón y fue escrita mucho después de él por uno de sus detractores. No había rey en el tiempo de Moisés, pero la posibilidad futura de tal gobernante era obvia ya que las expectativas de un rey son centrales para el cumplimiento de los propósitos redentores de Dios como se revela en Génesis (Gén. 17:6; 27:29; 49:10). Nunca se niega que Israel podría tener un rey, aunque se afirma con el mayor énfasis que Dios es su rey (33:5). Además, el v. 15 advierte contra la elección de un rey extranjero, una estipulación que no puede dirigirse contra Salomón. y sus sucesores, que eran israelitas nativos.
+
+---
+
+### Deuteronomio 17:18
+escribe... una copia de esta ley. La frase “esta ley” puede referirse a una parte sustancial del libro de Deuteronomio (véase 31:9–13; cf. 27:1–7), o puede significar la ley dada en el Sinaí (véase 1:5). Como nación del pacto, Israel debe ser gobernada de acuerdo con las obligaciones del pacto.
+
+---
+
+### Deuteronomio 18:1
+toda la tribu de Leví. No sólo los sacerdotes sino toda la tribu de Leví, con un total de veintitrés mil miembros, no recibirán herencia (Núm. 18:20; 26:62; Deut. 10:9). Esta tribu no tendrá granjas para su sustento, sino que dependerá de los diezmos y ofrendas del pueblo (vv. 3–5). Moisés les asigna específicamente cuarenta y dos ciudades, seis de las cuales serán ciudades de refugio (Núm. 35:2–8). A su debido tiempo, Josué les asigna estas ciudades (Jos. 21)
+
+---
+
+### Deuteronomio 18:3
+El derecho de los sacerdotes. En lugar de una herencia de tierra y en reconocimiento de sus deberes sacerdotales, los sacerdotes tienen derecho a porciones específicas de los animales ofrecidos para el sacrificio. Más adelante, esta práctica se A veces abusado por sacerdotes corruptos (1 Sam. 2:12–17).
+
+---
+
+### Deuteronomio 18:9
+las prácticas abominables de esas naciones. Anticipándose a las instrucciones sobre la profecía verdadera y falsa en los versículos 19-22, Moisés prohíbe todos los intentos de discernir el futuro por medios paganos y ocultos. También se prohíben todas las demás formas de hechicería y brujería. Se subraya el carácter detestable de estas prácticas y se cita como una razón para el juicio divino sobre los cananeos (vv. 9, 12). Todas estas son formas ilegítimas de recibir conocimiento divino. Dios proporcionará una forma diferente mediante la enviando profetas para entregar sus palabras a su pueblo (v. 15).
+
+---
+
+### Deuteronomio 18:18
+Moisés, el profeta más destacado del período del Antiguo Testamento, introduce el tema de la profecía israelita. Dios comunicará su palabra a Israel a través de una sucesión de profetas. Como mediadores de las palabras de Dios al pueblo, los demás profetas del Antiguo Testamento funcionarán de manera similar a Moisés (v. 16). Pero ninguno será el mediador inicial de un pacto, y ninguno igualará la intimidad de Moisés con Dios ni recibirá revelaciones divinas de la misma manera que él (Núm. 12:6-8; Deut. 34:10). Este pasaje, entonces, encuentra su cumplimiento final en el profeta que es igual a Moisés, de hecho mayor que él: Jesucristo (Hechos 3:22-26; 7:37; cf. Juan 5:45-47; Hebreos 3:2-6). Al igual que Moisés, Cristo es el mediador de un pacto entre Dios y su pueblo (Lucas 22:20; Hebreos 8:7-13). A diferencia de Moisés, Cristo no sólo habla las palabras de Dios, sino que es la Palabra de Dios (Juan 1:1-18). Véase la nota teológica “Los profetas de Dios”.
+
+---
+
+### Deuteronomio 18
+En Deuteronomio se dan dos maneras de discernir a los falsos profetas de los verdaderos. La primera es la integridad teológica: un verdadero profeta no enseñará errores ni desviará al pueblo (v. 20; 13:1-5). La segunda es que sus predicciones proféticas sobre el futuro se harán realidad (v. 22).
+
+---
+
+### Deuteronomio 19:2
+tres ciudades. Estas ciudades de Se deben reservar refugios en Canaán. Las tres ciudades de refugio para Transjordania ya han sido nombradas y reservadas. Véase 4:41–43 para la secuencia de establecimiento de estas ciudades.
+
+---
+
+### Deuteronomio 19:4
+Si alguno mata a su prójimo, Sin intención. La ley del homicidio se da primero en Éxodo 21:13, y luego con más detalle en Números 35:6-28. Este pasaje repite algunos asuntos que se dan en Números. Se añaden otras normas, como la disposición para construir caminos de acceso a las ciudades de refugio. Además, este pasaje especifica tres ciudades adicionales en Canaán si el territorio de la nación se amplía considerablemente. Pero está claro tanto en Números como en Deuteronomio que un hombre culpable de asesinato premeditado debe morir. La pena de muerte no se basa en la falta de respeto por la vida, sino en un profundo respeto por la vida de Dios. la víctima inocente creada a imagen de Dios (Gén. 9:6).
+
+---
+
+### Deuteronomio 19:14
+el lindero de tu prójimo. Aunque este versículo a veces se ha malinterpretado para instar a respetar las antiguas costumbres y creencias, el término “mojón” en realidad se refiere a piedras que sirven como marcadores de límites. Esta ley es esencial para evitar la invasión y el robo de tierras (27:17; Prov. 22:28; 23:10, 11).
+
+---
+
+### Deuteronomio 19:15
+El principio general es que una convicción no debe basarse en el testimonio de un solo testigo (v. 15). Cuando se detecta un falso testimonio, el falso testigo debe recibir el mismo castigo que recibe la persona falsamente acusada y condenada por un delito (vv. 19-21). En la jurisprudencia del antiguo Cercano Oriente, los jueces tenían mucha responsabilidad. No se limitaban a comparar una infracción con una ley en particular y pronunciar un veredicto, sino que comparaban el caso con los principios de la ley y con casos típicos, y luego emitían una decisión de acuerdo con la justicia y la equidad (1:13; 16:18; 17:8). 19:15 Un solo testigo. Véase 17:6.
+
+---
+
+### Deuteronomio 19:20
+temor. Véase la nota teológica “El triple uso de la ley” en la pág. 273.
+
+---
+
+### Deuteronomio 19:21
+Ojo por ojo. La frase “ojo por ojo” aparece dos veces más en el Pentateuco (Éx. 21:24; Lv. 24:20). En cada caso, el versículo está en un contexto legal, por lo que es un principio de justicia pública: La pena debe ser acorde con el delito, ni más ni menos que lo que se merece. La única pena física mencionada en la ley es la flagelación, y ésta se limita a cuarenta azotes (Deut. 25:3). Hay evidencia de que este principio no tiene la intención de ser tomado literalmente en la práctica (notas de Éxodo 21:24 y Levítico 24:20).
+
+---
+
+### Deuteronomio 20:1
+No tengas miedo. La moral en el ejército, en particular la importancia de confiar plenamente en Dios, es el tema de los versículos 1 al 9. Las excepciones citadas ilustran el principio de que no se debe alistar a nadie cuyo corazón no esté en la lucha (vv. 5-8). El poder de Dios, más que la superioridad numérica, garantizará la victoria de Israel (v. 4; cf. 32:30 nota; Jue. 7:1–8). Un resultado de tal actitud será una moral alta, que por sí misma contribuirá a la victoria.
+
+---
+
+### Deuteronomio 20:10
+ofrecer condiciones de paz. Las ciudades antiguas amuralladas podían resistir ataques durante algún tiempo, y los atacantes querían evitar el problema de un asedio prolongado. Una oferta de paz a cambio de un tributo vasallo (v. 11), junto con la amenaza de muerte para los soldados defensores, podría resultar atractiva para ambos bandos. Estas disposiciones de guerra (comparativamente humanas para ese período) se aplican a los enemigos fuera de la Tierra Prometida (v. 15).
+
+---
+
+### Deuteronomio 20:17
+destrucción completa. La palabra hebrea para esta práctica es herem, que significa “poner bajo la prohibición” (es decir, dedicar todo al Señor), como ocurrió en Jericó durante el conquista (Jos. 6:17–19). Véanse las notas Lev. 27:28; Deut. 7:25.
+
+---
+
+### Deuteronomio 20:19
+No destruirás su árboles. La referencia es claramente a árboles frutales (v. 20). Uno de los pactos de Israel La bendición es disfrutar del fruto de la tierra que Dios les había dado (7:12, 13). DEUTERONOMIO 20:19
+
+---
+
+### Deuteronomio 21:1
+Si... se encuentra a alguien muerto. En el caso de un asesinato sin resolver, los ancianos del pueblo más cercano deben tomar una decisión. Juramento de inocencia e ignorancia. El simbolismo de la vaca, muerta mientras se hace el juramento, es claro: muere como símbolo del asesino que debe morir. La tierra, que ha sido profanada por el derramamiento de sangre inocente, debe ser purificada de culpa grave. La muerte vicaria de la vaca se basa en el mismo principio que subyace a la muerte de Cristo como satisfacción por los pecados, conocidos y desconocidos, de su pueblo.
+
+---
+
+### Deuteronomio 21:11
+entre los cautivos un Mujer hermosa. La ley preserva la santidad del matrimonio. Un hombre israelita puede tomar cautiva a una mujer, pero debe esperar un mes. A ella se le debe dar la oportunidad de adaptarse y de lamentar la pérdida de su familia. Ella es una esposa, no una propiedad, y Si el marido se divorcia más tarde de ella, no puede venderla como esclava. DEUTERONOMIO 21:11
+
+---
+
+### Deuteronomio 21:15
+dos esposas. Puede ser que así como se permitía el divorcio “por la dureza de vuestro corazón” (Mateo 19:8), también se permitía la poligamia, pero se mitigaban sus males más severos. Alternativamente, la situación descrita aquí podría implicar una situación en la que un hombre se vuelve a casar después de la muerte de su primera esposa. La esposa no amada tiene sus derechos, y el hijo primogénito de una esposa no amada no puede ser desposeído.
+
+---
+
+### Deuteronomio 21:18
+un terco y rebelde Hijo. No se trata de una desobediencia insignificante de los hijos, sino de un patrón de rebelión y pecado profundo a largo plazo. Aunque no se define con precisión “terco y rebelde”, en el v. 20 se llama al hijo “glotón y borracho” (cf. Prov. 10:13). 23:21). En tales casos, ni siquiera los padres deben proteger a sus hijos (cf. Zac. 13:2, 3).
+
+---
+
+### Deuteronomio 21:22
+Colgarlo en un madero. El AT no menciona el ahorcamiento como método de ejecución. La práctica en cuestión es la exposición del cadáver de un criminal o enemigo (1 Sam. 31:10-13). Esta exposición horripilante, que simboliza la maldición divina (v. 23), no debe continuar más de un día. Este versículo motivó la petición de los fariseos de que el cuerpo de Jesús fuera bajado de la cruz antes del anochecer (Juan 19:31). El punto de Gálatas 3:13 es que Cristo, aunque inocente, murió como un criminal, tomando la maldición que nosotros merecíamos (cf. Hch. 5:30).
+
+---
+
+### Deuteronomio 22:1
+recuperarlos. La ley sobre los bienes perdidos exige que se haga un esfuerzo para encontrar al dueño de los bienes extraviados o perdidos y devolvérselos (cf. Éxodo 23:4). Si no se puede encontrar al dueño, se debe guardar la propiedad hasta que se lo encuentre.
+
+---
+
+### Deuteronomio 22:4
+Su buey cayó al suelo. Nuevamente, se debe evitar la pérdida accidental de la propiedad privada, si es posible (cf. Éx. 23:5). Jesús cita este versículo para justificar la curación de un hombre en sábado. Los fariseos permitieron que la ley de ayudar a un animal caído prevaleciera sobre sus reglas para el sábado. guardando pero no tuvo piedad de un hombre en grave necesidad (Lucas 14:5).
+
+---
+
+### Deuteronomio 22:5
+un vestido de hombre... un vestido de mujer... Las mujeres no deben adoptar los atavíos de los hombres (por ejemplo, portar armas), y los hombres no deben vestirse como mujeres. Los símbolos de la diferencia de género deben ser respetados, y aunque dichos símbolos varían con el tiempo y de una cultura a otra, el principio de distinción de género permanece (Gén. 1:27; cf. 1 Tim. 2:13). Violaciones del orden de la creación, como la homosexualidad y la bestialidad (Lev. 18:22, 23; 20:13; 1 Cor. 6:9; 1 Tim. 1:10), son una “abominación”.
+
+---
+
+### Deuteronomio 22:8
+Parapeto para tu techo. Esta es una ley contra la negligencia criminal. Los techos en el antiguo Israel eran planos y a menudo se llegaba a ellos por una escalera exterior. El techo se usaba para trabajar (Josué 2:6) o para el ocio. Para evitar lesiones accidentales o la muerte por caídas, se especifica un parapeto o cerca.
+
+---
+
+### Deuteronomio 22:9
+En Levítico 19:19 se encuentran prohibiciones similares de mezclas. Las razones de estas regulaciones ya no están claras. De las diversas sugerencias que se han hecho, lo más probable es que estos versículos enseñen la importancia de las distinciones en el orden de la creación o que le recuerden a Israel su llamado a la pureza y a la separación de las naciones circundantes (v. 11 nota).
+
+---
+
+### Deuteronomio 22:10
+un buey y un asno juntos. La razón de esto puede ser la impracticabilidad tanto de hacer que un burro tire de la carga de un buey como de hacer que un buey vaya al paso más rápido del burro. O, tal vez más probablemente, el contraste entre animales limpios (el buey) e inmundos (el burro, 14:1– 8) puede tener la intención de recordar a Israel su llamado a la pureza. Pablo cita esto Versículo en 2 Corintios 6:14 para prohibir la comunión entre creyentes e incrédulos en asuntos de fe y adoración.
+
+---
+
+### Deuteronomio 22:11
+tela... lana y lino. Algunos sugieren que esta prohibición se debe al hecho de que tales materiales podrían encogerse de manera desigual y, por lo tanto, no lavarse bien. Otros argumentan que al comer alimentos puros (14:3–21) y no mezclar sus semillas (Deut. 22:9), sus animales de tiro (22:10) o los materiales de sus prendas de vestir, Israel recordará que deben ser un pueblo puro (7:2–5 y notas).
+
+---
+
+### Deuteronomio 22:12
+Hazte borlas. Estas borlas son para recordarle a Israel los mandamientos del Señor y la nación. responsabilidad de ser santos ante Dios (Núm. 15:38–40).
+
+---
+
+### Deuteronomio 22
+Estos versículos proveen información para juzgar la queja de un esposo de que su esposa no era virgen cuando se casaron. Tal acusación, cuando la hace un hombre que desea librarse de una esposa que le desagrada, puede ser refutada por los padres de la esposa presentando evidencia visible “evidencia de… virginidad”, presumiblemente las sábanas manchadas de la noche de bodas (v. 15).
+
+---
+
+### Deuteronomio 22:22
+Se desarrollan las implicaciones del séptimo mandamiento (5:18; Éxodo 20:14) con respecto a los casos de adulterio y violación. Se presta especial atención a la protección de la santidad del pacto matrimonial: el adulterio con una mujer casada o prometida se castiga con la muerte de ambas partes que consienten (vv. 22-24), mientras que se prescriben penas menores para una relación sexual con una mujer soltera (vv. 28, 29). En la antigua sociedad del Cercano Oriente, las mujeres dependían de su relación matrimonial para su protección y estatus, y la ley les brindaba importantes protecciones. La pena por violar a una mujer casada era la muerte del hombre infractor (vv. 25-27). El hombre que viola el honor de una virgen es obligado a casarse con ella y no puede divorciarse de ella más tarde (v. 29).
+
+---
+
+### Deuteronomio 22:30
+El hombre no tomará su mano de su padre, la esposa del padre. Probablemente se refiere a las relaciones sexuales con una madrastra (Lev. 18:7, 8; 20:11).
+
+---
+
+### Deuteronomio 23:1
+la asamblea de los CABALLERO . Esta frase posiblemente se refiere a la comunidad de adoradores reunida ante la presencia de Dios, más que a la población de Israel en su conjunto (Neh. 13:1–3). Sin embargo, puede tener una connotación mucho más limitada, ya que aparte del contexto actual aparece solo en Miq. 2:5. La expresión similar “asamblea de Dios” aparece en Nehemías 13:1 al comienzo de un pasaje que se centra en la provisión inadecuada de alojamiento dentro de los patios del templo para Tobías el amonita. La palabra hebrea para “asamblea” ( qahal ) generalmente se traduce como ekklesia en el Septuaginta. Este es también el término usado en el NT griego para “iglesia”.
+
+---
+
+### Deuteronomio 23:3
+Amonita o moabita... el Décima generación. Como indica la palabra “para siempre” en este versículo, “décima generación” es probablemente un modismo que denota exclusión permanente para todos los que rechazan al Dios de Israel. Esta exclusión especial de los amonitas y los moabitas no se debe a su origen incestuoso (Gén. 19:30–38), sino a su obstinada oposición a Israel (v. 4; Neh. 13:2). El AT también espera un nuevo pacto en el que se trasciendan las exclusiones de este pasaje (Is. 56:3–8), aunque incluso bajo el antiguo pacto, todos los que confiaban en el Dios de Israel podían unirse a la comunidad de Israel. Rut, la moabita que llegó a ser la antepasada de David y del Mesías, ilustra esto (Rut 1:4; 4:17; Mt. 1:5).
+
+---
+
+### Deuteronomio 23:4
+Balaam. Nótese la clara referencia a los detalles en Núm. 22–24.
+
+---
+
+### Deuteronomio 23
+Debido a que el campamento de los soldados israelitas es un lugar de la presencia de Dios como guerrero divino (v. 14; 20:4), el campamento debe mantenerse limpio de cosas inmundas. Aquí se tienen en cuenta hechos que son tanto indecorosos como ceremonialmente impuros: casos de orinar o quizás emisiones nocturnas (v. 10; cf. Lev. 15:16), y defecar en el campamento (v. 13). Se pretende que la sensación de la presencia de Dios en el campamento tenga un impacto en todo lo que hagan los israelitas.
+
+---
+
+### Deuteronomio 23:15
+esclavo que ha escapado. La esclavitud en Israel estaba cuidadosamente regulada y sus abusos limitados (nota 15:12). Aquí se ve a un esclavo fugitivo de otro país que se refugia en Israel.
+
+---
+
+### Deuteronomio 23:17
+culto prostituta. Ritual La prostitución, que involucraba tanto a hombres como a mujeres, era característica de las religiones cananeas relacionadas con la fertilidad.
+
+---
+
+### Deuteronomio 23:19
+El interés. Dios desea bendecir a un Israel obediente para que no sea necesario pedir préstamos (nota de 15:4), y aquellos a quienes el Señor ha bendecido materialmente deben ayudar a sus compañeros israelitas en apuros no cobrando intereses. Esta regla no se aplica a los que están fuera del pacto (el “extranjero”, v. 20). La economía agrícola del antiguo Israel era diferente de la economía comercial de hoy, y los préstamos generalmente se debían a la pobreza.
+
+---
+
+### Deuteronomio 23:21
+un voto al CABALLERO . Tal voto se hace voluntariamente (v. 22). Es un asunto serio y, si es un voto válido, debe ser Las normas sobre los votos se dan en detalle en Lev. 27 y Núm. 30. VOLVER DEUTERONOMIO 23:21
+
+---
+
+### Deuteronomio 24:1
+Véase “Matrimonio” en Mal. 2:16 y “el divorcio” en Marcos 10:2. La situación descrita (vv. 1–3) es seguida por la prescripción legal (v. 4). El divorcio está permitido en la ley mosaica, como dice Jesús más tarde, debido a la “dureza de corazón” (Mateo 19:8). La restricción de que una pareja divorciada se vuelva a casar después de un matrimonio intermedio (v. 4) desalienta los divorcios casuales. 24:1 alguna indecencia. El hebreo de esta frase es el mismo que “cualquier cosa indecente” en 23:14, y es más bien general. Aparentemente no se refiere al adulterio, pues el adulterio se castiga con la muerte (22:22). Se reconoce el hecho del divorcio por diversas razones, pero no necesariamente se lo tolera (los vv. 1–3 son descriptivos, no prescriptivos).
+
+---
+
+### Deuteronomio 24:5
+Recién casados. Una exención de un año para los recién casados no solo fortalece la relación matrimonial y beneficia al hogar, sino que también evita que un hombre sea criticado por no unirse al ejército justo después de casarse.
+
+---
+
+### Deuteronomio 24:6
+tomar ... en prenda. Debido a que los préstamos en el antiguo Israel se otorgaban típicamente para aliviar las dificultades económicas del prestatario (nota de 23:19), el material entregado en prenda probablemente no era una propiedad colateral de igual valor al monto del préstamo sino una posesión personal entregada. como señal de la promesa de pagar. De acuerdo con el propósito del préstamo, el prestamista no puede causar más dificultades al prestatario confiscando artículos esenciales como piedras de molino para el hogar o prendas de vestir exteriores (vv. 10–13, 17). Otras referencias a prácticas de préstamo del AT incluyen Éxodo 22:26, 27; Job 22:6; 24:3, 9; Amós 2:8.
+
+---
+
+### Deuteronomio 24:7
+hurtando... a sus hermanos. El propósito principal del secuestro en el mundo antiguo era la esclavización de otros para obtener ganancias. Vender a compatriotas israelitas como esclavos en otros países está prohibido bajo pena de muerte, probablemente porque tales esclavos son separados de la vida de la comunidad del pacto (en sí una forma de “muerte”; cf. Éx. 12:19 y Lv. 7:20). La esclavitud por contrato está permitida dentro de Israel, pero está moderada de varias maneras importantes (nota 15:12). Pablo condena a los traficantes de esclavos (“esclavizadores”) junto con con otros violadores de los Diez Mandamientos (1 Tim. 1:10).
+
+---
+
+### Deuteronomio 24:8
+La enfermedad de la lepra. Véase la nota sobre Lev. 13; 14.
+
+---
+
+### Deuteronomio 24:14
+un trabajador asalariado que es pobre. La preocupación de Dios por los pobres y oprimidos se enfatiza en este pasaje (Sal. 9:18). nota)
+
+---
+
+### Deuteronomio 24:16
+Los padres no serán oprimidos muerte por causa de sus hijos. Esta interesante y justa ley se cita en 2 Reyes 14:6 y 2 Crónicas 25:4, donde se cita como del “Libro de la Ley de Moisés” o la “Ley en el Libro de Moisés”.
+
+---
+
+### Deuteronomio 24:19
+Cuando siegues tu mies. La intención compasiva de esta ley se hace realidad en Rut 2:2-23 (cf. Lev. 19:9, 10; 23:22).
+
+---
+
+### Deuteronomio 25:3
+Cuarenta azotes. Este es el contexto de la práctica judía de dar “cuarenta azotes menos uno” (2 Cor. 11:24). La intención es evitar cualquier posible error de cálculo al pecar de misericordioso.
+
+---
+
+### Deuteronomio 25:4
+No pondrás bozal al buey. Según Pablo, esta provisión de bueyes apunta al principio más general que quienes trabajan, particularmente los ministros cristianos, merecen una remuneración justa por su obra (1 Cor. 9:9–12; 1 Tim. 5:18).
+
+---
+
+### Deuteronomio 25:5
+El hermano de su marido . La ley del matrimonio levirato (del latín levir , que significa “hermano del marido”) se da sólo aquí. La limitación a los hermanos que “viven juntos” puede indicar que se aplica sólo a un hermano soltero, pero es dudoso que esta limitación se mantuviera en práctica. El propósito obvio del acuerdo es mantener la propiedad derechos de la línea familiar del difunto. La costumbre del levirato data de la época patriarcal. veces y se menciona en Génesis 38:8–11; Rut 3:1–4:12; Mateo 22: 23–28; Marcos 12:18–23; y Lucas 20:27–33.
+
+---
+
+### Deuteronomio 25:13
+dos clases de pesos. El peso de Dios Se enfatiza el desagrado por las prácticas comerciales deshonestas (Lev. 19:35, 36 ; Prov. 11:1; 16:21; 20:10, 23; y Miqueas 6:11).
+
+---
+
+### Deuteronomio 25:17
+Sobre el conflicto histórico entre Israel y Amalec, véase Éxodo 17:16 y nota.
+
+---
+
+### Deuteronomio 26:2
+En primer lugar, el fruto. Muchos Los eruditos sugieren que los versículos 1-11 se refieren a una ofrenda especial de primicias que Israel debía ofrecer. traer cuando tomaron posesión de la tierra (v. 4), aunque algunos relatan el ceremonia descrita en estos versículos para la ofrenda perpetua de las primicias (Lev. 23:9–14). De cualquier manera, es probable que las palabras de la ceremonia recitada Los actos poderosos de Dios en favor de Israel (vv. 3–10) continuaron utilizándose en el pueblo israelita. culto. El lugar que Dios escogerá. Véase la nota sobre 12:5.
+
+---
+
+### Deuteronomio 26:5
+Un arameo errante . Este versículo puede referirse a la avanzada edad de Jacob cuando descendió a Egipto. (Gén. 47:9; cf. 46:30) o a las circunstancias cambiantes de Jacob y sus viajes a Siria, de regreso a Canaán, a lo largo de Canaán y, finalmente, a Egipto (Gén. 28:2–5; 29:1; 31:20, 21; 33:18; 35:1, 16, 21; 46:1–28).
+
+---
+
+### Deuteronomio 26:12
+el diezmo. Con respecto al diezmo y el diezmo del tercer año, véanse las notas sobre 14:22 y 14:28.
+
+---
+
+### Deuteronomio 26:13
+porción sagrada. Como cosas santas (que pertenecen a Dios), los diezmos no deben destinarse a ningún uso impuro o idólatra (v. 14). La frase “ofrecidos... a los muertos” (v. 14) puede referirse a prácticas idólatras (nota de 14:1).
+
+---
+
+### Deuteronomio 26:15
+Mira desde el cielo. Salomón adaptó esta frase en su gran oración en la dedicación del templo (1 R 8,30).
+
+---
+
+### Deuteronomio 26:16
+Estos versículos concluyen la sección de estipulaciones del pacto que comenzó en 12:1. Aquí el pueblo acepta los términos del pacto de Dios mediante su compromiso de obediencia a las estipulaciones del pacto (v. 17; cf. Éx. 24:7), y las dos partes del pacto (Dios y el pueblo) “declaran” lealtad a la otra (vv. 17, 18). 26:16 estatutos y reglas. Véase nota de 12:1.
+
+---
+
+### Deuteronomio 27:1
+Moisés continúa su libro de despedidas con un tercer discurso dedicado especialmente a las sanciones por las cuales se harán cumplir los requisitos del pacto. Después de convocar al pueblo a jurar el pacto a la luz de su rebeldía y profetizar la renovación del pacto en el futuro, Moisés llama al pueblo a “escoger la vida” según la promesa dada a sus padres, Abraham, Isaac y Jacob. 27:1 Moisés... ordenó. Moisés y los ancianos especifican una ceremonia de dedicación que se realizará después de que los israelitas entren en la tierra. La enseñanza de Moisés se publicará para que todos la vean; la ceremonia será impresionante; el pueblo agregará su "amén", y seguirá una liturgia de bendiciones y maldiciones prometidas.
+
+---
+
+### Deuteronomio 27:2
+revístelos con yeso. Moisés dispone la publicación de su discurso en la ceremonia de renovación del pacto en el monte Ebal (vv. 3, 8). Se deben blanquear grandes piedras y escribir en ellas las palabras de Moisés. Esta técnica de escribir sobre una superficie blanqueada era típicamente egipcia (la práctica cananea y mesopotámica era inscribir palabras en superficies de piedra). Debido a que Moisés estaba íntimamente familiarizado con Egipto y sus prácticas, estos versículos proporcionan otra indicación de que el texto de Moisés Deuteronomio data de la era mosaica.
+
+---
+
+### Deuteronomio 27:5
+No se debe usar ninguna herramienta de hierro. Las piedras deben estar sin cortar (cf. Éxodo 20:25). Esto puede indicar que el altar no debe convertirse en un elemento permanente. Debido a que el hierro se utiliza más tarde en la construcción del templo de Salomón (1 Crónicas 22:3, 14), no debemos concluir que es un metal tabú prohibido para el culto religioso. Véase la nota sobre 8:9.
+
+---
+
+### Deuteronomio 27:12
+estos... en el monte Gerizim a Bendecir. No hay ninguna razón aparente para las asignaciones tribales precisas. Aquí Leví está incluido entre las tribus regulares (incluso entre las seis que pronuncian las bendiciones), aunque algunos de los levitas deben recitar las maldiciones que el pueblo responderá. La tribu de José une a Manasés y Efraín, por lo que la enumeración sigue los nombres de los doce hijos de Jacob en lugar de las divisiones tribales posteriores.
+
+---
+
+### Deuteronomio 27
+Esta lista de ofensas sujetas a maldición no es exhaustiva. Se pueden elegir estas ofensas como representativas de los tipos de pecados que podrían escapar a la detección y, por lo tanto, permanecer secretos (cf. vv. 15, 24). Incluso los pecados secretos afectarán la relación de pacto de Israel con Dios (cf. Jos. 7:10–26). 27:15 el hombre que hace una imagen tallada... La primera maldición se refiere a la idolatría (5:7–9). Amén. La palabra hebrea significa “así sea”.
+
+---
+
+### Deuteronomio 27:16
+cualquiera que deshonra a su padre o su madre. La segunda maldición se refiere al quinto mandamiento (5:16).
+
+---
+
+### Deuteronomio 27:17
+Véase la nota sobre 19:14.
+
+---
+
+### Deuteronomio 27:18
+engaña a un ciego. Levítico 19:14 ordena el cuidado de los discapacitados.
+
+---
+
+### Deuteronomio 27:19
+pervierte la justicia. Dios defiende la causa de los desamparados (10:18).
+
+---
+
+### Deuteronomio 27:20
+ace con la mujer de su padre. Véase la nota sobre 22:30.
+
+---
+
+### Deuteronomio 27:21
+no se acuesta con ninguna especie de animal. La pena por esta perversión es la muerte (Éx. 22:19; Lev. 18:23; 20:15). DEUTERONOMIO 27:21
+
+---
+
+### Deuteronomio 27:22
+ace con su hermana. Esta maldición se refiere tanto a una hermana de padre y madre como a una media hermana (que tienen el mismo padre pero diferente madre). Véase Levítico 18:11; 20:17.
+
+---
+
+### Deuteronomio 27:23
+ace con su suegra. La pena es la muerte (Levítico 18:17; 20:14).
+
+---
+
+### Deuteronomio 27:24
+Tanto el atacante secreto como el asesino a sueldo caen bajo la maldición divina, aunque ambos puedan ser Se esperaba que no se les detectara (nota vv. 15-26).
+
+---
+
+### Deuteronomio 27:26
+no confirma las palabras La maldición final cubre el resto de los mandamientos de Dios . Pablo cita este versículo para subrayar la severidad de las exigencias de la ley y la imposibilidad de merecer la salvación por obras (Gálatas 3:10). Según los estándares de Dios, todos pecaron y están destituidos de la gloria de Dios (Romanos 3:23). Pero esto no elimina la obligación del creyente de obedecer las demandas morales de Dios mediante la capacitación del Espíritu Santo. Sin embargo, tal obediencia no merece Justificación, sino más bien, es la evidencia y el fruto de la fe que justifica. DEUTERONOMIO 27:26
+
+---
+
+### Deuteronomio 28:1
+Después de registrar la liturgia para el ritual del pacto en el monte Ebal y el monte Gerizim (cap. 27), Moisés llama a la congregación de Moab a obedecer los mandamientos de Dios, exponiendo las bendiciones prometidas de Dios por la obediencia y Sus maldiciones por la desobediencia. Las bendiciones son más breves y vienen primero. Las maldiciones son, en algunos casos, exactamente lo contrario de las bendiciones, y continúan con un énfasis impresionante antes de culminar en una nota de condenación (v. 68). Las longitudes relativas de las dos listas posiblemente implican que en el futuro los israelitas, debido a su desobediencia, tendrán más probabilidades de experimentar las maldiciones de Dios en lugar de Sus bendiciones. Basado en Deut. 31:16-17 y 32:20-21, Dios de hecho declara que el pueblo fallará en su obediencia a Sus mandamientos (cf. Os 1-3).
+
+---
+
+### Deuteronomio 28:4
+fruto. Sus hijos, cosechas y rebaños serán bendecidos. Para un pueblo agrícola, estos son los elementos cruciales de la vida física.
+
+---
+
+### Deuteronomio 28:5
+tu canasta y tu tazón para amasar. Los esfuerzos del hogar serán bendecidos.
+
+---
+
+### Deuteronomio 28:6
+Entrad... salid. Esta expresión idiomática, que se refiere a las actividades cotidianas normales, subraya la amplitud de la bendición divina (cf. 31:2). Dios bendecirá a un pueblo obediente en todos los sentidos.
+
+---
+
+### Deuteronomio 28:11
+dentro de la tierra. Las bendiciones detalladas anteriormente se harán realidad en la Tierra Prometida, que es en sí misma una parte importante de la bendición.
+
+---
+
+### Deuteronomio 28:12
+su buen tesoro, el cielos. Este modismo expresa la convicción de que la lluvia, tan crucial para la prosperidad agrícola de Israel, es un don de Dios (11:11-17; Sal. 104:13). Aquí hay una advertencia implícita contra las religiones cananeas de fertilidad, que atribuían la lluvia al dios pagano Baal.
+
+---
+
+### Deuteronomio 28:16
+Las maldiciones que aparecen aquí reflejan negativamente las bendiciones de los versículos 3 al 6.
+
+---
+
+### Deuteronomio 28:23
+bronce... hierro. Estas metáforas de cielo sin lluvia y tierra estéril son aterradoras para un pueblo agrícola. Tan dependiente de la lluvia y del suelo (cf. Lev. 26:19).
+
+---
+
+### Deuteronomio 28:25
+derrotado delante de tu enemigos. La expresión es la inversa de la bendición del v. 7, con el horror añadido de que sus cadáveres quedarán expuestos y no disfrutarán de un entierro apropiado (v. 26).
+
+---
+
+### Deuteronomio 28:27
+Las diversas enfermedades mencionadas aquí no se pueden identificar con precisión. Es posible que estén incluidas en la “enfermedades de Egipto” (v. 60), de las cuales Dios ha prometido librarlos (7:15; Éx. 15:26) si obedecen sus leyes. Los antiguos egipcios sufrieron una Variedad de enfermedades tropicales y parásitos (cf. nota 14:3–21).
+
+---
+
+### Deuteronomio 28:35
+planta de tu pie... cabeza . Descripción de gran tormento también utilizada para describir las llagas de Job (Job 2:7). VOLVER DEUTERONOMIO 28:35
+
+---
+
+### Deuteronomio 28:36
+La maldición del pacto del cautiverio y el exilio mencionada aquí se convierte en un elemento importante de los juicios proféticos del pacto contra el Israel desobediente más adelante en el AT (por ejemplo, Is. 5:13; Jer. 13:19; 29:17–19).
+
+---
+
+### Deuteronomio 28:44
+Él te prestará. Esta maldición, como varias de esta sección, es el reverso de una bendición anterior (vv. 12, 13; 23:19 nota).
+
+---
+
+### Deuteronomio 28:49
+hasta el fin de la tierra. Esta expresión para indicar una distancia extrema se basa en cómo el ojo percibe que la tierra termina donde se encuentran el horizonte y el cielo; es equivalente a “lejos de ti” (cf. 13:7).
+
+---
+
+### Deuteronomio 28:53
+come el fruto de tu vientre. El canibalismo era una terrible práctica que acompañaba a los antiguos asedios, cuando se interrumpía el suministro de alimentos a una ciudad durante largos períodos. Esta maldición encuentra un cumplimiento espantoso durante los asedios de Samaria y Jerusalén (2 Reyes 6:28, 29; Jeremías 19:9; Lamentaciones 1:13). 2:20; 4:10).
+
+---
+
+### Deuteronomio 28:61
+El libro de esta ley. El registro escrito que documentaba los términos de un pacto tenía carácter legal y era una parte crucial del tratado del antiguo Cercano Oriente (Introducción: Fecha y ocasión). Gran parte de Deuteronomio, probablemente 5:1–29:19 y quizás también 28:1–68, preserva el registro del pacto de Dios con su pueblo (v. 58; 31:24–26). registro de los términos del pacto y era legalmente vinculante para Israel.
+
+---
+
+### Deuteronomio 28:64
+os dispersará. Algunos sostienen que estas amenazas de exilio indican que partes de Deuteronomio se escribieron durante o después del exilio babilónico (siglo VI a. C.). Este argumento se basa en la idea de que la profecía predictiva sobrenatural es imposible. Pero, de hecho, esta maldición del pacto está expresada en términos más generales que los que se aplican solo al exilio babilónico. Amenaza con una dispersión generalizada “de un extremo a otro del mundo” “De la tierra a la otra.” Encuentra cumplimiento en los exilios asirios y babilónicos, y quizás también en la dispersión de los judíos después de la caída de Jerusalén en el año 70 d.C.
+
+---
+
+### Deuteronomio 28:68
+No habrá comprador. Este tema del abandono hace eco del versículo 29. La suma de maldiciones aquí es abrumadora. Este capítulo debe compararse con el capítulo similar, pero más corto, Levítico 26, que termina con la posibilidad de confesión, arrepentimiento y Restauración. Aquí, el tema de la posible restauración se deja para el capítulo 30.
+
+---
+
+### Deuteronomio 29:1
+el pacto... en la tierra de Moab. Los eruditos debaten si el versículo 1 concluye lo que precede o introduce lo que sigue. Esto último, como se refleja en la división del texto de la NVI, es más probable. El “pacto... en la tierra de Moab” es una renovación del pacto del Sinaí (“el pacto... en Horeb”). Como de costumbre, Moisés recita la historia de los actos poderosos de Dios en favor de Israel en el éxodo de Egipto y en el desierto (cf. el discurso de Moisés en 1:6–4:38). Sigue una advertencia contra el alejamiento del Señor, una promesa de restauración tras el arrepentimiento y un mandato solemne de obedecer. Horeb. Véase la nota sobre 1:6.
+
+---
+
+### Deuteronomio 29:2
+en la tierra de Egipto. La liberación de Egipto, que ocupa un tercio del libro de Éxodo, se menciona muchas veces en Deuteronomio (p. ej., 1:30; 4:20, 34; 5:6; 11:2–7).
+
+---
+
+### Deuteronomio 29
+CABALLERO no ha dado...ojos Para ver. Pablo combina este versículo con Isaías 29:10 y aplica ambos versículos a los judíos de su época (Romanos 11:8).
+
+---
+
+### Deuteronomio 29:5
+cuarenta años. La conservación especial de las ropas se menciona en 8:4. El hecho adicional que se da aquí es que no han bebido vino ni ninguna otra bebida fermentada, ya que no hay uvas en el desierto. Tampoco han tenido pan, pero Dios les ha provisto de maná.
+
+---
+
+### Deuteronomio 29:12
+entrar en el juramento pacto. Al llamarlo una renovación del pacto del Sinaí, debemos recordar que el pacto es el mismo, pero el pueblo no. Todos los que tenían más de veinte años en el Sinaí han perecido en el desierto. Muchas de las personas menores de veinte años en ese momento tienen ahora entre cuarenta y sesenta años, y vieron los grandes acontecimientos en el Sinaí. Ahora ellos también deben afirmar su Compromiso con Dios mediante la renovación de la alianza.
+
+---
+
+### Deuteronomio 29:19
+el barrido de lo húmedo y seca por igual. El hebreo de esta frase (aparentemente un proverbio antiguo) es difícil de traducir. La frase entera como se traduce aquí significa que el pecador no escapará del juicio escondiéndose sin ser detectado en la compañía de los justos (cf. v. 21). Otra posibilidad es traducir la frase “de modo que la tierra bien regada sea destruida junto con la tierra seca” o “de modo que el borracho sea destruido junto con el sediento”, indicando que el pecado de uno trae desastre a muchos (cf. vv. 22–25). Otra posible traducción es “añadir embriaguez a la sed”. lo que significa que el hombre pecador agrava su culpa hundiéndose aún más en el pecado.
+
+---
+
+### Deuteronomio 29:21
+este libro de la ley. Véase la nota sobre 28:61 (cf. Josué 1:7, 8).
+
+---
+
+### Deuteronomio 29:23
+Sodoma. Se nombran las cuatro ciudades de la llanura que fueron destruidas en los días de Abraham. En Génesis 14 se mencionan cinco ciudades de la llanura, pero no su destrucción. En Génesis 19 se menciona a Sodoma y Gomorra, y se dice que toda la zona fue destruida, pero Zoar se salvó. Deuteronomio junta los dos registros y enumera las cuatro ciudades destruidas. El juicio de Sodoma es un modelo profético de la ira divina. Al igual que Moisés, Isaías compara el juicio de Israel con el de Sodoma (Is. 1:10). Jesús también compara el juicio en su segunda venida con el de Sodoma (Lc. 17:28–35), al igual que Pedro (2 P. 2:6).
+
+---
+
+### Deuteronomio 29:29
+El significado de la última parte de este versículo es evidente: la instrucción revelada por Dios es de vital importancia, y los israelitas y sus hijos deben seguir esta enseñanza. “Las cosas secretas” pueden sugerir que Moisés anticipa el futuro incierto de la nación, recordando su rebeldía y cómo se volvieron hacia el becerro de oro en Horeb (Éxodo 32). En esta incertidumbre, Moisés confía el futuro oculto a su Dios digno de confianza.
+
+---
+
+### Deuteronomio 30:1
+Anticipando la posibilidad real de juicio y exilio para Israel, Moisés mira más allá del tiempo del juicio hacia el futuro arrepentimiento, restauración y bendición divina de Israel. Es importante destacar que esta bendición futura incluirá la liberación de la esclavitud del pecado. La referencia de Moisés a la circuncisión del “corazón” (v. 6; cf. 10:16) es fundamental para la expectativa profética posterior (Jer. 31:31-34; Eze. 36:25-27), y encuentra su cumplimiento en el NT (Rom. 2:29).
+
+---
+
+### Deuteronomio 30:2
+con todo tu corazón y con toda tu alma. Moisés se refiere nuevamente al gran mandamiento de 6:5, sosteniendo La esperanza del arrepentimiento aun cuando haya habido apostasía y juicio. DEUTERONOMIO 30:2
+
+---
+
+### Deuteronomio 30:4
+La medida de la compasión de Dios en la restauración excederá la medida de su ira en el juicio y el exilio.
+
+---
+
+### Deuteronomio 30
+CABALLERO ... circuncidará tu corazón. Véanse las notas sobre los versículos 1–10 y 10:16. La restauración y renovación prometidas serán el resultado de una obra soberana de Dios en los corazones de sus elegidos. Al circuncidar (transformar) sus corazones, Él reemplazará su incapacidad y terquedad totales (5:29; 10:16; 29:4) con la humildad y el arrepentimiento que necesitan (cf. vv. 1, 2), purificando para sí un pueblo que lo amará y lo obedecerá. Véase “Legalismo” en Mateo 23:4. Recordando sus palabras en 6:6, Moisés sostiene que las obligaciones del pacto que Dios reveló a través de él y la justicia requerida son fácilmente accesibles y alcanzables para Israel (v. 11). Si buscan estas cosas debidamente, es decir, confiando solamente en el Señor y en Su misericordia. Sin embargo, él anticipa que aquellos con corazones y oídos incircuncisos levantarán preguntas negando estas verdades y buscarán establecer una justicia propia (vv. 12, 13). Moisés reprende tal terquedad, insistiendo en que la palabra de justicia se encuentra “en tu boca y en tu corazón” (v. 14), en la boca y el corazón que hablan no en la incredulidad y rebelión de su propia justicia imperfecta, sino en la fe y humildad de la justicia perfecta solamente del Señor. Esta justicia el Señor ha demostrado a Israel en las obras de salvación y juicio por las cuales Él confirmó Su juramento a Abraham, Isaac y Jacob (cf. 8:17, 18; 9:4-6; 30:1-7; esp. 1:29-33; 9:23). El mandamiento que Moisés proclama aquí es una palabra que llama a confiar únicamente en Dios y en sus promesas, y la justicia que revela es una justicia que se alcanza únicamente por la fe (cf. v. 10 nota; Génesis 15:6 nota). Más adelante, Pablo alude a estos versículos en Romanos 10:6-8, actualizando la admonición de Moisés en vista de la revelación de la justicia de Dios en la persona y obra de Cristo. Pablo predica la palabra que llama a la fe donde Moisés tuvo que dejarla, insistiendo en que Israel (y los gentiles) ahora deben confesar con sus bocas que Jesús es el Señor (Romanos 10:12, 13; cf. Deuteronomio 6:4), y creer con sus corazones que Dios lo levantó de entre los muertos (Romanos 10:9). La obra de Dios en Jesucristo revela una vez más Su justicia (Romanos 3:21-26) y confirma Su juramento a los padres (cf. Romanos 4:18-25; Gálatas 3). Véase “Revelación especial y la Biblia” en Éxodo 32:16.
+
+---
+
+### Deuteronomio 30:7
+sobre sus adversarios y enemigos. La futura restauración traerá el cumplimiento de la promesa hecha a Abraham y su descendencia: “Al que te deshonre, yo lo maldeciré” (Gén. 12:3). Moisés vincula la restauración descrita en los versículos 3 al 10 con un juicio futuro de Dios contra los enemigos de Su pueblo.
+
+---
+
+### Deuteronomio 30:10
+Las bendiciones del pacto renovado serán inseparables de la obediencia del remanente restaurado del pueblo a los mandamientos de su Señor, pero no se basarán en ella (cf., por ejemplo, Mateo 14:14). 7:21). La obediencia de Cristo, que es la victoria sobre el pecado en la que participará el remanente por la fe, es la única base meritoria de tales bendiciones (1 Corintios 12:1). Cor. 1:30–31; 2 Cor. 5:21; Ef. 2:8–10).
+
+---
+
+### Deuteronomio 30:15
+He aquí, he puesto delante de ti un camino que Moisés pide que se tome una decisión. Hay dos caminos: la vida o la muerte, la bendición de Dios o el juicio seguro. Josué presenta más adelante las mismas alternativas (Jos. 24:15), y Jesús, que es mayor que Moisés o Josué, llama a sus discípulos a tomar el camino angosto que lleva a la vida (Mt. 7:13, 14).
+
+---
+
+### Deuteronomio 30:19
+el cielo y la tierra para ser testigos. La mención de testigos recuerda la forma de los antiguos documentos de tratados del Cercano Oriente, que tienen una lista de testigos al final, a menudo los nombres de dioses paganos. En el pacto bíblico, la creación de Dios es llamada a dar testimonio contra Su pueblo porque sólo Él es el Señor y no hay dioses fuera de Él. VOLVER DEUTERONOMIO 30:19
+
+---
+
+### Deuteronomio 31:1
+En esta sección final de su obra, Moisés prevé una transición sin problemas en la administración del pacto después de su muerte. También se incluyen el Cántico de Moisés y la bendición de Moisés a las doce tribus. El libro concluye con un obituario de Moisés. 31:1 Moisés continuó hablando. Esta breve exhortación (vv. 1–8) difícilmente puede llamarse un discurso más, sino que es parte de la disposición de Moisés para sus asuntos finales y La transferencia de autoridad a su sucesor Josué (Introducción: Esquema). VOLVER DEUTERONOMIO 31:1
+
+---
+
+### Deuteronomio 31:2
+años. Hechos 7:30 nos dice que Moisés pasó cuarenta años en Madián cuidando ovejas. Este tiempo no fue en vano, ya que aprendió la geografía y el clima de la península del Sinaí en preparación para dirigir a los israelitas en esa zona durante otros cuarenta años. La humillación de ser reducido de príncipe en Egipto a pastor asalariado de ovejas también cumplió el propósito disciplinario divino de preparar a Moisés para su mayor papel como pastor del pueblo de Dios. Esto deja cuarenta años para la juventud de Moisés y su entrenamiento en Egipto. De esta manera, Dios se aseguró de que Moisés estuviera bien preparado para su gran tarea. ya no puede salir ni entrar. Moisés prevé que pronto morirá y ya no participará en los asuntos regulares de la comunidad. El papel multifacético de Jesús como líder de Israel está llegando a su fin.
+
+---
+
+### Deuteronomio 31:3
+Josué pasará al otro lado. Véanse las notas sobre 1:37 y 3:23-28. Aunque el anciano Moisés todavía está activo (34:7), la conquista de Canaán requerirá algunos años, y es tiempo de que el hombre más joven tome el mando. Lo más importante es que el Señor mismo guiará a Israel bajo Josué como lo hizo con Moisés (Éx. 33:14, 15).
+
+---
+
+### Deuteronomio 31:6
+Esforzaos y sed valientes. Estas palabras y las siguientes se asemejan al estímulo que Dios le da a Josué después de la muerte de Moisés (Jos. 1:9).
+
+---
+
+### Deuteronomio 31:7
+Moisés llamó a Josué . La transferencia de liderazgo es a menudo un asunto delicado. Moisés sabiamente, y por orden de Dios, orden, eleva a Josué en presencia del pueblo.
+
+---
+
+### Deuteronomio 31:9
+Moisés escribió esta ley. La conclusión del ministerio de pacto de Moisés está marcada por el registro por escrito del discurso de Moisés (vv. 24–26; 28:61 nota). Repetidamente en Éxodo y en Deuteronomio, se dice que Moisés escribió las normas e instrucciones dadas por el Señor. En Levítico, la mayoría de los capítulos comienzan con las palabras: “El Señor habló a Moisés”. Dios usó a Moisés de manera preeminente para hablar y escribir Su palabra para Israel.
+
+---
+
+### Deuteronomio 31:10
+Moisés dispone que los sacerdotes enseñen regularmente al pueblo y a sus hijos las estipulaciones del pacto en un momento del año en que el pueblo tiene tiempo suficiente para aprender. La Fiesta de los Tabernáculos se celebra en otoño y dura una semana (16:13-17 nota). Durante el año sabático, la tierra debe permanecer en barbecho y el pueblo no debe verse agobiado por las tareas agrícolas (15:1 nota). Esta práctica de leer las estipulaciones del pacto a intervalos regulares era característica de los tratados de soberanía entre las naciones de la época de Moisés, que normalmente preveían la publicación regular de las términos del acuerdo de pacto (ver Introducción: Fecha y ocasión). VOLVER DEUTERONOMIO 31:10
+
+---
+
+### Deuteronomio 31:14
+La tienda de reunión. La legitimidad y autoridad de Josué como sucesor de Moisés se destacan por su comisión en la tienda de reunión (es decir, el tabernáculo), acompañada por La aparición de Dios en la columna de nube (cf. Nm 12,4-12).
+
+---
+
+### Deuteronomio 31:19
+Escribe este cántico. Conociendo la inclinación del pueblo a ser infiel (v. 21), y dándose cuenta del poder del cántico en la adoración y en la memoria, el Señor le ordena a Moisés que escriba un cántico que sirva como testimonio en días futuros. Otros ejemplos de poesía asociada con Moisés incluye Éx. 15:1–18; 32:18; Núm. 10:35, 36; y Sal. 90.
+
+---
+
+### Deuteronomio 32:1
+Oh cielos... tierra. Moisés llamó al cielo y a la tierra como testigos al final de la renovación del pacto en 30:19.
+
+---
+
+### Deuteronomio 32:3
+proclamar el nombre del CABALLERO Este cántico es para dar testimonio en los días futuros del Señor, de su bondad y de su obra salvadora en favor de Israel (31:19).
+
+---
+
+### Deuteronomio 32:4
+Roca. Este capítulo proporciona las primeras instancias en las Escrituras de “Roca” como nombre para Dios (vv. 15, 18, 30; hay una imagen similar en Génesis 49:24 que utiliza una palabra hebrea diferente). El término, que sugiere la firme fidelidad y permanencia de Dios, es común en los Salmos y otros pasajes poéticos (Sal. 95:1; Is. 44:8).
+
+---
+
+### Deuteronomio 32:5
+porque tienen defecto. Observe el marcado contraste entre el Dios justo y constante (v. 4) y la nación corrupta (v. 5).
+
+---
+
+### Deuteronomio 32:8
+su herencia. El significado aquí es que Dios por decreto le dio la Tierra Prometida a Israel. Era una antigua concesión a los patriarcas (v. 7). Según... los hijos de Dios. Moisés está recordando los días antiguos (Gn 10, la tabla de las naciones y la división de los pueblos) para señalar que solo Israel es seleccionado en medio de la dispersión de tribus y naciones para la vocación especial del Señor. Dios es soberano sobre toda la historia, pero la historia misma está ordenada en interés del plan de redención de Dios para su pueblo elegido, Israel (Gn 12:3).
+
+---
+
+### Deuteronomio 32:10
+como la niña de sus ojos. Una referencia a la pupila del ojo. Así como la pupila del ojo está cuidadosamente protegida contra el daño, así también Dios protege a Israel. El pueblo de Dios está, por lo tanto, en el centro mismo de la visión de Dios.
+
+---
+
+### Deuteronomio 32:11
+El águila revolotea sobre sus crías. La imagen es la de un águila que enseña a sus crías a volar. Las figuras poéticas del Cántico de Moisés son expresiones poderosas de la relación de Dios con su pueblo. Véase también Génesis 1:2 y nota.
+
+---
+
+### Deuteronomio 32:14
+carneros de Basán. Véase la nota en 3:1.
+
+---
+
+### Deuteronomio 32:15
+Jesurún. Del hebreo Término que significa “recto” (yashar). A menudo se utiliza para representar a Israel como el pueblo recto de un Dios santo y justo (33:5, 26; Is. 44:2). Aquí el término se utiliza irónicamente. engordó y dio coces. A Israel se le describe con la figura elocuente de un buey bien alimentado.
+
+---
+
+### Deuteronomio 32:17
+Ver nota teológica “Demonios”.
+
+---
+
+### Deuteronomio 32:21
+ningún pueblo. Así como Israel provocó a Dios al adorar a lo que “no era dios”, Dios los provocará por medio de “los que no son pueblo” (personas fuera de la esfera del pacto mosaico). Esta profecía se cumple en parte en el Antiguo Testamento cuando Israel es derrotado por los instrumentos de juicio de Dios, los asirios y los babilonios (Is. 10:13). 10:5; Jer. 21:4-10). En el NT, Pablo encuentra un mayor cumplimiento de este versículo en el extensión del evangelio a los gentiles (Rom. 10:19; 11:11).
+
+---
+
+### Deuteronomio 32:22
+Se enciende un fuego... Profundidades del Seol. Para la figura de la ira de Dios como fuego consumidor, véase Sal. 21:9; Jer. 15:14; 17:4. La figura poética aquí representa la ira de Dios como un fuego devorador que quema hasta la tumba más profunda, consume la superficie de la tierra y llega hasta las raíces de las montañas. “Seol” es a menudo simplemente un término para la tumba, pero también puede referirse al lugar donde los malvados van después de la muerte para esperar el juicio final.
+
+---
+
+### Deuteronomio 32:27
+para que sus adversarios no los persiguieran. No entiendan bien. Aunque Israel merece la destrucción total por su desobediencia (v. 26), el Señor preserva un remanente del pueblo, para que los gentiles no se atribuyan el mérito de su victoria sobre Israel y no vean la mano de Dios en la historia. Asiria y Babilonia son juzgadas más tarde por su arrogante incomprensión (Is. 10:12-19; 47:6-8).
+
+---
+
+### Deuteronomio 32:30
+uno persiguió a mil. Los números no importan cuando el Señor interviene. Israel, con la ayuda de Dios, pondrá en fuga a un gran número de adversarios (Lev. 26:8), mientras que un Israel numeroso pero desobediente será derrotado por unos pocos, e incluso huirá cuando nadie lo persiga (Lev. 26:17).
+
+---
+
+### Deuteronomio 32:32
+La vid de Sodoma. Los dioses falsos traen malas acciones y frutos venenosos. Sodoma simboliza una terrible destrucción. (nota 29:23)
+
+---
+
+### Deuteronomio 32:35
+Mía es la venganza, y Recompensa. El NT cita este versículo dos veces, usando una redacción ligeramente diferente (Rom. 12:19; Heb. 10:30).
+
+---
+
+### Deuteronomio 32:36
+vindicar... tener compasión. Israel debe ver que no tienen ayuda aparte del único Dios verdadero.
+
+---
+
+### Deuteronomio 32:39
+Yo, yo soy. El hebreo enfatiza mediante la repetición. Toda esta estrofa es una expresión imponente de la singularidad de Dios en su ser, poder, providencia y justicia. Debido a que Dios es infinitamente justo y todopoderoso, podemos estar seguros de que el mal finalmente será destruido (Apocalipsis 19:1, 2).
+
+---
+
+### Deuteronomio 32:43
+¡Regocijaos! La Septuaginta y uno de los Rollos del Mar Muerto contienen una versión más larga de esta frase (nota de texto). Esta versión más larga posiblemente se cita en Hebreos 1:6. Él venga la sangre de sus hijos. Este canto triunfal de Moisés tiene eco en la consumación de la historia humana (Apocalipsis 19:2).
+
+---
+
+### Deuteronomio 32:47
+vuestra propia vida. Moisés enfatiza nuevamente que la obediencia a los mandamientos de Dios, de corazón, es una cuestión de vida —vida eterna— y muerte (30:19, 20). Debido a que los pecadores no pueden rendir la obediencia perfecta que el Señor ordena, la obediencia que asegura la vida eterna es, en última instancia, la obediencia a otro: Jesucristo, el Cordero perfecto de Dios prefigurado en los sacrificios del Antiguo Testamento (Rom. 3:21–26; 5:12–21; Heb. 9:1–10:18).
+
+---
+
+### Deuteronomio 32:49
+Monte Nebo. Generalmente identificado como el moderno Jebel Neba, una montaña a doce millas (19 km) al este del punto de entrada del río Jordán al Mar Muerto. El monte Nebo, que se eleva más de cuatro mil pies (1219 m) sobre el Mar Muerto, le proporcionará a Moisés un punto estratégico desde el cual ver la Tierra Prometida.
+
+---
+
+### Deuteronomio 33:1
+En Génesis 49, los hijos de Lea En primer lugar se mencionan los hijos de Raquel, seguidos por los de las siervas y Raquel. Aquí el orden es diferente. Rubén, el primogénito, es mencionado primero (v. 6), seguido por la tribu real de Judá (v. 7; cf. Gn. 49:10) y la tribu sacerdotal de Leví (vv. 8-11). Las tribus descendientes de los hijos de Raquel son las siguientes (vv. 12-17), seguidas por los dos hijos restantes de Lea, Zabulón e Isacar (vv. 18, 19). Finalmente, se mencionan los hijos de los sirvientes. Se mencionan los hijos de Simeón (vv. 20–24). Se omite la tribu de Simeón, tal vez para conservar el número doce, aunque la bendición de Jacob predijo que Simeón sería esparcido por todo Israel (Gén. 49:7). 33:1 el hombre de Dios. Esta expresión se usa habitualmente para los profetas (1 Sam. 9:6; 1 R 13:1; 17:18; 2 R 4:7) pero se aplica a Moisés sólo aquí y en el título del Salmo 90.
+
+---
+
+### Deuteronomio 33
+CABALLERO vino del Sinaí. El acontecimiento decisivo del ministerio de Moisés, la revelación en el Sinaí, se recuerda en términos que describen la teofanía en la montaña (Éx. 19:18; cf. Hab. 3:3). Los santos. Probablemente se trate de una referencia a los ángeles de las huestes celestiales que rodeaban el trono de Dios (cf. 1 R 22:19; Dn 7:9, 10). El NT también menciona el papel de los ángeles en la promulgación de la ley mosaica (Hch 7:53; Gál 3:19; Heb 2:2 y nota).
+
+---
+
+### Deuteronomio 33:5
+llegó a ser rey en Jesurún. Una referencia al Señor como rey sobre su pueblo (cf. 1 Sam. 12:12; Sal. 10:16). A Moisés nunca se le llama rey. Sobre “Jesurún”, véase nota 32:15.
+
+---
+
+### Deuteronomio 33:6
+pero que... Esta lectura podría reflejar la maldición sobre Rubén en Génesis 49:3, 4.
+
+---
+
+### Deuteronomio 33:7
+Judá. Esta bendición hace alusión al papel guerrero de los reyes davídicos, descendientes de Judá, al liderar a Israel en la batalla. Pero la bendición sobre Judá es extremadamente breve en vista de la promesa de gobernar a Judá en Génesis 49:8-12 y en vista del gran papel que desempeñó Judá en la historia posterior. Debido a que un escritor posterior podría haber querido darle más prominencia a Judá, la brevedad de esta bendición apunta a una fecha de composición durante la vida de Moisés.
+
+---
+
+### Deuteronomio 33:8
+Leví. La bendición sobre Leví refleja la fidelidad de la tribu en el momento del becerro de oro, cuando los levitas se unieron al lado de Moisés y actuaron en juicio contra sus hermanos pecadores (Éxodo 32:27-29). 29). Tumim... Urim. Véase la nota sobre Éxodo 28:30.
+
+---
+
+### Deuteronomio 33:16
+que habita en la zarza. Moisés alude a Éxodo 3:4. Príncipe entre sus hermanos. La palabra hebrea traducida “príncipe entre” se usa a veces para referirse a alguien que es apartado por el voto nazareo (cf. Nm. 6:1–21). Nota). Véase Génesis 49:26. Esta puede ser la base para que Jesús sea llamado Nazareno en Mateo 2:23.
+
+---
+
+### Deuteronomio 33:17
+diez millares... millares. Durante este período, Efraín es más pequeño que Manasés (Núm. 26:34, 37), pero Efraín llegará a ser más numeroso e importante (cf. Gén. 48:17-20). Debido a la importancia de la tribu, el nombre “Efraín” se aplicó más tarde a las diez tribus que componían el reino del norte de Israel (2 Cr. 25:7; Os. 5:3, 11–14).
+
+---
+
+### Deuteronomio 33:22
+Basán. Véase la nota sobre 3:1. Esta bendición puede referirse al asentamiento norteño de Dan, ubicado cerca de Basán (Jue. 18:27–29). Lo más probable es que se trate de una comparación de Dan con la fuerza y ferocidad de los Es posible que se vean leones que habitan en los bosques de Basán.
+
+---
+
+### Deuteronomio 33:24
+mojará su pie en aceite. El aceite de oliva, valioso como alimento y también como combustible para las lámparas, aquí simboliza la tribu Prosperidad material (Gén. 49:20; cf. Job 29:6).
+
+---
+
+### Deuteronomio 33:26
+Esta última estrofa ha bendecido los corazones del pueblo de Dios a través de los siglos. Él es el Dios majestuoso (v. 26), el Dios eterno (v. 27), el Dios protector y proveedor (v. 28). La gran bendición de Israel fue que Él era su Dios. La gran bendición de la iglesia del nuevo pacto es que este mismo Dios es nuestro Dios. Un himno de alabanza tan espléndido tal vez sólo sea igualado por pasajes del NT como “el cántico de Moisés siervo de Dios, y el cántico del Cordero” en Apocalipsis 15:3, 4. 33:26 Jesurún. Véase 32:15 y nota.
+
+---
+
+### Deuteronomio 34:1
+Este capítulo es un suplemento. Muchos sugieren que fue añadido por el autor del libro de Josué para conectar su obra con los libros de Moisés, aunque también podría haber sido la adición de un editor posterior (Introducción: Autor). 34:1 Galaad hasta Dan. Las descripciones aquí y en el v. 2 nombran las áreas en términos de las áreas tribales designadas en el libro de Josué (Jos. 13–19).
+
+---
+
+### Deuteronomio 34:7
+sin atenuarse... sin disminuir. Véase la nota sobre 31:2.
+
+---
+
+### Deuteronomio 34:8
+Treinta días. El mismo período de luto que el de Aarón (Núm. 20:29; cf. Gén. 50:3, 10; 2 Sam. 1:12). Las manifestaciones rituales de luto en el AT incluyen el llanto, el ayuno, el rasgarse las vestiduras, vestir cilicio y echarse polvo sobre la cabeza (Gén. 37:34, 35; Sal. 35:13; Lam. 2:10). Ciertas prácticas de luto estaban prohibidas para Israel (nota de 14:1).
+
+---
+
+### Deuteronomio 34:9
+espíritu de sabiduría... puso su Moisés puso previamente su mano sobre Josué para simbolizar la transferencia del liderazgo divinamente ordenado (Números 27:18). Dios da poder a quienes Él elige y ordena para el servicio.
+
+---
+
+### Deuteronomio 34
+Véase la nota teológica “Los profetas de Dios” en la pág. 279. 34:10 Desde entonces. Como no se especifica un período de tiempo, estas palabras no necesariamente implican que habían pasado muchas generaciones desde la muerte de Moisés. Josué ocupó el lugar de Moisés, pero se dio cuenta de que los milagros de Moisés y su acceso a Dios habían sido únicos (Núm. 12:6-8).
+
+---
+
+### Deuteronomio 34:11
+Las señales y los prodigios. Las demostraciones milagrosas del poder de Dios en Egipto en el momento del éxodo. Jesús se levantó como profeta como Moisés, pero superior a él. Hizo milagros, señales y prodigios delante de los reyes y gobernantes del pueblo y a la vista de todo Israel. (Mateo 4:23–25; Juan 20:30–31; Hechos 2:22; 3:22–26).
+
+---

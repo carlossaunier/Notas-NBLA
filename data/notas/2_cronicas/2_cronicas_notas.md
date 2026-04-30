@@ -1,0 +1,2186 @@
+# Notas de Estudio - 2 Crónicas
+
+### 2 Crónicas 9:31
+En consonancia con su planteamiento general, el Cronista idealiza a Salomón. Al resaltar sus virtudes y omitir sus defectos, presenta a Salomón como un modelo a seguir para sus contemporáneos y también aumenta su expectativa por el venidero que cumplirá plenamente lo que se le exige. 1:1–17 Esta sección se ve equilibrada por una sección final que trata de la sabiduría y la riqueza de Salomón (9:13–28). Sin embargo, aquí la adoración también desempeña un papel importante, un aspecto que lamentablemente falta en el relato final. 1:1 El cronista usa con frecuencia expresiones como esta para indicar éxito después de dificultades (12:13; 13:21; 17:1; 25:11; 27:6). Indirectamente, reconoce que el ascenso de Salomón al poder ha sido tumultuoso, aunque omite los detalles que se dan en 1 Reyes 2 (1 Crónicas 23:1 nota). Dios estaba con él. El éxito de Salomón es el resultado de la bendición soberana de Dios. En cumplimiento de las esperanzas de David (1 Crónicas 22:11, 16; 28:20).
+
+---
+
+### 2 Crónicas 1:2
+Este pasaje sigue aproximadamente a 1 Rey. 3:4–15, pero el relato se amplía un poco, enfatizando el tema del reinado de Salomón sobre “todo Israel” (v. 2; véase 1 Cr. 11:1) y explicando por qué Salomón fue a Gabaón, a ocho millas (13 km) al noroeste de Jerusalén, para sacrificar (vv. 3–6).
+
+---
+
+### 2 Crónicas 1:5
+Bezalel. En el transcurso de la construcción del templo, Salomón surge como una especie de contraparte de Bezalel, quien ayudó a construir el tabernáculo (véase 2:14). Véanse las notas sobre 1 Crónicas 2:20 y Éxodo 31:1– 11. El hebreo es ambiguo. En lugar de referirse al altar, puede significar “lo buscó” (ver nota del texto), una referencia al Señor, que es el sustantivo más cercano al pronombre no especificado.
+
+---
+
+### 2 Crónicas 1:7
+apareció... dijo. Al igual que el libro de 1 Reyes, Crónicas informa que Dios habla directamente a Salomón en sueños (7:12). Salomón, como David, es un instrumento de revelación para Israel (1 Crónicas 22:8; 28:6, 19).
+
+---
+
+### 2 Crónicas 1:9
+Habla a David mi padre Ahora se cumplirá. Esta petición vincula el reinado de Salomón con el de David (1 Crónicas 17:1-2). 15 nota; 22:5 nota). Salomón depende completamente de Dios para poder llevar a cabo su papel como rey (1 Cr. 29:14–16 nota). tan numerosos como el polvo de la tierra. Salomón reconoce la multiplicación de Israel como el cumplimiento de la promesa de Dios a Abraham (Gén. 13:16; 22:17). La promesa anima a los lectores de la época posterior al exilio babilónico a tener esperanzas de una repoblación exitosa de la Tierra Prometida en sus propios días (Neh. 1:8, 9; Zac. 8:7, 8).
+
+---
+
+### 2 Crónicas 1:10
+sabiduría. El esplendor y el poder del reinado de Salomón son el resultado de la sabiduría divinamente otorgada, término que implica discernimiento y capacidad para la acción eficaz. En su sabiduría, Salomón prefigura a Cristo, quien es la sabiduría de Dios encarnada (Is. 11:1, 2; Col. 2:3). conocimiento. Esto también contiene un componente práctico. No es mera posesión de los hechos, sino también la capacidad de utilizarlos para orientar la conducta adecuada.
+
+---
+
+### 2 Crónicas 1:13
+El relato de Reyes termina con el sacrificio de Salomón en Jerusalén (1 R. 3:15). Pasando por alto este hecho, así como el juicio de Salomón entre las dos madres (1 R. 3:16-28), Crónicas se centra en la construcción del templo por parte de Salomón como una demostración de su sabiduría.
+
+---
+
+### 2 Crónicas 1
+Dios cumple su promesa de enriquecer a Salomón (v. 12). Este pasaje está relacionado con su paralelo (9:13–17). 28) en la narración general por la repetición del tema del comercio de caballos (cf. 1:14, 16, 17 con 9:25-28) y la abundancia de “plata y oro” como “piedra” y “cedro” tan común como los sicómoros (1:15; 9:27). El comercio de caballos y Los carros eran un aspecto del comercio internacional de armas en la época de Salomón. 2 CRÓNICAS 1:14
+
+---
+
+### 2 Crónicas 2
+La obra más destacada de Salomón en Crónicas es la construcción del templo. La mención del templo y el palacio (v. 1) y de Hiram (v. 3) conecta este pasaje con el relato paralelo de 8:1–16. 2:1, 4 por el nombre del SEÑOR . Es decir, por su posesión y presencia. Véase Nota sobre 1 Crónicas 13:6.
+
+---
+
+### 2 Crónicas 2:2
+asignó 70.000 hombres. Estos Los reclutas no son israelitas (v. 17). Véase la nota sobre 1 Cr. 22:2.
+
+---
+
+### 2 Crónicas 2:3
+David mi padre. Este relato del mensaje de Salomón a Hiram deja en claro que David hizo los preparativos para la obra de construcción que Salomón ahora está emprendiendo (v. 7; y véase 1 R. 5:3–5). Véase la nota sobre 1 Cr. 22:5. 2:4 como ordenado para siempre para Israel. Un recordatorio de que los servicios del templo de Salomón aún deben ser observados por la comunidad postexílica.
+
+---
+
+### 2 Crónicas 2:6
+no puede contenerlo. Salomón reconoce que su templo es incapaz de contener al Creador omnipresente (6:18). Sin embargo, el esplendor del templo debe reflejar la grandeza de Dios. ¿Quién soy yo? Salomón reconoce que no es digno de la bendición de Dios, como lo fue su padre antes que él (1 Crónicas 17:16 nota).
+
+---
+
+### 2 Crónicas 2:10
+El pago aquí a los trabajadores No es lo mismo que el pago anual a Hiram (1 R 5:11).
+
+---
+
+### 2 Crónicas 2:11
+Porque Jehová ama a su pueblo, Aunque las palabras de Hiram no tienen más que la intención de ser una mera cortesía diplomática, el Cronista las cita para demostrar que el establecimiento de la La línea davídica es un acto de amor divino hacia Israel (nota 1 Crónicas 14:2).
+
+---
+
+### 2 Crónicas 2:12
+hijo sabio. Este versículo deja claro que la sabiduría de Salomón es visible en su construcción del templo (1:13). nota)
+
+---
+
+### 2 Crónicas 2:14
+Daniel 1 Reyes 7:14 informa que el La madre de Hiram-abi (allí llamada Hiram) es de Neftalí. Es posible que fuera miembro de la tribu de Dan, pero que viviera en Neftalí. El cronista probablemente utiliza esta conexión, y la forma más larga del nombre de Hiram, para resaltar el paralelo con Oholiab, el ayudante de Bezalel en la construcción del tabernáculo, que era de la tribu de Dan (Éx. 35:34).
+
+---
+
+### 2 Crónicas 2:17
+extranjeros... para llevar cargas... para extraer... capataces que hicieran trabajar al pueblo. Véase nota sobre 1 Crónicas 22:2.
+
+---
+
+### 2 Crónicas 3:1
+Tal vez el cronista da un relato menos detallado de la estructura del templo, omitiendo 1 R 6:4–20, debido a la construcción más modesta del segundo templo (véase Hag. 2:3). Sin embargo, su descripción del equipo del templo es más elaborada (4:1, 6–9). 3:1 Monte Moriah... la era de Ornán. La ubicación del templo de Salomón es sagrada, correspondiendo al lugar donde Abraham fue juzgado (Gén. 22:2– 14) David compró este sitio después de su censo (1 Crónicas 21:1–22:1), asegurándolo para Salomón comenzará a trabajar allí (nota 1 Crónicas 22:5).
+
+---
+
+### 2 Crónicas 3:2
+el segundo mes del cuarto Año. Abril/Mayo 966 a.C.
+
+---
+
+### 2 Crónicas 3:3
+En comparación con el relato de la construcción del templo en 1 Reyes 6:4–20, este relato da más detalles de la ornamentación (3:4–9), incluidas las decoraciones del salón principal (“el vestíbulo”; 3:4–7), el Lugar Santísimo (3:8–14) y las columnas (3:15–17). 3:3 codos del antiguo estándar. Aproximadamente 21 pulgadas (53 cm), tres pulgadas más largo que el codo común de aproximadamente 18 pulgadas (46 cm).
+
+---
+
+### 2 Crónicas 3:4
+El vestíbulo. El vestíbulo del templo hace que la longitud de toda la estructura sea de ochenta codos (120 pies [37 m]). 120 codos. “Codos” no está en el texto hebreo, pero probablemente se pretendía decir así. Las versiones sugieren que el número debería ser veinte.
+
+---
+
+### 2 Crónicas 3:5
+La nave. Es decir, el Lugar Santo.
+
+---
+
+### 2 Crónicas 3:6
+Oro de Parvaim. Oro de la más fina calidad, posiblemente originario de un lugar con ese nombre en el sudeste de Arabia.
+
+---
+
+### 2 Crónicas 3:9
+Cincuenta siclos. La pequeña cantidad de oro involucrada sugiere que se utilizó únicamente para cubrir las cabezas de los clavos.
+
+---
+
+### 2 Crónicas 3:10
+querubines. Estas decoraciones son estatuas independientes (vv. 11-18), mucho más grandes que los querubines del propiciatorio. asiento del arca del pacto (Éx. 25:18-20).
+
+---
+
+### 2 Crónicas 3:14
+El velo. El templo de Salomón está inspirado en el tabernáculo de Moisés, pero con el doble de tamaño (Éx. 26:31–35). En ella hay también un velo que separa el Lugar Santísimo del Lugar Santo (“la nave”). El velo prohíbe el acceso al Lugar Santísimo y simboliza la restricción de admisión a la presencia de Dios, restricción que fue eliminada en la obra mediadora de la muerte de Cristo (Mt. 27:51 nota; Heb. 9:1–14 nota; 10:11–22 nota). nota)
+
+---
+
+### 2 Crónicas 3:15
+treinta y cinco codos de altura. 1 Rey. En 2 Crónicas 7:15 se lee “dieciocho codos” (véase 2 R. 25:17; Jer. 52:21). Se ha sugerido que “treinta y cinco” representa la suma de las longitudes de las dos columnas (dieciocho más dieciocho) o la suma de las dimensiones dadas (dieciocho de altura, doce de circunferencia y cinco para el capitel). También es posible que haya habido un error de copia involuntario. Véase Introducción a 1 Crónicas: Números especiales.
+
+---
+
+### 2 Crónicas 3:16
+como un collar. “En el santuario interior” (nota del texto) probablemente surgió a través de una transposición accidental de un escriba letras en la palabra original (ver “trabajo en cadena”, 1 R 7:17).
+
+---
+
+### 2 Crónicas 3:17
+columnas. Véase la nota sobre 1 Reyes 7:21.
+
+---
+
+### 2 Crónicas 4:1
+altar de bronce. También se menciona en 1 R 8:64; 2 R 16:14. El altar de bronce es el altar principal. Las medidas grandes son las dimensiones de la base, desde la cual se suben escalones al altar (Ez 43:13-17).
+
+---
+
+### 2 Crónicas 4:2
+Mar de fundición. Versión de Salomón de la “lavabo de bronce” del tabernáculo de Moisés (Éx. 30:18). En el templo, el caótico “mar” es simbólicamente subyugado en un estanque apacible como señal de la soberanía del Señor sobre todo el universo. El agua de este lavadero se utiliza para rituales de purificación (4:6; 1 R. 7:23 nota).
+
+---
+
+### 2 Crónicas 4:3
+calabazas. Aunque en hebreo se lee “bueyes”, el borde ornamental probablemente sea de calabazas de algún tipo (ver 1 Rey. 7:24)
+
+---
+
+### 2 Crónicas 4:4
+doce bueyes. Véase la nota sobre 1 R. 7:25. Los doce toros señalan las cuatro direcciones de la brújula (véase Números 2 en el campamento de las tribus; véase también Apocalipsis 21:12–14).
+
+---
+
+### 2 Crónicas 4:5
+batos. 1 R 7:26 dice “dos mil baños”. Son números redondos, no declaraciones exactas de volumen. Alternativamente, una cifra representa la capacidad máxima mientras que la otra es lo que normalmente contiene.
+
+---
+
+### 2 Crónicas 4:7
+diez candeleros de oro...diez mesas... cien fuentes. El tabernáculo contenía sólo uno de cada uno de estos elementos (Éxodo 25:23- 40; 30:17-21).
+
+---
+
+### 2 Crónicas 4:9
+atrio de los sacerdotes y el gran El patio. Ambos patios se mencionan en Reyes (1 R 6:36; 7:12). El gran patio es para los laicos.
+
+---
+
+### 2 Crónicas 4:11
+El texto sigue a 1 R. 7:40– 50 en la descripción de la obra de Hiram.
+
+---
+
+### 2 Crónicas 5:1
+Se terminó después de siete años y medio. David, su padre. El cronista relaciona el templo de Salomón directamente con el de David . preparativos (nota 2:3).
+
+---
+
+### 2 Crónicas 7:10
+El texto sigue de cerca el relato de la dedicación del templo en 1 Reyes 8. El informe se divide en cuatro secciones equilibradas: una celebración inicial del traslado del arca (5:2–6:2); la bendición de Salomón (6:3–11); la oración de Salomón (6:12–42); y las celebraciones finales (7:1–10). 5:2 para subir el arca. Desde la antigua ciudadela de Sión hasta la cresta de Moriah, al norte de la muralla original de la ciudad. La descripción recuerda la exitosa El transporte del arca a Jerusalén (1 Crónicas 15). a David y a Salomón. 1 Rey. 8:66 simplemente dice “David”. El cronista revela la construcción del templo como un esfuerzo conjunto de David y Salomón (nota 1 Crónicas 22:5).
+
+---
+
+### 2 Crónicas 5:3
+todos los hombres de Israel. Al igual que David, Salomón recibe un amplio apoyo de Israel (nota de 1 Crónicas 11:1). Séptimo mes. Es Tishri, cuando se celebra la Fiesta de las Cabañas. Puesto que el templo se termina en el octavo mes del undécimo año de Salomón (1 R. 6:38), el arca es traída once meses después. Un escenario que algunos apoyan, que la dedicación ocurre un mes antes de que se complete la construcción, es extremadamente improbable.
+
+---
+
+### 2 Crónicas 5:5
+La tienda de reunión. Estuvo en Gabaón hasta este punto (1:13). Sacerdotes levitas. Las repetidas referencias a sacerdotes y levitas en este relato indican que Salomón observa cuidadosamente las normas del tabernáculo y del templo (notas de 1 Crónicas 6).
+
+---
+
+### 2 Crónicas 5:9
+allí hasta el día de hoy. Probablemente un Frase copiada de la fuente del Cronista. Véase la nota sobre 1 Crónicas 4:41.
+
+---
+
+### 2 Crónicas 5:10
+Nada... excepto los dos Tablas. En tiempos de Moisés, el arca también contenía la vara de Aarón (Núm. 17:10, 11) y la jarra de maná (Éx. 16:32-34). Es posible que se perdieran en los disturbios provocados por los filisteos.
+
+---
+
+### 2 Crónicas 5:11
+Véase 1 Rey. 8:10, 11. Crónicas enfatiza el uso de la música en la adoración en el templo (nota 1 Crónicas 15:16). 5:11 sin tener en cuenta sus divisiones. La ocasión es tan importante que la Se abandona la rotación mensual para asistir al templo.
+
+---
+
+### 2 Crónicas 5:13
+Él es bueno... para siempre. Una frase descriptiva de alabanza que honra a Dios por su bondad y misericordia duraderas (7:3, 6; Sal. 106:1; 107:1; 136). 5:13, 14 nube... gloria. Dios bendice el templo de Salomón con la presencia de su gloria en forma de nube, tal como bendijo el tabernáculo (Éx. 40:34– 38). Los profetas esperan más tarde que la gloria de Dios regrese al templo después del exilio en Babilonia (Ezequiel 43:1-5; Hag. 2:7-9; Zacarías 2:10; 8:3). Cuando la gloria de Dios regrese, no tomará la forma de una nube, sino de la presencia encarnada de uno. “mayor que el templo”, Jesucristo (Mateo 12:6), quien es la máxima manifestación de la gloria divina (Juan 1:14).
+
+---
+
+### 2 Crónicas 6:1
+Salomón expresa su esperanza en la permanencia de la presencia de Dios en el templo, una preocupación clave para la comunidad que buscaba restablecerse después de regresar del exilio en Babilonia en el siglo VI a. C. (5:13, 14 nota).
+
+---
+
+### 2 Crónicas 6:5
+Nombre. El término aparece catorce veces en este capítulo. El nombre divino encapsula lo que Dios ha revelado de su carácter y realidad esencial. Véase la nota sobre 1 Crónicas 13:6. El templo de Salomón está diseñado para ser el lugar donde Él se acercará a Su pueblo y se revelará a ellos.
+
+---
+
+### 2 Crónicas 6:6
+Yo he elegido a Jerusalén . La elección soberana de Jerusalén cumple con Deuteronomio 12:5.
+
+---
+
+### 2 Crónicas 6:9
+No seréis vosotros los que edifiquéis . La explicación de la descalificación de David, véase 1 Crónicas 22:6-10 y nota. 2 CRÓNICAS 6:9
+
+---
+
+### 2 Crónicas 6:10
+cumplió su promesa. Véanse las notas sobre 1 Crónicas 17:1–15.
+
+---
+
+### 2 Crónicas 6:13
+Este versículo no aparece en el texto hebreo tradicional (masorético) de 1 Reyes 8, pero es posible que se incluyera en la primera edición de Reyes y que un copista lo pasara por alto más tarde. Véase Introducción a 1 Crónicas: Números especiales. atrio. El “gran atrio” que se encontraba fuera del templo propiamente dicho (nota 4:9). Salomón se arrodilló. Salomón reconoce públicamente que su reinado está subordinado a la autoridad real del Señor.
+
+---
+
+### 2 Crónicas 6:14
+guardando el pacto y mostrando Amor constante. Las palabras de alabanza de Salomón tocan ambos lados de la relación de pacto entre el Señor y su pueblo. Dios cumple su pacto, y el pueblo debe andar en él “con todo su corazón”. La violación del pacto invita a la retribución divina (Deut. 7:9–12; 30:15–20). Esta idea del pacto es central en Crónicas (1 Cr. 28:9 nota).
+
+---
+
+### 2 Crónicas 6:16
+Salomón se refiere a la promesa dado a través de Natán de una dinastía permanente (1 Crónicas 17:7–14 notas).
+
+---
+
+### 2 Crónicas 6:18
+Salomón se concentra en el núcleo de su preocupación. Ora para que el templo sea el centro nacional de oración eficaz. Comienza con una petición general a Dios para que escuche las oraciones del pueblo (vv. 18–21) y luego enumera siete situaciones específicas en las que se pueden ofrecer oraciones en el templo o hacia él (vv. 22–39). Este aspecto de la oración de Salomón anima a los lectores originales de la obra del Cronista después del exilio a hacer del templo restaurado el centro de la oración en su propia época. 6:18 Los cielos y los cielos más altos no pueden contenerte. Véase la nota sobre 2:6.
+
+---
+
+### 2 Crónicas 6:19
+oración... ora. Ver nota sobre 7:14.
+
+---
+
+### 2 Crónicas 6:20
+escuchar. O “oír”. Aparece cinco veces en los versículos 19-21.
+
+---
+
+### 2 Crónicas 6:21
+escuchad desde los cielos. Salomón repite esta expresión siete veces en las peticiones de su oración (vv. 23, 25, 27, 30, 33, 35, 39), añadiendo cuatro veces “tu morada” (vv. 21, 30, 33, 39). Para el Israel del antiguo pacto, el templo es el lugar terrenal que proporciona acceso a la corte celestial a través de los sacrificios que allí se ofrecen y la promesa de la salvación de Dios. Presencia llena de gracia (1 Crónicas 13:6 nota). Este papel se consuma ahora en Cristo, el templo encarnado (Juan 16:23; Hebreos 7:25).
+
+---
+
+### 2 Crónicas 6:22
+hizo juramento. Porque el Aquí se piensa en todo tipo de procedimientos legales (véase Éxodo 22:10, 11; Levítico 6:1- 7). 2 CRÓNICAS 6:22
+
+---
+
+### 2 Crónicas 6:24
+derrotados... porque tienen pecó. La derrota militar se menciona a menudo como una consecuencia de la violación del pacto (Levítico 26:14-17; Deuteronomio 28:25, 26, 47-52). 6:24, 26 se vuelven otra vez... se vuelven. Véase nota sobre 7:14.,
+
+---
+
+### 2 Crónicas 6:28
+hambre... langostas. Las hambrunas y las plagas de diversos tipos suelen incluirse como maldiciones del pacto (Levítico 26:16, 20, 25, 26; Deuteronomio 28:20-22, 27, 28, 35, 42).
+
+---
+
+### 2 Crónicas 6:34
+Salid a la batalla. El escritor informa con frecuencia cómo Dios responde a las oraciones que se ofrecen en la batalla (ver notas sobre 1 Crónicas 6:34). 5:18–22; 2 Crónicas 13:14; 14:11; 18:31; 32:20).
+
+---
+
+### 2 Crónicas 6:36
+llevados cautivos... Defendiendo su causa. El exilio y el cautiverio se mencionan a menudo como maldiciones por violar el pacto (Deut. 28:36, 37, 64). La petición de Salomón se cumple dos veces dentro de la historia de Crónicas. Primero Manasés (33:10-13) y luego todo el remanente de Israel (36:20-23) sufren el exilio en Babilonia y son restaurados a la Tierra Prometida.
+
+---
+
+### 2 Crónicas 6:37
+Arrepentíos. Ver nota sobre 7:14. VOLVER 2 CRÓNICAS 6:37
+
+---
+
+### 2 Crónicas 6:38
+hacia su tierra... ciudad... casa. Véase la práctica de Daniel (Dan. 6:10) y Jonás (Jon. 2:4).
+
+---
+
+### 2 Crónicas 6:41
+La oración de Salomón termina con una adaptación del Salmo 132:8-10 sobre el gozo de adorar en el lugar escogido por Dios. Las palabras finales de la oración dadas en 1 Reyes 8:50, 51 especifican que Israel fue escogido por Dios y sacado de Egipto. Salomón pide a Dios que se acuerde del pueblo y del lugar que Dios escogió, y que allí reciba con gracia a todos los que se vuelvan a Él. La apelación de Salomón se basa en la iniciativa de Dios en la elección.
+
+---
+
+### 2 Crónicas 7:1
+descendió fuego. Una señal visible e inmediata de la aceptación divina de todo lo que se ha hecho. Véase la nota sobre 1 Crónicas 7:1. 21:26. Gloria. La nube luminosa que denota la presencia divina.
+
+---
+
+### 2 Crónicas 7:2
+La repetición de elementos de 5:13, 14 equilibra la celebración inicial con la celebración de clausura. Nota Especialmente la alabanza por la misericordia duradera de Dios (7:3, 6; 5:13 y nota). VOLVER 2 CRÓNICAS 7:2, 3
+
+---
+
+### 2 Crónicas 7:6
+La música de adoración añade esplendor a la celebración (nota de 1 Cr. 15:16). Todo Israel. La nación entera está involucrada (1 Crónicas 11:1 nota).
+
+---
+
+### 2 Crónicas 7:8
+Fiesta. La Fiesta de los Tabernáculos (5:3 nota). de Lebo-hamat. Límite norte de Israel. “El arroyo de Egipto” es el El actual Wadi el-Arish, al noroeste del Sinaí.
+
+---
+
+### 2 Crónicas 7:11
+la casa del rey... su propia casa. La construcción del templo y del palacio tomó veinte años (1 R. 9:10), por lo que hay una brecha de trece años en este punto (ver 8:1). El año ahora es 946 AC
+
+---
+
+### 2 Crónicas 7:13
+Estos versículos no aparecen en Reyes. Informan de la respuesta de Dios a varias peticiones mencionadas en la oración de Salomón (6:14–42), y son particularmente pertinentes para los lectores originales posteriores al exilio que esperan que Dios los ayude a restaurar o “sanar” la tierra (Introducción a 1 Reyes 7:13–15). Crónicas: Fecha y Ocasión). 7:13 Lluvia... langostas... pestilencia. Se refiere directamente a 6:26–31.
+
+---
+
+### 2 Crónicas 7:14
+Si mi pueblo. Dios promete que la nación recibirá alivio de las dificultades causadas por su pecado si el pueblo se vuelve a Él con humildad y oración. Esta promesa es especialmente relevante para la comunidad restaurada después del exilio babilónico. Una serie de acontecimientos en los reinos divididos y reunificados ilustran los principios de este pasaje (12:6; 13:14; 14:8-15; 18:31; 20:5-19; 32:20; 33:12, 13 y notas). Muchas veces en Crónicas, los conceptos de este pasaje aparecen como el factor decisivo para las bendiciones y maldiciones divinas. Humillarse. Actitud de contrición y dependencia de Dios (12:6, 7, 12; 30:11; 33:12, 19, 23; 34:27). Algunos comentaristas ven cuatro elementos coordinados de una respuesta compuesta; otros sostienen que “humillarse” es la respuesta genérica que incluye “orar... buscar... volverse”. Buscad mi rostro. Actitud de devoción leal que desea disfrutar del favor y la comunión con Dios.
+
+---
+
+### 2 Crónicas 7:16
+nombre. Véase nota sobre 6:5.
+
+---
+
+### 2 Crónicas 7
+La promesa de que la dinastía fundada por David permanecería para siempre da esperanza a quienes buscan restaurar la nación después del exilio. Si bien Dios hizo una promesa irrevocable al linaje de David, la nación siempre enfrentó la amenaza del castigo por la infidelidad (1 Crónicas 17:7–22). 14 nota; 28:9 nota). Los versículos 17, 18 están dirigidos a Salomón, mientras que el plural “vosotros” en el v. 19 indica al pueblo en su conjunto. 7:17 guardando mis estatutos y mis decretos. Véase nota sobre 1 Crónicas 16:40. La obediencia de Salomón determinará el grado en que disfrutará de la promesa davídica.
+
+---
+
+### 2 Crónicas 7:19
+Estos versículos prefiguran lo que, de hecho, le sucede a la nación cuando su infidelidad los lleva a adorar a dioses paganos.
+
+---
+
+### 2 Crónicas 8:1
+Este relato de los proyectos de construcción de Salomón y los arreglos para el templo se equilibra con 3:1–5:1. Su contenido sigue a 1 Reyes 9:10–28.
+
+---
+
+### 2 Crónicas 8:2
+Hiram le había dado. Salomón entregó estas ciudades a Hiram, quien más tarde las devolvió por considerarlas inaceptablemente pobres (1 R 9:10-14). Después de esto, cuando Salomón las mejoró, estableció a los israelitas en ellas por primera vez.
+
+---
+
+### 2 Crónicas 8:3
+Hamat-soba. Esta es la única mención de una campaña militar en el reinado de Salomón. David capturó este territorio, incluida la ciudad situada a trescientas millas (480 km) al norte de Jerusalén (1 Cr. 18:3). Es posible que este versículo se refiera a la manera en que Salomón sofocó la posterior rebelión del territorio contra Israel.
+
+---
+
+### 2 Crónicas 8:4
+Tadmor. Durante su reinado, Salomón refortifica Tadmor (más tarde conocida como Palmira), un oasis en la ruta comercial hacia Mesopotamia, 150 millas (240 km) al noreste de Damasco y a mitad de camino hacia el Éufrates.
+
+---
+
+### 2 Crónicas 8:5
+Un registro de información adicional Obras de fortificación realizadas durante el reinado de Salomón.
+
+---
+
+### 2 Crónicas 8:8
+Salomón fue reclutado para trabajos forzados. Véase la nota sobre 1 Crónicas 22:2. Los israelitas están exentos del trabajo forzado, y en su lugar sirven en el ejército y la burocracia. Ambas Bet-horones estaban ubicadas al noroeste de Jerusalén, en una arteria estratégica desde la llanura costera. hasta el día de hoy. Véase la nota sobre 1 Crónicas 4:41.
+
+---
+
+### 2 Crónicas 8:11
+los lugares ... son santos. Salomón traslada a su esposa egipcia por respeto a la santidad del arca y los lugares asociados con ella. A diferencia de Reyes (1 R. 11:1–13) y Nehemías (Neh. 13:26, 27), Crónicas no hace comentarios sobre los matrimonios internacionales de Salomón. Los tristes hechos son bien conocidos por la audiencia original del Cronista.
+
+---
+
+### 2 Crónicas 8
+Nuevamente el relato de los detalles concernientes al culto, los levitas y los sacerdotes es más completo que en Reyes (véase 1 R. 9:25; 1 Cr. 6:1 nota).
+
+---
+
+### 2 Crónicas 9:12
+La información presentada aquí muestra a “Salomón en toda su gloria” (Mateo 6:29); se pasa por alto cualquier característica de su reinado que pudiera restar valor a este cuadro. 8:17, 18 Con la ayuda de los fenicios, Salomón se dedica al comercio internacional, operando desde los puertos del golfo de Aqaba, al sureste de su reino. Esto abre el comercio con la península arábiga y más allá. Probablemente los barcos son transportado por tierra en pedazos y reensamblado.
+
+---
+
+### 2 Crónicas 9
+la reina de Sabá. Posiblemente provenga de la zona del actual Yemen, en el extremo sudoeste de la península arábiga, a 1.930 km de Jerusalén (1 R. 10:1–13). Al escribir para una generación que necesitaba aliento (nota del v. 8), el autor no analiza los problemas bien conocidos que causaron las esposas extranjeras de Salomón (1 R. 11:1–40). Pasa directamente de la gloria del rey al final de su reinado. De la misma manera, no menciona el pecado de David con Betsabé y los problemas que esto causó. 9:29 escrito en la historia de. Ver Introducción a 1 Crónicas: Autor. VOLVER 2 CRÓNICAS 9:29
+
+---
+
+### 2 Crónicas 9:8
+los establecerá para siempre. La reina de Sabá reconoce el sabio gobierno de Salomón como la provisión de Dios para el bienestar de Israel. La riqueza y la sabiduría de Salomón (vv. 13-28; cf. 1:7-17), al igual que la El favor internacional del que goza (v. 23) constituye un momento culminante para la comunidad del pacto. El cronista quiere que la generación que regresa de la angustia del exilio en Babilonia busque en la era de Salomón inspiración y valor para su obra de reconstrucción.
+
+---
+
+### 2 Crónicas 9:10
+madera de sándalo. Posiblemente un nombre para el sándalo, una madera fragante de la India, también apropiada para tallar. “Sostiene” (v. 11) pueden ser barandillas para una escalera.
+
+---
+
+### 2 Crónicas 9:14
+Los ingresos de Salomón se derivan de los impuestos sobre el comercio, así como del tributo externo (“todos los reyes de Arabia”). y fuentes internas (“los gobernadores de la tierra”).
+
+---
+
+### 2 Crónicas 9:16
+Los escudos de oro no son funcionales, sino decorativos.
+
+---
+
+### 2 Crónicas 9:21
+fueron a Tarsis. Lit. “los que iban de Tarsis”. Son grandes barcos como los que iban a Tarsis en el Mediterráneo occidental. La flota de Salomón navegaba por el Mar Rojo y posiblemente más lejos.
+
+---
+
+### 2 Crónicas 9:23
+todos los reyes de la tierra. Ver nota sobre 9:8.
+
+---
+
+### 2 Crónicas 9:27
+plata... cedro... caballos. Véase la nota sobre 1:14–17.
+
+---
+
+### 2 Crónicas 10:1
+En esta sección, el Cronista hace uso de 1 R. 12–2 R. 17, pero aproximadamente la mitad de su material proviene de otras fuentes. Su registro del período de la monarquía dividida no ensaya la dura condena de las tribus del norte que se encuentra en Reyes, centrándose en cambio en los acontecimientos de Judá, la ubicación del templo y el rey davídico. A lo largo de esta sección, el escritor relata cómo las condiciones del reino dependen de la fidelidad del rey a Dios y de la guía que da a la nación. Cuando los lectores originales consideraron estos acontecimientos, pudieron ver claramente las opciones de bendición y maldición en sus propios días. 10:1–12:16 Al describir el reinado de Roboam (931–913 a. C.), el Cronista hace un amplio uso de Reyes (cf. 10:1–11:4 con 1 R. 12:1–24; 12:9–16 con 1 Rey. 14:21, 25–31) mientras presenta el material de acuerdo con su propia comprensión y énfasis teológicos. El relato se presenta en dos partes (10:1–11:23 y 12:1–14), cada una narrando una situación problemática, un encuentro profético y una bendición divina. La conclusión es un aviso de las guerras de Roboam contra Jeroboam y su muerte (12:15, 16). Los capítulos impresionan a los lectores con la maldición de Dios contra el orgullo y la infidelidad y los beneficios de vivir en humildad y obediencia a la palabra profética (nota 20:20). 10:1–11:23 La primera sección que relata el reinado de Roboam se centra en los tres años iniciales de su gobierno (11:17), en los que hay conflicto (cap. 10), obediencia a la palabra profética (11:1–4) y bendición divina (11:5–23). 10:1–11:4 se deriva de 1 R. 12:1–24 (notas); el Cronista añade 11:5–23. 10:1 todo Israel. En la discusión sobre el período de la monarquía dividida, esta expresión y otras similares pueden referirse: solo al reino del sur (11:3; 12:1; 24:5; 28:23); solo al reino del norte (10:16; 11:13; 13:4, 15); o a ambos reinos juntos (18:16; véase 1 Cr. 11:1 nota; 2 Cr. 29:24 nota). El último uso se encuentra aquí. La reunión de todas las tribus es para el reconocimiento de su realeza. Siquem. Un asentamiento antiguo e importante, situado en la región montañosa de Efraín, a 55 km al norte de Jerusalén. En los días de Roboam, la ciudad había sido un centro para las tribus del norte desde la época de Josué, quien había Allí renovó el pacto mosaico (Josué 24:1).
+
+---
+
+### 2 Crónicas 10:2
+Jeroboam. Fue el capataz de los trabajos forzados de Efraín y Manasés que huyeron a Egipto (1 R. 11:26-27). 28, 40).
+
+---
+
+### 2 Crónicas 10:3
+Enviaron a llamarlo. Las tribus del norte no están preparadas para aceptar el gobierno de Roboam sin negociar. Los términos de su lealtad hacia él.
+
+---
+
+### 2 Crónicas 10:5
+tres días. Roboam parece no estar al tanto del estado de ánimo de la nación y solicita tres días de respiro para formular su respuesta a la situación.
+
+---
+
+### 2 Crónicas 10:11
+escorpiones. Posiblemente un Uso metafórico de un látigo con trozos de metal en el látigo.
+
+---
+
+### 2 Crónicas 10:15
+por Dios, para que el SEÑOR cumplir su palabra. El autor señala que la reacción de Roboam debe verse a la luz de los propósitos soberanos de Dios. La profecía de Ahías sobre Jeroboam (1 R. 11:29-39) se cumple con este giro de los acontecimientos. La soberanía divina se extiende sobre las acciones pecaminosas de los seres humanos (1 Crónicas 21:1 nota).
+
+---
+
+### 2 Crónicas 10:16
+Todo Israel. Solamente las tribus del norte. Véase la nota sobre 10:1. A tus tiendas, oh Israel. Una declaración de rebelión, renunciando a la autoridad de Roboam. Cf. 1 Cr. 12:18.
+
+---
+
+### 2 Crónicas 10:18
+Más pruebas del alcance de Roboam no está en sintonía con el estado de ánimo de las diez tribus del norte. 2 CRÓNICAS 10:18
+
+---
+
+### 2 Crónicas 10:19
+hasta el día de hoy. Obviamente, se trata de una incorporación de la fuente que utiliza el cronista. Véase la nota sobre 1 Crónicas 4:41.
+
+---
+
+### 2 Crónicas 11:1
+Benjamín. No todo el territorio de Benjamín pasa a formar parte del reino del norte (véase 1 R 12:21).
+
+---
+
+### 2 Crónicas 11:2
+Semaías. El profeta aparece dos veces durante el reinado de Roboam (véase 12:5–8). Para mérito y beneficio de Roboam, en ambas ocasiones el rey escucha la palabra del profeta.
+
+---
+
+### 2 Crónicas 11:3
+todo Israel en Judá. La frase Deja claro quién está incluido. Véase la nota sobre 10:1.
+
+---
+
+### 2 Crónicas 11:4
+Esto es de mí. Ver nota 10:15 Dios no permite que Roboam reúna al pueblo por la fuerza. 2 CRÓNICAS 11:4
+
+---
+
+### 2 Crónicas 11:5
+El cronista da tres ilustraciones de la bendición divina para demostrar la sabiduría de la respuesta de Roboam a la advertencia profética (nota de 20:20). El texto menciona fortificaciones y fuerza militar en Judá y Benjamín (11:5–12), la deserción de los levitas del reino del norte (11:13–17) y el aumento de su familia (11:18–23). 23) La mayor parte de este material se encuentra únicamente en Crónicas. 11:5 construyó ciudades para la defensa. Más bien, “reconstruyó”, ya que las ciudades ya existían. Una indicación de bendición divina. Véase la nota sobre 1 Crónicas 11:5. Las ciudades están cerca de Jerusalén, pero principalmente al oeste y al sur. Roboam se siente amenazado por Egipto más que por el reino del norte.
+
+---
+
+### 2 Crónicas 11:13
+todo Israel. Véase la nota sobre 10:1.
+
+---
+
+### 2 Crónicas 11:14
+Jeroboam... los echó fuera. El Cronista no repite el relato que se encuentra en Reyes sobre cómo Jeroboam establece centros de adoración idólatra en Dan y Betel (1 R. 12:25-33), pero supone que el lector sabe que Jeroboam rechaza a los sacerdotes y levitas que son fieles a Jerusalén como el lugar apropiado para la adoración. Los levitas cuyas propiedades ancestrales se encuentran por todas las tribus del norte están dispuestos a renunciar a ellas por motivos de conciencia, y se mudan al sur, a Jerusalén. El tema de los israelitas fieles que desertan a Judá aparece varias veces en los períodos de los reinos divididos y reunificados (13:8-11; 15:9; 30:10-12). Después del regreso del exilio en Babilonia, estos relatos son un precedente para que los israelitas del reino del norte se unan a los exiliados que regresaron, ya que la restauración se centra en Jerusalén (1 R. 12:1-13). Crónicas 9:3 nota; ver Introducción: Características y temas principales).
+
+---
+
+### 2 Crónicas 11:15
+Los ídolos de machos cabríos. No se mencionan en Reyes, pero véase Levítico 17:7.
+
+---
+
+### 2 Crónicas 11:16
+los que habían puesto su corazón buscar al SEÑOR . El mero compromiso externo con las ceremonias religiosas no constituyen una verdadera búsqueda, que requiere devoción interior unida a la obediencia a las exigencias del Señor. Aquellos en el norte que tienen un verdadero respeto por el Señor y Su adoración se une a los levitas que se han trasladado al sur.
+
+---
+
+### 2 Crónicas 11:17
+Anduvieron tres años en El camino de David y Salomón. Roboam disfruta de la bendición de Dios porque él y sus súbditos imitan la fidelidad de David y Salomón durante los primeros años de su reinado.
+
+---
+
+### 2 Crónicas 11
+El cronista menciona con frecuencia el aumento de la familia para demostrar la bendición de Dios (nota de 1 Cr. 13:13). 11:18 Mahalat. El cronista señala que ella desciende de David en ambos Por el lado de su padre y de su madre. Jerimot se casó con su primo Abihail. 2 CRÓNICAS 11:18
+
+---
+
+### 2 Crónicas 11:20
+Maaca. Véase la nota sobre 13:2. El Absalón mencionado aquí probablemente no es el hijo de David (véase 2 Sam. 14:27). Si este Absalón es el hijo de David, puede ser el abuelo de Maaca a través de su hija Tamar (2 Sam. 14:27), quien presumiblemente se convierte en la esposa de Uriel (13:2).
+
+---
+
+### 2 Crónicas 11:22
+Abías. Este nombramiento es típico de las corregencias (reinados superpuestos entre padre e hijo) que prevalecer en Judá y establecer allí una línea de sucesión clara.
+
+---
+
+### 2 Crónicas 11:23
+Roboam actuó con sabiduría. Al dispersar a sus hijos por todo Judá y establecerlos allí en lugar de mantenerlos en la corte, intenta evitar que se conspire contra su heredero elegido y también fortalece el control real de la tierra.
+
+---
+
+### 2 Crónicas 12:1
+Para la segunda parte importante del relato del reinado de Roboam (nota 10:1–12:16), el historiador amplía el relato de 1 Reyes 14:25–28. Informa sobre la desobediencia de Roboam en su cuarto año y la retribución divina por medio de la invasión de Sisac en su quinto año (12:2). 12:1, 2 abandonaron la ley... infieles al SEÑOR . Tres años en los que se consolidó el gobierno de Roboam en el sur son seguidos por un cuarto en el que el rey y la nación caen presas del orgullo y la autosuficiencia. Véase 1 En 1 Crónicas 14:22-24 se encuentran más detalles sobre su apostasía, que implicó la adopción de la idolatría cananea y las prácticas inmorales asociadas. Véase también la nota sobre 1 Crónicas 14:22-24. 16:40. 12:1 Todo Israel. El reino del sur es el único que encarna la comunidad del pacto. Véase la nota sobre 10:1.
+
+---
+
+### 2 Crónicas 12:3
+El autor añade estos versículos para completar el paralelo con el encuentro anterior de Roboam con Semaías (cf. 11:2–4; 10:1–11:23 nota). 12:3 1.200... 60.000... sin número. Véase la nota sobre 1 Crónicas 19:7. “Sukkiim” Son fuerzas mercenarias libias, que se mencionan en los textos egipcios.
+
+---
+
+### 2 Crónicas 12:4
+tomó las ciudades fortificadas. Las ciudades fortificadas de Roboam (11:5-12) se muestran incapaces de resistir el poder de Egipto.
+
+---
+
+### 2 Crónicas 12:5
+Semaías. Aparece por primera vez en 11:2; aquí les dice a los líderes de Judá que han traído este ataque contra ellos mismos por su compromiso religioso (ver 1 Crónicas 28:9; 2 Crónicas 15:2). 2 CRÓNICAS 12:5
+
+---
+
+### 2 Crónicas 12:6
+se humillaron. Véase también los versículos 7 y 12. Este acontecimiento ilustra la respuesta de Dios a la oración de Salomón (nota de 7:14). Sigue siendo un principio permanente de conducta devota (1 Pedro 5:6).
+
+---
+
+### 2 Crónicas 12:7
+Aunque Semaías modifica su primera advertencia, el plan soberano de Dios no se ve anulado. Las advertencias proféticas están diseñadas para provocar el arrepentimiento. Si tienen éxito, la amenaza del juicio a menudo se presenta como una amenaza para el pueblo. eliminado, pospuesto o suavizado (Jer. 18:1–12; Joel 2:12–14; Jon. 3).
+
+---
+
+### 2 Crónicas 12:9
+Todo lo quitó. La gloria del reino de Salomón ya se ha desvanecido, y el pueblo se ve obligado a entregando sus atavíos, que son llevados como botín a Egipto.
+
+---
+
+### 2 Crónicas 12:12
+El bien en Judá. La lección clave que el cronista quiere dejar en claro a su audiencia es que mientras Roboam sigue sufriendo por sus pecados, Dios establece su reino con gracia y bendice a la nación.
+
+---
+
+### 2 Crónicas 12:14
+Hizo lo malo. Probablemente se refiere a los pecados del cuarto año de Roboam (vv. 1, 2 nota). Esta observación no se encuentra en 1 Reyes 14:29-31.
+
+---
+
+### 2 Crónicas 12:15
+escrito en las crónicas. Ver Introducción a 1 Crónicas: Características literarias. Algunas de las fuentes adicionales De donde el Cronista obtiene su información.
+
+---
+
+### 2 Crónicas 14:1
+El relato del reinado de Abías en Crónicas (13:2–21) difiere considerablemente del de Reyes (1 R. 15:3–5). Las Crónicas enfatizan el lado positivo del reinado de Abías, mientras que el escritor de Reyes se centra en el lado negativo (1 R. 15:3). El cronista relata el discurso de Abías contra el reino del norte (13:4–12) y su confianza en Dios en la batalla (13:14). 13:1 Abías. Reinó entre el 913 y el 910 a. C., durante el gobierno de Jeroboam I en el reino del norte (930–909 a. C.). Su nombre se escribe Abías en 1 Reyes 15:1–8. Este relato del reinado de Asa es considerablemente más largo que el de 1 Reyes 15:9–24 (cuarenta y ocho versículos en comparación con dieciséis). El reinado de Asa se presenta en dos partes: años de fidelidad y bendición (14:1–15:19) y años posteriores de infidelidad y maldición (cap. 16). Dentro de estas dos partes hay un patrón de paralelos contrastantes: la creciente prosperidad de Asa (14:1–7) se equilibra con la sección final sobre su enfermedad y muerte (16:11–14). Este cambio de circunstancias se explica en la sección central donde se presenta a Asa por primera vez como alguien que depende de Dios y tiene éxito en la guerra (14:9–15). A esto le siguen palabras de elogio profético y reforma real (cap. 15). En contraste, en sus últimos años Asa confía en el poder humano y se alía con un rey extranjero (16:1-6), lo que le genera una condena profética (16:7-9), a la que reacciona con dureza (16:10). Una vez más, el cronista recurre al pasado para hacer más vívidas las opciones para su propia generación y las generaciones siguientes. 14:1 Un versículo de transición, que pasa del reinado de Abías al de Asa. La tierra tuvo descanso. Véase la nota sobre 1 Crónicas 22:9. Asa tiene un reinado prolongado, desde 911 a 870/869 a. C. En sus primeros diez años, su celo reformador es bendecido con la seguridad nacional (911–900 a. C.).
+
+---
+
+### 2 Crónicas 13:2
+Micaías. Una variante de la ortografía “Maaca” (véase 11:20; 1 R 15:2). Maaca es aparentemente la nieta de Absalón por medio de su hija Tamar y su esposo, Uriel de Guibeá. Guerra entre Abías y Jeroboam. 1 Reyes 15:6, 7 menciona esta guerra, pero Crónicas tiene más detalles, incluido el trazado de las líneas de batalla, la Discurso, la batalla misma y su resultado.
+
+---
+
+### 2 Crónicas 13:3
+Judá está en gran desventaja numérica, lo que pone de relieve el poder de Dios en acción a favor de la fiel Judá (1 Crónicas 12:23 nota; 1 Crónicas 19:7 nota). Las cifras aparentemente altas coinciden con las registradas en 1 Crónicas 21:5.
+
+---
+
+### 2 Crónicas 13:4
+El discurso de Abías contra el reino del norte deja claro que la dinastía de David está aprobada por Dios y que la adoración en el templo en Jerusalén está establecida por Dios. 13:4 Monte Zemaraim. En las regiones fronterizas entre Judá e Israel, Probablemente en el territorio de Benjamín (véase Josué 18:22).
+
+---
+
+### 2 Crónicas 13:5
+¿No debéis saberlo? La revelación incorporada en el pacto y sus instituciones crea obligaciones adicionales para quienes están al tanto de ella. La rebelión del norte es todavía un acontecimiento reciente, y aquellos a quienes se dirige Abías no deben reprimir la verdad que aprendieron antes. Un pacto de sal. Probablemente simboliza la permanencia del pacto. por las propiedades conservantes de la sal (Lev. 2:13; Núm. 18:19).
+
+---
+
+### 2 Crónicas 13:6
+Jeroboam... se rebeló. Abías apela al ejército del norte culpando a Jeroboam por la rebelión contra Roboam.
+
+---
+
+### 2 Crónicas 13:7
+jóvenes e indecisos y no podían No los resistieron. Abías explica que la ofensa de Roboam contra las tribus del norte (10:1-17) es el resultado de su juventud (de hecho, tiene cuarenta y un años). edad) e inexperiencia (véase 1 Cr. 22:5; 29:1; 2 Cr. 12:13).
+
+---
+
+### 2 Crónicas 13:8
+reino del SEÑOR . A pesar de la ofensa de Roboam, oponerse a la dinastía de David era resistir a Dios mismo. “Resistir” significa literalmente “fortalecerse ante”, pero era una expresión falsa. Confianza a pesar del mayor ejército del norte.
+
+---
+
+### 2 Crónicas 13:9
+echó fuera a los sacerdotes... y a los Levitas. El cronista ya ha mencionado la deserción de estos levitas como una indicación de la bendición de Dios sobre Roboam (11:13–17 y notas).
+
+---
+
+### 2 Crónicas 13:10
+No hemos abandonado a Dios. A diferencia del reino del norte, Judá se ha mantenido fundamentalmente leal al templo, a los sacerdotes y a los levitas (pero véase 12:1, 2). Como indican las reformas posteriores de Ezequías, la fidelidad de Judá no perdura (nota 29:4–11; nota 30:6–9).
+
+---
+
+### 2 Crónicas 13:11
+El discurso de Abías se refiere a su preocupación por el culto apropiado, y es un mensaje importante para los lectores originales de Crónicas durante el restablecimiento del culto en Jerusalén después del exilio.
+
+---
+
+### 2 Crónicas 13:14
+clamó al SEÑOR . En su oración dedicatoria, Salomón habló de orar a Dios en la batalla (nota de 6:34). Oración Aquí aparece como el factor decisivo en la batalla (nota 1 Crónicas 4:9).
+
+---
+
+### 2 Crónicas 13:15
+todo Israel. En este contexto, el reino del norte.
+
+---
+
+### 2 Crónicas 13:18
+fueron sometidos. Ver nota sobre 1 Crónicas 20:4. Este es el mismo verbo que “humillarse” (ver 7:14). Aquellos que no se humillan voluntariamente ante Dios serán obligados a inclinarse. porque confiaron en el SEÑOR . Confianza en el poder del Señor en lugar de La fuerza humana es un tema dominante en Crónicas (nota 16:2).
+
+---
+
+### 2 Crónicas 13:20
+Los resultados de Jeroboam y Abías indican si Dios los aprueba o los desaprueba. Jeroboam nunca se recupera de su derrota. Abías, sin embargo, se hace más fuerte y tiene muchos hijos (1 Crónicas 13:13).
+
+---
+
+### 2 Crónicas 13:22
+la historia del profeta Iddo. Iddo fue mencionado en 9:29, y su “historia” o “registro” es otra fuente utilizada por el Cronista. Véase Introducción a 1 Crónicas: Características literarias. VOLVER 2 CRÓNICAS 13:22
+
+---
+
+### 2 Crónicas 14:3
+quitó... los lugares altos. Asa quita los lugares altos paganos (ver nota de 1 R. 3:2) tanto de Jerusalén como “todas las ciudades de Judá” (14:5), pero 15:17 (1 R. 15:14) indica que no continúa con sus esfuerzos iniciales durante toda su vida. Una explicación similar se aplica a las descripciones de la eliminación de los lugares altos por parte de Josafat (véase 17:6; 20:33).
+
+---
+
+### 2 Crónicas 14:4
+Buscad al Señor . Ver nota sobre 7:14. Guardad la ley y los mandamientos. Véase nota sobre 1 Crónicas 16:40.
+
+---
+
+### 2 Crónicas 14:5
+quitó... los lugares altos . Más tarde se señaló que “los lugares altos no fueron quitados de Israel [= Judá]” (15:17; 1 Rey. 15:14). Es posible que el énfasis aquí deba ponerse en “las ciudades de Judá” con los lugares altos que aún quedan en el campo. Es más probable que las primeras reformas de Asa tengan sólo un impacto superficial en el pueblo, y más tarde en su reinado hay un resurgimiento de las prácticas cananeas.
+
+---
+
+### 2 Crónicas 14:6
+No hubo guerras. Aparentemente esto significa que no hubo guerras importantes en este período. El escritor dice más adelante que Asa captura algunas ciudades de Efraín durante este tiempo (15:8). El Señor le dio paz. Las Crónicas presentan la paz en el reinado de Asa como una bendición por la devoción y la obediencia a Dios (14:2–16:14 nota; 1 Crónicas 22:9 nota). 14:6, 7 Él edificó... Edifiquemos. Dios también ayuda a Asa en sus proyectos de construcción (1 Crónicas 14:1-14). 11:5 nota).
+
+---
+
+### 2 Crónicas 14:8
+Cuando Zera ataca, Asa busca al Señor y obtiene la victoria, cumpliendo así la petición de Salomón en su oración (6:34). Nota). Esta batalla contrasta directamente con la batalla posterior de Asa contra Baasa (16:1– 6; véase nota 14:2–16:14). 14:8 El ejército de Asa asciende a 580.000 hombres. El ejército atacante es casi el doble de grande (“un millones de hombres”, v. 9). Sobre estas grandes cantidades, véase la nota sobre 1 Cr. 12:23. VOLVER 2 CRÓNICAS 14:8
+
+---
+
+### 2 Crónicas 14:9
+Zera el etíope. Posiblemente un general del faraón Osorkon I, segundo gobernante de la Vigésima Segunda Dinastía de Egipto. Etiopía (o Cus) en la Biblia es la región remota al sur de Egipto, que corresponde al actual norte de Sudán (1 Crónicas 1:8). Esta invasión parece ocurrir poco antes del decimoquinto año de Asa (véase 15:10). un millón de hombres. Véase nota sobre 1 Crónicas 19:7. Maresah. A unas veinticinco millas (40 km) al suroeste de Jerusalén.
+
+---
+
+### 2 Crónicas 14:11
+Débil. Asa expresa su absoluta incompetencia para la batalla contra Zera (nota 20:12). Confiamos en ti. La confianza en el poder del Señor es la clave de la victoria de Asa (16:7). nota)
+
+---
+
+### 2 Crónicas 14:13
+Gerar. Ciudad filistea que se encuentra a 32 km al suroeste de Maresa. La zona alrededor de Gerar parece estar ya bajo control egipcio.
+
+---
+
+### 2 Crónicas 15:1
+Mientras el ejército regresa de Gezer (véase v. 11), Azarías proclama el principio de retribución tan a menudo ilustrado en este relato de la monarquía dividida. La fidelidad a Dios Traerá bendición; la deslealtad resultará en castigo.
+
+---
+
+### 2 Crónicas 15:2
+Si lo buscáis. Véanse las notas sobre 7:14 y 1 Crónicas 28:9.
+
+---
+
+### 2 Crónicas 15:3
+sin el Dios verdadero. Es decir, sin Su presencia y bendición. “Sin sacerdote que enseñe” implica que están descuidando sus deberes en este sentido (Lev. 10:11), por lo que no hay un verdadero conocimiento de la ley ni obediencia a ella. Probablemente se refiere a los días de los jueces, de modo que “Israel” es toda la nación.
+
+---
+
+### 2 Crónicas 15:4
+Se volvió al Señor . Véase la nota sobre 7:14.
+
+---
+
+### 2 Crónicas 15:8
+Asa responde al profeta con más reformas (v. 8) y una asamblea de renovación del pacto (vv. 9–15); llega tan lejos como para destituir a Maaca, su pariente, debido a su apostasía religiosa (vv. 16–19). 15:8 Reparó el altar de Jehová . El gran altar de bronce que estaba en el exterior patio. No se sabe exactamente cómo se dañó.
+
+---
+
+### 2 Crónicas 15:9
+desertaron y se unieron a él. Los israelitas de las tribus del norte (nota de 11:14) desertaron y se unieron a Asa mientras él suprimía la idolatría y restablecía la verdadera adoración en Jerusalén.
+
+---
+
+### 2 Crónicas 15:10
+el tercer mes del Año decimoquinto. Probablemente coincide con la celebración de la Fiesta de las Semanas/Pentecostés en mayo/junio del año 895 a. C.
+
+---
+
+### 2 Crónicas 15:12
+En 2 CRÓNICAS 15:12 , los israelitas entraron en un pacto. Una promesa renovada de adhesión al pacto del Sinaí como sello de su participación incondicional en su relación especial con el Señor. Es significativo para el cronista que Asa (15:12), Joiada (23:16), Ezequías (29:10) y Josías (34:30-32) dirigieran a la nación en tales renovaciones, celebrando la bondad de Dios hacia su pueblo a lo largo de las generaciones. De esta manera, el autor enfatiza a sus contemporáneos la importancia de adherirse a sus compromisos similares (Esdras 10:3-5; Nehemías 9:38).
+
+---
+
+### 2 Crónicas 15:13
+condenado a muerte. La ley de Moisés prescribe la pena capital para quienes buscan a otros dioses (Éx. 22:20; Deut. 13:6–16).
+
+---
+
+### 2 Crónicas 15:15
+Descansen todos alrededor. Ver nota sobre 1 Crónicas 22:9.
+
+---
+
+### 2 Crónicas 15:16
+Maaca. Su abuela tiene el mismo nombre (11:20), por lo que “madre” puede usarse en un sentido más amplio. En cualquier caso, Asa no permitió que las conexiones familiares comprometieran su lealtad al Señor. Junto al arroyo de Cedrón, en las afueras de Jerusalén, hacia el este.
+
+---
+
+### 2 Crónicas 15:17
+todos sus días. Véase la nota sobre 14:3.
+
+---
+
+### 2 Crónicas 15:19
+No más guerra. Véase la nota sobre 14:6. 15:19–16:1 año treinta y cinco... año treinta y seis. Reyes informa que Ela sucedió a Baasa en el año veintiséis de Asa (1 R. 15:33; 16:8), Zimri en el año veintiséis de Asa (1 R. 16:10, 15) y Omri en el año treinta y uno de Asa (1 R. 16:15). Rey. 16:23). Por consiguiente, esta batalla no pudo haber tenido lugar en el año treinta y seis de Asa (16:1) ya que Baasa habría estado muerto durante diez años. No se ha encontrado una solución sencilla a esta dificultad. Una sugerencia es que un “vigésimo quinto” y “vigésimo sexto” original fue cambiado inadvertidamente por un error de un copista (véase Introducción a 1 Crónicas: Asuntos especiales). Una alternativa plausible es que la fuente del Cronista aquí usó una cronología que data de la división del reino, de modo que los años treinta y cinco y treinta y seis del reinado de Baasa se remontan a la época de Baasa. El reinado de Baasa corresponde a lo que en otros lugares se expresa como los años quince y dieciséis de Asa, respectivamente. Entendido de esta manera, elimina el problema de la espera de Baasa durante diez años hasta 885/884 a. C. antes de intentar detener la Flujo de sus súbditos hacia el sur, que comenzó en el año 895 a. C.
+
+---
+
+### 2 Crónicas 16:1
+La batalla de Asa contra Baasa de Israel comienza su caída. Busca la ayuda de Ben-adad de Siria, en marcado contraste con su batalla contra Zera cuando confió en el Señor (14:2– 16:14 nota). 16:1 Ramá. En la frontera entre los dos reinos, a ocho kilómetros al norte de Jerusalén. Baasha está tratando de evitar más deserciones hacia el sur. VOLVER 2 CRÓNICAS 16:1
+
+---
+
+### 2 Crónicas 16:2
+tesoros de la casa del El Señor... a Ben- adad. Las acciones de Asa son incorrectas en dos aspectos. Primero, toma de los tesoros del templo, mostrando desprecio por el templo y su adoración (véase 28:21). Segundo, se alía con una potencia extranjera en lugar de confiar en el Señor. Agrava esta falta en que la alianza extranjera es contra el norte de Israel. El cronista demuestra muchas veces los beneficios de confiar en Dios (1 Cr. 5:20; 2 Cr. 13:18; 14:11-15; 16:7, 8; 32:20-22). También deplora las alianzas extranjeras y señala sus terribles consecuencias (18:1; 19:2; 20:35-37; 22:3-9; 25:7; 28:16-21; 35:21 nota), una advertencia adecuada para quienes participan en Reconstrucción de la nación después del regreso del exilio en Babilonia.
+
+---
+
+### 2 Crónicas 16:3
+un pacto entre mí y Tú. Un tratado internacional, en este caso entre iguales. El pago de Asa no es un tributo, sino un soborno para inducir a Ben-adad a repudiar su alianza con Israel. Hacer este pacto es una triste inversión de la escena que se encuentra en 15:12.
+
+---
+
+### 2 Crónicas 16:4
+Ben -adad captura varias ciudades en el extremo norte de Israel, y esto desvía la atención de Baasa de su frontera sur. Por lo tanto , Asa puede tomar el control del puesto fronterizo recién construido en Ramá, reutilizando sus materiales de construcción en otros sitios cercanos. El registro es Un éxito para la estrategia política de Asa.
+
+---
+
+### 2 Crónicas 16:7
+En contraste con el episodio anterior del estímulo de Azarías y las reformas de Asa (cap. 15), Hanani es enviado a entregar una reprimenda profética al rey Asa, quien reacciona negativamente (14:2–16:14). Nota). Esta es la primera persecución registrada de un profeta. 16:7 Confiasteis. Este verbo aparece tres veces en los versículos 7 y 8 (en el resto de Crónicas sólo en 13:18; 14:11). Indica que se busca la ayuda de Dios en un momento de crisis nacional. Aunque se logra cierto éxito militar, toda la empresa es defectuosa porque no se basa en la fe en Dios y en lo que Él logrará por su pueblo. Baasa abandona su puesto antes de la llegada de Asa y Ben-adad, interrumpiendo así la victoria de Asa (16:5).
+
+---
+
+### 2 Crónicas 16:8
+¿No eran los etíopes? Hanani se refiere directamente al contraste con la victoria de Asa sobre Zera (14:8–15). “Etíopes” significa gente del sur de Egipto (véase nota de 14:9). Los libios son del norte de África, al oeste de Egipto.
+
+---
+
+### 2 Crónicas 16:9
+de ahora en adelante tendréis Guerras. Hanani amenaza con el juicio divino debido a la infidelidad de Asa (1 Crónicas 28:9). nota; 2 Crónicas 14:6 nota).
+
+---
+
+### 2 Crónicas 16:10
+Algunos del pueblo. Probablemente aquellos que estaban de acuerdo con el profeta Hanani.
+
+---
+
+### 2 Crónicas 16:11
+el Libro de los Reyes de Judá e Israel . No son los libros canónicos de los Reyes, sino una crónica de la corte anterior.
+
+---
+
+### 2 Crónicas 16:12
+El rechazo de Asa a la palabra profética conduce a su enfermedad y muerte (nota 14:2–16:14). trigésimo noveno año. 872/871 a.C., dos años antes de su muerte en 870/869 a.C. médicos. Asa sigue alejándose del Señor y confiando en la fuerza humana. El AT no duda en prescribir tratamiento médico para enfermedades físicas (2 R 20:5-7 y el uso de bálsamo en Jer 8:22; 51:8), pero nunca divorcia los remedios naturales de la búsqueda de la ayuda divina (Deut. 32:39). 2 CRÓNICAS 16:12
+
+---
+
+### 2 Crónicas 16:14
+hizo un fuego muy grande en su honor. Estos fuegos no son cremaciones sino monumentos en honor a los reyes fallecidos. Cf. el honor concedido a Asa con la respuesta a la muerte de Joram (21:19).
+
+---
+
+### 2 Crónicas 20:37
+El relato del reinado de Josafat incorpora la mayor parte del registro de Reyes (cf. 1 R. 22:1–35). El relato de Josafat (que se encuentra en 2 Crónicas 18:2–34; 1 Reyes 22:41–46, 49; 2 Crónicas 20:31–36) es el doble de largo, ya que añade algo de material y un resumen de su reinado. El cronista ve a Josafat de manera positiva en general. En su reinado anterior, Josafat es fiel (17:3–9) y enfrenta la batalla (18:1–19:3). Más tarde, vuelve a ser fiel (19:4– 11) y enfrenta nuevamente la batalla (20:1–30). El cronista resalta una vez más la necesidad de responder adecuadamente a la Palabra de Dios (18:4–27; 20:14–21) y el poder de la oración eficaz (18:31; 20:5–17). Además, se deben evitar las alianzas extranjeras, ya que sustituyen la confianza fiel en el Señor por la confianza en las maquinaciones y el poder humanos. Josafat es retratado como un hombre de fe, algo ingenuo (18:29) y cuyo deseo, por lo demás loable, de promover buenas relaciones con el norte y un cambio de perspectiva religiosa allí lo lleva a realizar varias acciones imprudentes. 17:1 Josafat. Reinó entre 873 y 848 a. C. Probablemente Josafat fue corregente con Asa durante tres años (873–870/869 a. C.) debido a la enfermedad de Asa (16:11–14; véase la nota 20:31). Al comienzo de su reinado, seguía habiendo hostilidad hacia el reino del norte, que en ese momento estaba gobernado por Acab. Eliezer... profetizó. Véase la nota sobre 20:20.
+
+---
+
+### 2 Crónicas 17:2
+ciudades de Efraín. Véase la nota sobre 14:6.
+
+---
+
+### 2 Crónicas 17:3
+los caminos anteriores... de David. El cronista insinúa que los caminos posteriores de David (2 Sam. 11–21) fueron diferentes. Los Baales. Esto refleja el culto a Baal de Canaán y Fenicia, que en ese momento estaba siendo promovido en Israel por Acab y su esposa, Jezabel (1 R. 16:31)
+
+---
+
+### 2 Crónicas 17:6
+lugares altos. Véase la nota sobre 14:3. Al igual que en el reinado de su padre, Asa (14:5; 15:17), la eliminación inicial de estos lugares de culto pagano por parte del rey se revierte más tarde debido al apego popular a ellos. (ver 20:33)
+
+---
+
+### 2 Crónicas 17:7
+En el tercer año. Esta misión de enseñanza probablemente se lleva a cabo justo después de la muerte de Asa (nota de 17:1). 17:7, 8 funcionarios... levitas. Los funcionarios reales están acompañados por levitas, a quienes Moisés ordenó para ser maestros del pueblo (1 Cr. 26:29–32 nota; 2 Cr. 19:5–11 nota).
+
+---
+
+### 2 Crónicas 17:9
+El libro de la ley de Jehová . La identidad de este libro es incierta. Puede incluir todo el Pentateuco, pero a la luz de la naturaleza de las reformas de Josafat (19:4–11), ciertamente incluye Deuteronomio.
+
+---
+
+### 2 Crónicas 17:10
+El temor del SEÑOR . El temor al poder divino manifestado en la fuerza militar de Josafat le da paz con Otras naciones (nota 1 Crónicas 14:17). Algunos, de hecho, le pagan tributo (v. 11). 2 CRÓNICAS 17:10
+
+---
+
+### 2 Crónicas 17:12
+fortalezas y ciudades de almacenamiento. Véase la nota sobre 1 Crónicas 11:5.
+
+---
+
+### 2 Crónicas 17:14
+Para estas grandes cifras, véase la nota sobre 1 Crónicas 12:23.
+
+---
+
+### 2 Crónicas 19:3
+En contraste con sus primeros años, Josafat cae bajo la maldición de Dios porque ignora la advertencia profética y hace una alianza con el reino del norte (nota 16:2; 20:20). nota). 18:1 hizo una alianza matrimonial. El autor se refiere al matrimonio de Joram, hijo de Josafat, con Atalía, hija de Acab (21:6; 22:2). En Reyes, Acab (874–853 a. C.) representa las profundidades de la apostasía en el reino del norte (1 R. 16:30). Véase la nota sobre 16:2; 19:1–3. algo bueno se encuentra en ti. Josafat es culpable de inconsistencia, pero a pesar de eso, el Señor lo bendecirá.
+
+---
+
+### 2 Crónicas 18:2
+Después de algunos años, probablemente hacia el final del reinado de Acab. inducido. La expresión hebrea puede tener la connotación de inducir a la apostasía (Deut. 13:6; 1 Cr. 21:1). Ramot de Galaad. Ciudad situada a 48 km al este del río Jordán, más cerca del mar de Galilea que del mar Muerto. Moisés la apartó como ciudad de refugio en Israel (Deut. 4:43; Jos. 20:8), pero más tarde fue capturada por el padre de Ben-adad, el rey de Siria contra quien Acab libró varias batallas. Ben-adad finalmente accedió a devolver la ciudad a Israel, pero no lo hizo (1 R. 20:1-20). 34)
+
+---
+
+### 2 Crónicas 18:4
+Josafat intenta calmar su conciencia y recuperar algo de iniciativa en la situación solicitando la aprobación del Señor para la empresa propuesta.
+
+---
+
+### 2 Crónicas 18:6
+Josafat percibe que aunque los profetas se presentan como profetas del Señor (ver “otro”), no están hablando por dirección divina. Por lo tanto, pide un profeta genuino para indagar sobre la voluntad del Señor.
+
+---
+
+### 2 Crónicas 18:8
+La profecía cumplida de Sedequías puede ser un intento de invocar la bendición mosaica de las tribus de José en Deuteronomio 33:17.
+
+---
+
+### 2 Crónicas 18:12
+Un intento de obligar a Micaías a adoptar el punto de vista de la mayoría y decir lo que el rey quiere oír, pero Micaías rechaza tal compromiso (v. 13).
+
+---
+
+### 2 Crónicas 18:14
+El tono burlón e irónico de la respuesta de Micaías es evidente para Acab.
+
+---
+
+### 2 Crónicas 18:18
+Vi a Jehová . La visión de Micaías de las deliberaciones celestiales (ver Job 1:6–12; Is. 6:1–8; Zac. 3) demuestra que la soberanía de Dios se extiende sobre los eventos malignos (1 Cr. 21:1 nota)
+
+---
+
+### 2 Crónicas 18:22
+acerca de ti. Forma singular, que se refiere a Acab.
+
+---
+
+### 2 Crónicas 18:25
+hijo del rey. Designación de un funcionario de la corte que hace cumplir las órdenes reales en lugar de un miembro de la familia de Acab (véase Jer. 36:26; 38:6).
+
+---
+
+### 2 Crónicas 18:28
+A diferencia de Roboam (11:4) y Asa después de su primera batalla (15:1-8), Josafat no hace caso de la advertencia del profeta. Como resultado, Josafat apenas logra escapar con vida (18:31). Véase nota sobre 20:20.
+
+---
+
+### 2 Crónicas 18:29
+Acab intenta hacer que Josafat un blanco para el enemigo, y, sin sospecharlo, Josafat no ve el peligro. Él está dentro.
+
+---
+
+### 2 Crónicas 18:31
+Josafat clamó . El escritor añade a las palabras de 1 Reyes 22:32 la declaración explícita de que “el SEÑOR le ayudó”, recordando la petición de la oración dedicatoria de Salomón (6:34 nota; 7:14 nota). Aunque Josafat está involucrado en una empresa que el Señor no ha sancionado, cuando clama en la oración, recibe asistencia divina.
+
+---
+
+### 2 Crónicas 18:34
+murió. El escritor no Repita los detalles de la muerte de Acab que se encuentran en 1 Reyes 22:36-40.
+
+---
+
+### 2 Crónicas 19:1
+Josafat escapa de la muerte después de clamar al Señor (18:31). Aun así, Jehú lo reprende por su pecado. Dios Anteriormente reprendió a Josafat por depender de una alianza extranjera ( nota 16:7-10; 1 Crónicas 28:9 nota).
+
+---
+
+### 2 Crónicas 19:2
+Ama a los que odian al SEÑOR . Esto no prohíbe la compasión por los perdidos (Mateo 5:44), pero sí prohíbe compromiso con los enemigos de Dios y participación en sus planes (Salmo 139:21, 22)
+
+---
+
+### 2 Crónicas 19:4
+Josafat viaja personalmente por todo el reino desde Beerseba en el sur hasta la frontera norte con Israel para atraer al pueblo de nuevo a la lealtad a Dios.
+
+---
+
+### 2 Crónicas 19:5
+Josafat establece un sistema de tribunales en todo Judá para hacer cumplir la ley mosaica (1 Cr 26:20–32). Anteriormente envió a líderes, levitas y sacerdotes para enseñar (17:7–9).
+
+---
+
+### 2 Crónicas 19:6
+Él está con vosotros. Esto no significa que sus decisiones sean inspiradas sino que Dios aprueba la labor de los tribunales en general y quiere que sus decisiones se tomen conforme a Su ley.
+
+---
+
+### 2 Crónicas 19:8
+Josafat también establece un tribunal supremo en Jerusalén para escuchar apelaciones. Los arreglos del rey establecen que los casos religiosos sean escuchados por el sumo sacerdote y los casos civiles por un administrador real. Zebadías no es el mismo individuo que el levita de ese nombre en 17:8. Los detalles de tales arreglos judiciales fueron de interés para los lectores postexílicos del Cronista porque los persas les otorgaron el derecho de organizar tribunales locales.
+
+---
+
+### 2 Crónicas 20:1
+Esta batalla no se encuentra en Reyes. Josafat responde a una amenaza militar grave con una confianza ejemplar en el Señor (cf. su enfoque de la batalla en 18:1–19:3). Este incidente probablemente ocurre poco después de la derrota en Ramot de Galaad. 20:1 Moabitas... amonitas. Los descendientes de estos enemigos siguen siendo una amenaza para Israel después del regreso del exilio en Babilonia (Neh. 2:19; 4:1–3; 13). Meunitas. Miembros de una tribu árabe que habitaba al sur y al este del mar Muerto, incluido el territorio de Edom (1 Crónicas 4:41; 2 Crónicas 26:7). Es posible que en esa época estuvieran habitando en el monte Seir (v. 10), probablemente ubicado al sur de Edom.
+
+---
+
+### 2 Crónicas 20:2
+Una gran multitud... contra tú. Véase la nota sobre 1 Crónicas 19:7. Edom. Aunque prácticamente todos los manuscritos hebreos dicen “Aram”, es decir, Siria (nota del texto), no se menciona a Aram en el contexto. El hebreo para Edom y Aram difiere solo en una letra, por lo que puede haber habido una tendencia entre los copistas a leer erróneamente “Edom” como “Aram”. Véase la Introducción a 1 Crónicas: Números Especiales. En-Gedi. En la costa oeste del Mar Muerto, camino a Jerusalén.
+
+---
+
+### 2 Crónicas 20:3
+proclamó un ayuno. Josafat responde inmediatamente llamando a Judá a ayunar y buscar al Señor; estas acciones Recordemos la oración dedicatoria de Salomón (notas 6:34).
+
+---
+
+### 2 Crónicas 20
+La asamblea de Josafat sigue el modelo litúrgico a menudo asociado con las oraciones de lamento: se ofrece una oración corporativa (vv. 5–13); hay un oráculo de liberación de parte de Dios (vv. 14–19). 17); y el pueblo responde con alabanza (vv. 18, 19). La estrategia y el resultado de esta batalla forman un contraste sorprendente con la batalla anterior de Josafat (18:28–34). y notas). 20:20 El desierto de Tecoa. Tecoa se encuentra a 19 km al sur de Jerusalén. El paso de montaña de Ziz (v. 16) comienza al norte de En-gadi y se extiende hacia el interior hasta terminar cerca de Tecoa. Cree en sus profetas y tendrás éxito. 2 Crónicas enfatiza con frecuencia la importancia de confiar y obedecer la palabra profética. Véanse las notas de los capítulos 10–11. 12; 14:2–16:14; 18:1–19:3; 24:19; 25:1–13; 25:15, 16; 28:5–15; 36:15 (véase también Introducción a 1 Crónicas: Características y temas principales). La instrucción de Josafat contrasta con su rechazo anterior a Micaías (18:1-2). 32)
+
+---
+
+### 2 Crónicas 20:9
+Josafat aplica el método de Salomón. oración dedicatoria explícita a su situación (6:12–42 y notas).
+
+---
+
+### 2 Crónicas 20:12
+Somos impotentes. La confesión de la impotencia humana, la humildad y la confianza en el poder divino aparecen también en la oración de Asa (nota de 14:11).
+
+---
+
+### 2 Crónicas 20:15
+No es de ustedes, sino de Dios. El esfuerzo humano en la guerra de Israel se basa en el poder divino. El profeta le recuerda a Josafat que la responsabilidad humana depende de la soberanía de Dios (v. 17).
+
+---
+
+### 2 Crónicas 20:21
+Su misericordia perdura para siempre. Véase nota sobre 5:13.
+
+---
+
+### 2 Crónicas 20:22
+prepara una emboscada. El Señor hace que el ejército enemigo sea atacado (no está claro quién lo hará), pero el resultado es que en la pelea que sigue los diversos contingentes de la fuerza enemiga se destruyen mutuamente (véase Jueces 7:22).
+
+---
+
+### 2 Crónicas 20:26
+hasta el día de hoy. Ver nota sobre 1 Crónicas 20:26 4:41.
+
+---
+
+### 2 Crónicas 20:29
+Temor de Dios. Véase nota sobre 17:10.
+
+---
+
+### 2 Crónicas 20:30
+tranquilidad... descanso. Ver nota sobre 1 Crónicas 22:9.
+
+---
+
+### 2 Crónicas 20:31
+veinticinco años. 2 R 3:1 (dieciocho años) y 8:16 (cuatro años) elevan el reinado de Josafat a veintidós años. Crónicas y 1 Reyes 22:42 incluyen los tres años en los que Josafat fue corregente con Asa (nota 17:1).
+
+---
+
+### 2 Crónicas 20:33
+lugares altos. Véase la nota sobre 14:3.
+
+---
+
+### 2 Crónicas 20:34
+registrado en el Libro. Ver Introducción a 1 Crónicas: Características literarias.
+
+---
+
+### 2 Crónicas 20:35
+El texto incluye un breve aviso de otra ocasión en la que Josafat recibió una reprimenda profética por hacer una alianza con el reino del norte (nota de 16:2). Ocozías, hijo y sucesor de Acab, reinó brevemente entre 853 y 852 a. C.
+
+---
+
+### 2 Crónicas 20:36
+para ir a Tarsis. Ver nota sobre 9:21.
+
+---
+
+### 2 Crónicas 21:1
+El Cronista complementa el registro del reinado de Joram en Reyes (2 R. 8:16–24); en Reyes, la evaluación es negativa. Joram reinó como corregente con Josafat desde 853 hasta 863. hasta el 848 a. C. (2 R. 1:17; 3:1) y por sí mismo desde el 848 hasta el 841 a. C. Asesinó a sus hermanos (21:2–7); Edom y Libna se rebelaron contra él (21:8–10); cayó en la idolatría (21:11); y Elías profetizó un juicio inminente (21:12–20).
+
+---
+
+### 2 Crónicas 21:2
+hermanos. El asesinato de los hermanos de Joram registrado aquí es adicional al relato de Reyes (2 R. 8:16–22). Por otra parte, Reyes describe cómo Salomón desechó a Adonías, un acontecimiento omitido en Crónicas (1 R 2:24). Rey de Israel. “Israel” aquí y en el v. 4 es una referencia al reino del sur de Judá. Véase la nota sobre 10:1.
+
+---
+
+### 2 Crónicas 21:5
+Ocho años. Como único monarca (nota de 21:1–20).
+
+---
+
+### 2 Crónicas 21:7
+no dispuesto a destruir la casa La casa de David está al borde de la aniquilación . Joram merece morir, pero Dios le preserva la vida para cumplir Su promesa de una dinastía permanente a David. A pesar de los pecados de los descendientes individuales de David, la línea davídica nunca será rechazada por completo (1 Cr. 17:7-14). Una lámpara. En esta época, las lámparas se mantenían encendidas en una tienda para proporcionar luz en los entornos más oscuros. En este reinado y en el siguiente, la dinastía davídica cae a nuevos mínimos y se mantiene sólo por la gracia de Dios.
+
+---
+
+### 2 Crónicas 21
+El desagrado de Dios hacia Joram se hace evidente cuando estas dos naciones sujetas a Judá se rebelan con éxito contra él. 21:8 Edom. Josafat subyugó a Edom mediante su justa dependencia de Dios (20:1–30). Sin embargo, Joram fracasa en su intento porque se rebela contra Dios (v. 10). El juicio contra Joram es doble. En primer lugar, Dios promete “una gran plaga” sobre el pueblo y sobre la familia de Joram, amenaza que se cumple con los ataques de los filisteos y los árabes. En segundo lugar, Joram enferma terminalmente, como se profetizó (v. 15). El énfasis está en la retribución inmediata (1 Cr. 28:9 nota; Introducción: Teología de 2 Crónicas).
+
+---
+
+### 2 Crónicas 21:10
+hasta el día de hoy. Ver nota sobre 1 Crónicas 21:10 hasta el día de hoy. 4:41. Libna. Una zona entre Judá y Filistea.
+
+---
+
+### 2 Crónicas 21:11
+Este episodio que ilustra las profundidades del pecado de Joram es adicional al relato de Reyes. 21:11 construyó lugares altos. Mientras que Asa y Josafat no lograron eliminar todos los lugares altos de la tierra (nota 14:3), Joram los construyó activamente (véase 28:25). prostitución. Quizá literalmente a través de la participación en la prostitución en rituales de adoración pagana o metafóricamente a través de la infidelidad espiritual (1 Crónicas 5:25).
+
+---
+
+### 2 Crónicas 21:12
+Elías. La única mención del profeta en Crónicas; compárese con el extenso relato de sus actividades proféticas en 1 R 17–2 R 2. La traslación de Elías debe haber ocurrido poco después de que él escribiera esta carta en el año 848 a. C. Elías da la razón del juicio inminente: que Joram no ha tomado a su padre ni a su abuelo como modelos a seguir, sino a los reyes corruptos del reino del norte.
+
+---
+
+### 2 Crónicas 21:16
+los árabes que están cerca de la Etíopes. Literalmente, “cerca de los cusitas”, posiblemente significando nómadas en la zona. entre Judá y Egipto (para el uso normal de “Cus”, véase 1 Crónicas 1:8). VOLVER 2 CRÓNICAS 21:16
+
+---
+
+### 2 Crónicas 21:17
+Joacaz. Esta es una variante del nombre Ocozías (22:1).
+
+---
+
+### 2 Crónicas 21:19
+No encendió fuego. Véase la respuesta a la muerte de Asa (16:14). Joram (21:20), Joás (24:25), Acaz (28:27) y Manasés (33:20) muere en la ignominia. Amón es asesinado (véase 33:24).
+
+---
+
+### 2 Crónicas 21:20
+Crónicas complementa el relato dado en 2 Reyes 8:24 sobre la muerte y entierro de Joram con detalles que revelan su total desgracia. Ocho años. Véase la nota sobre el v. 5.
+
+---
+
+### 2 Crónicas 22:1
+El registro de Crónicas vincula estrechamente a Ocozías (841 a. C.) con su padre Joram (21:4–20). Ambos reyes están profundamente influenciados por Atalía y, por lo tanto, son evaluados negativamente (21:6; 22:3, 4). En ambos reinados, la dinastía davídica apenas escapa a la aniquilación (21:16, 17; 22:7–9).
+
+---
+
+### 2 Crónicas 22:2
+veintidós años. El texto hebreo dice “cuarenta y dos años” (nota del texto), pero eso lo haría mayor que su padre (21:20). La corrección se hace con base en 2 Reyes 8:26. Ver Introducción a 1 Crónicas: Números especiales.
+
+---
+
+### 2 Crónicas 22:3
+Crónicas presenta la rápida caída de Ocozías como un castigo divino por su alianza con el reino del norte (nota 16:2). Está bajo la influencia de su madre (v. 3) y de los consejeros del norte de la casa de Acab (v. 4), una combinación verdaderamente tóxica empeñada en promover la iniquidad.
+
+---
+
+### 2 Crónicas 22:5
+Joram. También conocido como Joram (más adelante en este versículo y en el v. 6). Era tío de Ocozías. Hazael. Véase 1 R 19:15; 2 R 8:7–15.
+
+---
+
+### 2 Crónicas 22:7
+Son los contactos de Ocozías con Joram, que son utilizados divinamente para provocar su caída.
+
+---
+
+### 2 Crónicas 22:8
+Jehú estaba ejecutando juicio. Reyes informa que Eliseo ungió a Jehú para destruir la casa de Omri (2 Reyes 12:1-13). 9:1–10:31). La muerte de Ocozías es parte de este juicio.
+
+---
+
+### 2 Crónicas 22:9
+Lo sepultaron. Ocozías recibe un entierro honorable, presumiblemente en Jerusalén, no por su carácter sino por respeto a su abuelo Josafat. Nadie capaz de gobernar. El único sobreviviente varón de la dinastía davídica es Joás, todavía un niño.
+
+---
+
+### 2 Crónicas 23:21
+El Cronista sigue de cerca el registro de 2 Reyes 11. Atalía es la única reina que gobernó en Judá (841–845 d. C.) 835 a. C.). No se hacen declaraciones formales sobre el comienzo y el final de su reinado, porque se la trata como la usurpadora que es, y el relato de su El reinado de Atalía se centra en la oposición a ella. La vida del joven heredero al trono, Joás, es preservada por su tía, Jehoshabet (22:10-12). Siete años después, el esposo de Jehoshabet, el sumo sacerdote Joiada, reúne suficiente apoyo para coronar a Joás (23:1-11). Atalía es ejecutada (23:12-15), y Joiada toma medidas para revertir la decadencia religiosa que prevaleció durante su reinado (23:16-21). 22:10–12 La alianza matrimonial de Josafat (nota 18:1) finalmente produce su consecuencia más nefasta: la línea davídica de la que procederá el Mesías queda casi extinta. Con una crueldad típica del norte apóstata, Atalía asesina a cualquiera que represente una amenaza para su control del poder. quietud. Véase la nota sobre 1 Crónicas 22:9.
+
+---
+
+### 2 Crónicas 22:11
+Jehosabet. (Jehosheba, 2 Rey. 11:2) es hija del rey anterior, Joram. Su esposo, Joiada, Bien podría ser mucho mayor que ella (ver 24:15).
+
+---
+
+### 2 Crónicas 23:1
+El sacerdote sadoquita Joiada resiste a la reina Atalía y obtiene el apoyo militar necesario para la reforma política y del templo. El relato de Reyes se centra más en los guardias reales, mientras que el Cronista destaca la participación de la nación en su conjunto y de los funcionarios del templo.
+
+---
+
+### 2 Crónicas 23:2
+hasta Judá... todas las ciudades. Este versículo amplía el relato de Reyes, mostrando el amplio apoyo que recibió Joás en Judá (nota de 1 Crónicas 11:1).
+
+---
+
+### 2 Crónicas 23:3
+mientras el SEÑOR hablaba. Ver nota sobre 1 Crónicas 17:14.
+
+---
+
+### 2 Crónicas 23
+Joiada es muy consciente de la crueldad de Atalía y toma medidas para garantizar la seguridad del joven rey, tanto en su refugio en el templo como cuando lo abandona. Es capaz de duplicar el número de sacerdotes y levitas en el recinto del templo organizando el golpe de estado cuando los guardias están programados para cambiar de servicio.
+
+---
+
+### 2 Crónicas 23:11
+el testimonio. Probablemente el texto del pacto hecho en 23:3, que refleja los requisitos de Deuteronomio 17:18-20, y Posiblemente también el papel de Joiada durante cualquier regencia continua.
+
+---
+
+### 2 Crónicas 23:13
+trompetas... cantores... instrumentos musicales. Véase nota sobre 1 Crónicas 15:16. Traición. Atalía no es consciente de su posición y no tiene ni la menor idea de que haya algún hijo sobreviviente de Ocozías.
+
+---
+
+### 2 Crónicas 23:15
+le echaron mano. La escena puede leerse de dos maneras, como lo indica la nota del texto. Probablemente Atalía sale del templo (nótese que “fue”, no “fue traída”). Como una persona cuya filosofía considera que el “poder” es “lo correcto”, reconoce la inevitabilidad de su destino.
+
+---
+
+### 2 Crónicas 23:16
+Hicieron un pacto. Véase la nota sobre 15:12. Esto reconoce la soberanía del Señor en todos los asuntos relacionados con el reino y conduce a la erradicación del culto a Baal en Jerusalén.
+
+---
+
+### 2 Crónicas 23:17
+casa de Baal. Probablemente un santuario a Baal erigido para Atalía (véase 1 R 11:1-8).
+
+---
+
+### 2 Crónicas 23:18
+Este relato enfatiza más que 2 Reyes 11:18 que el nuevo orden del templo bajo Joiada y Joás es conforme al diseño mosaico y davídico. Esto proporciona una lección obvia para el Comunidad restaurada en cuanto al culto en el segundo templo.
+
+---
+
+### 2 Crónicas 24:1
+Joás reinó entre 835 y 796 a. C. Este relato debe compararse con 2 Reyes 12, al que los versículos 15-22 son un extenso complemento. El cronista señala cuidadosamente el momento decisivo en el reinado de Joás, que ocurre con la muerte de Joiada, de modo que el reinado de Joás se describe en dos períodos: años de obediencia fiel (vv. 1-16) y años de traición que terminan en asesinato (vv. 17-27). A este relato le siguen los de otros dos reinan Amasías (cap. 25) y Uzías (cap. 26), donde los buenos comienzos no son La desobediencia mantenida y posterior conduce a la desgracia y al fracaso.
+
+---
+
+### 2 Crónicas 24:2
+todos los días de Joiada. Los logros positivos de Joás son el resultado de la influencia de Joiada (24:14). Después de la muerte de Joiada, Joás se aparta del Señor (24:17–19; véase 26:5). El cronista ilustra la importancia del apoyo mutuo entre el rey y el sacerdote (notas 22:10– 23:21 y 24:1–27).
+
+---
+
+### 2 Crónicas 24:4
+Después de esto, la evidencia de 2 En 2 Reyes 12:6 se sitúa la preocupación inicial de Joás por restaurar el templo en algún momento antes del año veintitrés de su reinado. Como los levitas no actúan para entonces (posiblemente porque no quieren que las donaciones para el templo se desvíen de su propio mantenimiento, véase 2 Reyes 12:7), el rey toma medidas adicionales para hacer avanzar la obra. Al permitir que se hicieran donaciones en el mismo templo (vv. 8–10).
+
+---
+
+### 2 Crónicas 24:5
+los sacerdotes y los levitas. Crónicas (nota 23:18, 19) enfatiza la necesidad de un orden levítico apropiado más que 2 Reyes 12:1–3. dinero... de año en año. Este requisito es el impuesto de medio siclo del Ex. 30:11–16; 38:24–26 (véase 24:9).
+
+---
+
+### 2 Crónicas 24:6
+Moisés... impuso sobre Israel. Véase la nota sobre 1 Crónicas 16:40.
+
+---
+
+### 2 Crónicas 24:7
+los hijos de Atalía. Ella no tiene descendencia. Estos hombres son sus seguidores, quienes han adoptado sus prácticas y han profanado el templo.
+
+---
+
+### 2 Crónicas 24
+La generosidad y la alegría de los funcionarios y del pueblo son un buen ejemplo para quienes participan en Restauración del culto en el templo después del exilio (nota 1 Crónicas 29:1–9). La muerte de Joiada marca el punto de inflexión en la carrera de Joás. Su contribución a la vida de la nación es reconocido al otorgarle el equivalente a un funeral de Estado.
+
+---
+
+### 2 Crónicas 24:17
+El rey los escuchó y dio su consentimiento a las propuestas de los príncipes y líderes de Judá de que se permitiera nuevamente el culto cananeo. Se describe a Joás como alguien que se dejaba influenciar fácilmente por quienes lo rodeaban.
+
+---
+
+### 2 Crónicas 24:18
+abandonado... desamparado ... abandonados... abandonados. La repetición del mismo verbo hebreo denota una acción contraria a los términos del pacto. Cuando el pueblo y sus reyes ya no son obedientes al Señor y no observan Sus requisitos, Él los trata (temporalmente) como si no tuvieran ninguna afiliación al pacto con Él para obligarlos a reconsiderar y enmendar su conducta apóstata. Véase la nota sobre 1 Cr. 28:9.
+
+---
+
+### 2 Crónicas 24:19
+profetas... no quisieron pagar Atención. La apostasía está ligada al rechazo de los profetas de Dios (nota 20:20), a quien Él envía para advertir a Su pueblo rebelde de su necesidad de arrepentirse.
+
+---
+
+### 2 Crónicas 24:20
+vistió a Zacarías. No a Zacarías hijo de Berequías, autor de la profecía (Zac. 1:1). Este sacerdote, primo de Joás, está divinamente inspirado para advertir al pueblo de su error. “vestida”, véase nota sobre 1 Crónicas 12:18.
+
+---
+
+### 2 Crónicas 24:21
+Por orden del rey, Joás se niega a hacer caso de la advertencia y es responsable de la muerte del hijo de su tío, que tanto hizo por él. Los asesinos de Zacarías no tienen escrúpulos por la santidad del templo (cf. 23:14).
+
+---
+
+### 2 Crónicas 24:22
+bondad. En otros lugares se traduce como “amor constante”. Joiada había actuado fielmente. Que el Señor vea y vengue. Si bien este sentimiento a menudo se contrasta desfavorablemente con las actitudes del NT (Lucas 23:34; Hechos 7:60), no hay contradicción con la enseñanza del NT porque es reconocida divinamente en lo que sigue. 2 CRÓNICAS 24:22
+
+---
+
+### 2 Crónicas 24:23
+Al final del año. En la primavera, cuando los ejércitos antiguos suelen hacer campaña. La venganza del Señor que invocó Zacarías no se hace esperar. Crónicas menciona con frecuencia la derrota militar como el juicio de Dios contra el pecado (1 Crónicas 10; 2 Crónicas 13:1–16; 18:33, 34; 21:16, 17; 25:14–24; 28:1– 5; 33:1–11). Aquí se muestra el impacto de la La invasión afecta particularmente a “los príncipes del pueblo”, muy probablemente el grupo que inició el retorno al paganismo en el v. 17.
+
+---
+
+### 2 Crónicas 24:24
+Judá había abandonado. La situación se volvió en contra de Judá como se amenazó en el pacto (Deut. 28:25; 32:30; 1 Crónicas 28:9 nota).
+
+---
+
+### 2 Crónicas 24:25
+no... en los sepulcros de los reyes. A Joás no se le concede el honor que se le concedió a su tutor Joiada (v. 16).
+
+---
+
+### 2 Crónicas 24:26
+Amonita... Moabita. Josafat había derrotado anteriormente a Amón y Moab (nota 20:1). Esta información sobre su nacionalidad no se menciona en Reyes, pero es significativa en términos de la Oposición que se encontró en el tiempo del Cronista.
+
+---
+
+### 2 Crónicas 24:27
+Historia del Libro de los Reyes. Véase Introducción a 1 Crónicas: Características literarias.
+
+---
+
+### 2 Crónicas 25:1
+El relato del reinado de Amasías (796– 767 a. C.) debe compararse con 2 Reyes 14. Nótese que los detalles de los mercenarios y la guerra contra Edom se registran solo en Crónicas (vv. 5–16). El Cronista muestra cómo las alianzas extranjeras, la respuesta a la instrucción profética y la idolatría afectan la seguridad militar de Israel. El relato describe la fidelidad y la infidelidad, de forma muy similar a los informes sobre Joás (22:10–24:27) y Uzías (cap. 26). 25:1–13 Amasías. No es un devoto incondicional del Señor, pero responde adecuadamente a la advertencia profética (nota 20:20). Detalles de la Aquí no se registran tibiezas (véase 2 Reyes 14:4).
+
+---
+
+### 2 Crónicas 25:4
+Libro de Moisés. Véase 1 Crónicas 16:40. Al observar esta limitación, que no concuerda con la manera en que se toma venganza en las naciones vecinas de Judá, Amasías honra los requerimientos del Señor.
+
+---
+
+### 2 Crónicas 25:5
+Para estas grandes cifras, véase la nota sobre 1 Crónicas 12:23. Debido a las pérdidas anteriores, las cifras son más bajos que antes (ver 14:8; 17:14).
+
+---
+
+### 2 Crónicas 25:7
+varón de Dios. Profeta que habla en nombre de Dios. Su nombre no está registrado. No dejes que el ejército de Israel se vaya. El uso de mercenarios del norte equivale a una alianza extranjera, una línea de acción que los profetas condenan constantemente (16:2 nota). El Señor no está con Israel. Abías expresó una opinión similar con respecto al reino del norte (13:9, 10).
+
+---
+
+### 2 Crónicas 25:8
+Dios tiene poder. De manera típica, el hombre de Dios anónimo proclama la necesidad de confiar únicamente en el poder divino en la batalla (nota de 16:2).
+
+---
+
+### 2 Crónicas 25:10
+enojado con Judá. Aunque Amasías obedece la palabra profética, los mercenarios del norte están enojados. Aunque recibieron algún pago, han perdido su oportunidad de obtener botín (véase v. 13)
+
+---
+
+### 2 Crónicas 25:11
+Valle de la Sal. Posiblemente se refiere a la zona al sur del Mar Muerto (1 Crónicas 18:12). Los hombres de Seir. Los edomitas.
+
+---
+
+### 2 Crónicas 25:12
+una roca. Posiblemente una referencia a Sela, la capital edomita, que fue capturada en esa época (2 R 14:7). Todo hecho pedazos. Amasías sigue las instrucciones mosaicas para la guerra santa (Deut. 20:13–18). Su obediencia es recompensada con la victoria.
+
+---
+
+### 2 Crónicas 25:13
+Samaria. Una ciudad no identificada en Judá, no la capital más conocida del reino del norte. La zona en cuestión está cerca de la frontera con el norte.
+
+---
+
+### 2 Crónicas 25:14
+trajo a los dioses. En contraste con la obediencia anterior de Amasías (v. 12), ahora desobedece las instrucciones mosaicas (Éx. 20:3; Dt. 7:25) y el ejemplo de David (1 Cr. 14:12), y trae a los edomitas Dioses a Jerusalén. Su acción es asombrosamente perversa. Abandona al Dios que le ha dado la victoria y adora a los dioses de aquellos a quienes derrotó (quizás con la intención de apaciguarlos).
+
+---
+
+### 2 Crónicas 25:15
+En contraste con su arrepentimiento anterior ante la palabra profética (25:7-10), Amasías rechaza al profeta y recibe una severa advertencia (nota 20:20). 25:16 Dios ha determinado destruirte. Véase la nota sobre 1 Crónicas 28:9.
+
+---
+
+### 2 Crónicas 25
+Amasías reacciona a las incursiones israelitas en su territorio (v. 13) desafiando al rey israelita, Joás/Jehoás (793–753 a. C.), a pelear. Joás responde primero con una parábola en la que compara a Amasías con un cardo que busca un favor de sí mismo como un poderoso cedro. Una bestia salvaje es una referencia a los soldados merodeadores. Joás argumenta que Amasías se ha vuelto engreído y debería contentarse con quedarse en casa.
+
+---
+
+### 2 Crónicas 25:20
+Era de Dios. La soberanía de Dios incluye endurecer los corazones de los pecadores para que ya no respondan a Advertencias (nota 1 Crónicas 21:1; véase también Éxodo 3:19; 4:12; 7:3, 4).
+
+---
+
+### 2 Crónicas 25:21
+Bet-semes. Al oeste de Belén.
+
+---
+
+### 2 Crónicas 25:22
+La derrota de Amasías contrasta con su victoria anterior (vv. 11–13).
+
+---
+
+### 2 Crónicas 25:23
+desde la puerta de Efraín hasta la Puerta de la Esquina. Desde el ángulo noroeste de la muralla de la ciudad hasta el ángulo noreste.
+
+---
+
+### 2 Crónicas 25:26
+Libro de los Reyes. Ver Introducción a 1 Crónicas: Características literarias.
+
+---
+
+### 2 Crónicas 25:27
+La necedad de Amasías lleva a que grupos no especificados conspiren contra él. Su huida a Laquis (30 millas [40 km] al suroeste de Jerusalén) no es suficiente para liberarlo de sus manos. VOLVER 2 CRÓNICAS 25:27
+
+---
+
+### 2 Crónicas 26:1
+El Cronista añade una sección larga (vv. 5–20) a las breves notas sobre Uzías en 2 Reyes 14, 15. Su relato se desarrolla en cuatro etapas: ascenso al poder (vv. 1, 2); obediencia y bendición (vv. 3–15); desobediencia y maldición (vv. 16–20); resumen y muerte (vv. 22, 23). 26:1 Uzías. Uzías reinó entre 792/791–740 a. C. En 2 Reyes se le llama con frecuencia, pero no siempre, “Azarías”. La cronología de su reinado se entiende mejor si se lo presenta a la edad de dieciséis años como corregente con su padre en 791 a. C., un arreglo que dura hasta 767 a. C., cuando Uzías comienza a gobernar en su propio nombre. Su reinado termina con otra corregencia (véase la nota de 27:1). La preposición traducido “en lugar de” también puede significar “debajo, debajo”.
+
+---
+
+### 2 Crónicas 26:2
+Elot. O Elat. Este puerto en el golfo de Aqaba fue recuperado por Edom durante el reinado de Joram (21:8–10).
+
+---
+
+### 2 Crónicas 26:4
+según... su padre Amasías. El historiador compara a Uzías con su padre, cuyo reinado también estuvo dividido entre la bendición y la maldición. El cronista omite nuevamente la mención en Reyes sobre el fracaso en la eliminación de los lugares altos (2 R 15:4).
+
+---
+
+### 2 Crónicas 26:5
+buscad a Dios... buscad al SEÑOR . Véase nota sobre 7:14. En los días de Zacarías. Un consejero real desconocido, poco probable que fuera el Zacarías mencionado en Is. 8:2, ya que “en los días de” sugiere que Zacarías murió durante el reinado de Uzías y, por lo tanto, no pudo haber sido consejero de su nieto Acaz (rey en la época de Is. 8; véase Is. 7:1). Joás fue obediente mientras vivió Joiada, y Uzías se desenvuelve bien bajo la tutela de Zacarías (nota 24:2). Dios lo hizo prosperar. La obediencia al pacto trae bendiciones. Tanto Israel bajo Jeroboam II como Judá disfrutan de un período de prosperidad en esta época. Uzías se centra en el territorio al sur de Judá.
+
+---
+
+### 2 Crónicas 26
+Uzías es bendecido en el conflicto internacional (vv. 6-8), los asuntos domésticos (vv. 9, 10) y la fuerza militar. (vv. 11–15)
+
+---
+
+### 2 Crónicas 26:7
+Los meunitas. La bendición de Uzías recuerda la victoria de Josafat (20:1–30).
+
+---
+
+### 2 Crónicas 26:8
+Amonitas. Véase la nota sobre 1 Crónicas 26:8. 19:1.
+
+---
+
+### 2 Crónicas 26:9
+Uzías construyó. Una inversión de la Destrucción en la derrota de Amasías (25:23). Véase la nota sobre 1 Crónicas 11:5.
+
+---
+
+### 2 Crónicas 26:13
+Para la gran cantidad, véase la nota sobre 1 Crónicas 12:23.
+
+---
+
+### 2 Crónicas 26:16
+Este episodio muestra el juicio del Señor contra el orgullo de Uzías. Al igual que con Roboam (12:1), el éxito inicial lleva a la indiferencia hacia Dios y Su ley. La lepra de Uzías se menciona solo brevemente en 2 Reyes 15:5. Puede ser que Uzías esté afirmando ser un rey-sacerdote similar a los de las naciones circundantes y sea castigado por su presunción e infidelidad. Para “infiel”, véase la nota sobre 1 Crónicas 2:7. 26:16 Cuando era fuerte, Moisés advirtió a Israel que tuviera cuidado de no dejar que el éxito Hazlos orgullosos y autosuficientes (Deut. 8:10–18).
+
+---
+
+### 2 Crónicas 26:17
+Azarías. Un sumo sacerdote desconocido. Él y ochenta sacerdotes valientes entregan el juicio de Dios a Uzías. El cronista destaca por tercera vez el papel de los sacerdotes como instructores de la realeza (24:2 y nota).
+
+---
+
+### 2 Crónicas 26:18
+para los sacerdotes. En la legislación mosaica, la quema de incienso está restringida a los sacerdotes (Éx. 30:7–9; Núm. 16:39, 40). Véase la nota teológica “Gobierno civil” en la pág. 2004.
+
+---
+
+### 2 Crónicas 26:19
+Uzías se enojó. Se negó a aceptar la reprensión de los sacerdotes y a arrepentirse. Es esta obstinación la que lo llevó a ser atacado con una enfermedad de la piel, que implica impureza ceremonial.
+
+---
+
+### 2 Crónicas 26:21
+excluido de la casa del SEÑOR . Uzías es puesto en cuarentena y se lo mantiene fuera del templo, de acuerdo con la Ley de Moisés (Lev. 13:46; Núm. 5:1–4).
+
+---
+
+### 2 Crónicas 26:22
+El profeta Isaías... escribió. Véase Introducción a 1 Crónicas: Características literarias. El cronista señala que Isaías también registra el reinado de Ezequías (32:32), aunque esa referencia, a diferencia de la Uno de ellos, puede referirse a su profecía canónica.
+
+---
+
+### 2 Crónicas 26:23
+en el campo de sepultura. Uzías es enterrado lejos de la familia real en relativa deshonra debido a la maldición de la lepra.
+
+---
+
+### 2 Crónicas 27:1
+En contraste con los registros desde Joás hasta Uzías, donde cada reinado tiene un equilibrio de obediencia y desobediencia (nota 22:10–24:27), la evaluación que hace el Cronista de Jotam es completamente positiva. A esto le sigue un tratamiento negativo de Acaz (cap. 28). Crónicas señala que la fidelidad a Dios es el camino al éxito en los proyectos de construcción y en los conflictos militares, lo que proporciona una lección vital para la comunidad postexílica que intenta reconstruir la vida en la Tierra Prometida. El Cronista se basa en 2 Reyes 15:32–38, con material adicional de otras fuentes en los versículos 3–6. 27:1 Jotam... dieciséis años. Reinó 750–732 a.C. Jotam reinó durante el período de la lepra de su padre Uzías (750–740 a.C.) y tuvo corregencia con su hijo Acaz (735–732 a.C.). Durante seis años fue el único monarca. La figura La expresión “dieciséis años” que aparece aquí y en el v. 8 probablemente se refiere a su corregencia con su padre y a su reinado independiente. Si se suman los cuatro años que pasó con Acaz, quien probablemente tomó las riendas del gobierno, el total asciende a veinte años (2 R. 15:30).
+
+---
+
+### 2 Crónicas 27:2
+Jotam no entró en el templo. A diferencia de su padre Uzías, Jotam no viola las normas sacerdotales (nota de 26:18). El pueblo seguía practicando la corrupción. El historiador explica que el pueblo, y no Jotam, es el culpable de la corrupción continua (véase 2 Reyes 15:35), probablemente refiriéndose al culto en los lugares altos.
+
+---
+
+### 2 Crónicas 27:3
+Puerta superior. Jotam reconstruye esta puerta en el lado norte del templo. Muro de Ofel. Al sur del templo. Ofel es la parte norte de la ciudad original de David.
+
+---
+
+### 2 Crónicas 27:5
+Este relato de la victoria sobre los amonitas destaca la aprobación de Dios hacia Jotam. El pago por tres años puede ser una compensación por el tributo que se había retenido anteriormente, o puede indicar que los ataques a Judá desde el norte ocurren porque Jotam ha dejado de prestar atención a la imposición de estos pagos.
+
+---
+
+### 2 Crónicas 27:7
+en el Libro de los Reyes. Ver Introducción a 1 Crónicas: Características literarias.
+
+---
+
+### 2 Crónicas 28:1
+El relato de Acaz en 2 Reyes. El capítulo 16 se complementa aquí, especialmente en los versículos 5 al 21. El reinado de Acaz contrasta marcadamente con el de su padre (cap. 27, nota), y el relato se centra en cómo su infidelidad condujo a una derrota militar. 28:1 Acaz. Acaz reinó junto con Jotam, 735–732 a.C., y luego como único monarca durante dieciséis años, 732–715 a.C. Si tenía veinte años cuando asumió el cargo, tenía treinta y seis cuando murió, y habría tenido sólo once cuando nació su hijo Ezequías (29:1). Algunas fuentes antiguas dan la cifra de “veinticinco” en lugar de “veinte” para su edad al momento de la sucesión. No hizo lo que era correcto. Acaz no posee características redentoras; su reinado es un completo desastre desde el principio.
+
+---
+
+### 2 Crónicas 28:2
+los caminos de los reyes de Israel. En cuanto a su política religiosa de adoptar las prácticas cananeas, Acaz va más allá que otros.
+
+---
+
+### 2 Crónicas 28:3
+Valle del hijo de Hinom. Al sur de Jerusalén, fuera de los muros de la ciudad. Más tarde conocido como Gehena. En los días de Acaz, Jerusalén utiliza el lugar para deshacerse de los desechos y allí se producen muchos incendios. quemó a sus hijos. La apostasía de Acaz es tan completa que practica sacrificios humanos. Véase Lev. 18:21; Deut. 12:31; 18:10; 2 R. 16:3; 17:17; 21:6; 23:10; 2 Chr. 33:6; PD. 106:37, 38; Es. 57:5; Jer. 7:30, 31; 19:5; 32:35; Ezeq. 16:20, 21. El sacrificio humano es característico del culto al dios amonita Moloc. Aunque 2 Reyes 16:3 simplemente dice “hijo”, el plural “hijos” también se encuentra en algunos manuscritos griegos antiguos.
+
+---
+
+### 2 Crónicas 28
+Acaz es derrotado en batalla como juicio divino por su flagrante apostasía (v. 5). 28:5 rey de Siria... rey de Israel. Rezín (rey de Siria) y Peka (rey de Israel) unen sus fuerzas contra Acaz (2 R 16:5, 6; Is 7:1-17).
+
+---
+
+### 2 Crónicas 28:9
+Samaria. Dejando de lado su enfoque habitual en el reino del sur (Judá), el Cronista informa que los ciudadanos de Samaria, capital del reino del norte, obedecen cuando un profeta les habla. Esta obediencia es un contraste instructivo con la apostasía de Judá, el reino del sur. Oded. Profeta desconocido en otros lugares, y no el mismo Oded que aparece en 2 Crónicas 15:1.
+
+---
+
+### 2 Crónicas 28:11
+vuestros parientes. Lit. “vuestros hermanos.” Oded todavía reconoce el vínculo que une al norte y al sur. VOLVER 2 CRÓNICAS 28:11
+
+---
+
+### 2 Crónicas 28:15
+El trato que estos hombres de alto rango de Samaria dieron a los cautivos se refleja en la parábola del buen samaritano (Lucas 10:30- 37). Es irónico que Israel escuche al Señor y Su profeta, mientras que Judá y su rey están decididos a seguir su propio camino. 2 CRÓNICAS 28:15
+
+---
+
+### 2 Crónicas 28:16
+Acaz queda profundamente conmovido por los acontecimientos (Is. 7:2) y decide negociar con el rey de Asiria, Tiglat-pileser III (745– 727 a. C.), para que intervenga en su favor. Además de la hostilidad de Siria (Aram) e Israel al norte, Acaz se enfrenta a los edomitas al sur y al este (v. 17) y los filisteos al suroeste (v. 18).
+
+---
+
+### 2 Crónicas 28:19
+muy infieles... aún más infiel. Véase nota sobre 1 Crónicas 2:7.
+
+---
+
+### 2 Crónicas 28:20
+lo afligió. Solicitar la ayuda asiria resulta desastroso. Aunque Judá no está ocupada por los asirios en este momento punto, y aunque los avances asirios contra la alianza de Damasco y Samaria eliminan la amenaza del norte, Judá tiene que pagar tributo, y el La plaga de la conexión asiria es devastadora.
+
+---
+
+### 2 Crónicas 28:21
+tomó... de la casa del SEÑOR . Véase la nota sobre 16:2. No le ayudó. La intervención de Tiglat-pileser le da un alivio temporal a Judá de las amenazas de Siria e Israel (2 R 16:7-9), pero Judá se vuelve subordinada a Asiria.
+
+---
+
+### 2 Crónicas 28:22
+Su angustia. Los golpes que vienen sobre Acaz en la providencia de Dios no inducen en él un espíritu de arrepentimiento. sino más bien de una dureza espiritual y una obstinación intensificadas.
+
+---
+
+### 2 Crónicas 28:23
+dioses de los reyes de Siria. Acaz visita Damasco (2 Reyes 16:10-16), pero es desconcertante por qué decide adorar a los dioses de un pueblo que ha sido conquistado por los asirios. 2 CRÓNICAS 28:23
+
+---
+
+### 2 Crónicas 28:24
+Los cambios de Acaz en el El templo se analiza con más detalle en 2 Reyes 16:17-18.
+
+---
+
+### 2 Crónicas 28:26
+el Libro de los Reyes. Ver Introducción a 1 Crónicas: Características literarias.
+
+---
+
+### 2 Crónicas 28:27
+no... tumbas. Una nota de deshonra. Véase la nota sobre 21:19.
+
+---
+
+### 2 Crónicas 29:1
+El reinado de Ezequías (c. 727–c. 696 a. C.; cf. 2 R. 18:1, 2; 21:1 notas; Is. 36:1 nota) comienza una nueva era en la historia de Israel y Judá. El reino del norte ha sido destruido por los asirios, y solo queda Judá. Se describe a Ezequías reuniendo a representantes de ambos reinos para formar un solo reino reunificado. con un solo rey y un solo templo en Jerusalén. 29:1 Ezequías. El Cronista dedica más atención a Ezequías que a cualquier otro rey, excepto David y Salomón. Utiliza material de 2 Reyes 18-20, pero lo complementa extensamente con otros detalles, incluyendo un largo relato de las reformas del templo y la celebración de la Pascua de Ezequías (29:3–31:1). El reinado de Ezequías aparece como un regreso a la gloria del reino de Salomón. En particular, la Pascua de Ezequías reúne a los reinos separados bajo un rey davídico. Esto anticipa el futuro que el Cronista cree que le espera al pueblo restaurado en el Israel postexílico.
+
+---
+
+### 2 Crónicas 29:2
+La evaluación que hace el cronista de Ezequías es totalmente positiva y pasa por alto rápidamente sus defectos, considerándolos irrelevantes para las lecciones de la historia que intenta enseñar. Aunque aquí se menciona a David, el cronista compara repetidamente a Ezequías con Salomón.
+
+---
+
+### 2 Crónicas 29:3
+En el primer año... en el primer mes. Ezequías gobernó como socio menor de su padre Acaz durante catorce años desde 729 a. C. Tan pronto como se convierte en gobernante único en 715 a. C., Ezequías revierte las acciones de su padre, Acaz (nota 28:25), y restaura la ornamentación de oro. despojados de las puertas del templo (2 R 16:8, 9).
+
+---
+
+### 2 Crónicas 29:4
+Las Crónicas generalmente prestan atención a asuntos concernientes a los sacerdotes y levitas (nota 1 Crónicas 6:1). 29:4–11 El discurso de Ezequías contrasta con las valoraciones anteriores de Abías (notas de 13:6–12). Judá ya no es diferente de Israel; ambos han abandonado a Dios. Judá también debe arrepentirse.
+
+---
+
+### 2 Crónicas 29:6
+infiel... desamparado. Dos términos clave en el vocabulario del Cronista, para los cuales véanse las notas sobre 1 Crónicas 2:7 y 1 Crónicas 28:9, respectivamente.
+
+---
+
+### 2 Crónicas 29:7
+cerró las puertas, como hizo Acaz (28:24).
+
+---
+
+### 2 Crónicas 29:8
+sobre Judá y Jerusalén. Ezequías afirma que Judá y Jerusalén están bajo la maldición de Dios por su negligencia en el cuidado del templo.
+
+---
+
+### 2 Crónicas 29:9
+en cautiverio. Durante el reinado de Acaz, muchos judíos fueron llevados al exilio por los sirios (28:5–8) y los edomitas (28:17). Estos acontecimientos prefiguraron el cautiverio babilónico que vendría (36:15–23), lo que hace del reinado de Ezequías un ejemplo persuasivo de restauración después del exilio.
+
+---
+
+### 2 Crónicas 29:10
+en mi corazón. La ira de Dios hace que Ezequías se vuelva hacia Él en arrepentimiento, no lo aleja de Él en temor. Hacer un pacto. Ezequías propone que el pueblo reafirme su compromiso con el pacto del Sinaí. Véase la nota sobre 15:12.
+
+---
+
+### 2 Crónicas 29
+El cronista menciona a representantes de las tres divisiones de la tribu de Leví (v. 12) y las tres familias de cantores (vv. 13, 14). Las reformas de Ezequías cuentan con el amplio apoyo de los levitas y están de acuerdo con el orden establecido bajo David y Salomón (nota de 1 Cr. 6:1).
+
+---
+
+### 2 Crónicas 29:13
+Elisafán. Líder prominente de los coatitas (Núm. 3:30).
+
+---
+
+### 2 Crónicas 29:16
+Los sacerdotes entraron en el templo interior. parte. El historiador ofrece estos detalles para demostrar que la renovación de Ezequías está en estricta conformidad con la legislación mosaica.
+
+---
+
+### 2 Crónicas 29:17
+el día dieciséis. Dos días después de la fecha habitual de la Pascua.
+
+---
+
+### 2 Crónicas 29:20
+La dedicación del templo por parte de Ezequías se relata en tres partes: los sacrificios traídos por los líderes (vv. 20–24), el arreglo de la música (vv. 25–30) y los sacrificios traídos por el pueblo (vv. 31–32). 36)
+
+---
+
+### 2 Crónicas 29:21
+para el reino... santuario ... Judá. Se hacen sacrificios en nombre de la familia real, los sacerdotes y los levitas, y el pueblo. Los tres grupos están involucrados en la apostasía bajo Acaz (2 R 16).
+
+---
+
+### 2 Crónicas 29:24
+todo Israel. En relación con el reino reunificado (caps. 29–36), la expresión “todo Israel” (30:1; 31:1; 35:3) se refiere tanto a Judá como a los refugiados de las tribus del norte (1 Cr. 11:1 nota; 2 Cr. 11:1 nota). Crónicas 10:1 nota). Ezequías ordena que se ofrezcan sacrificios no sólo por Judá (v. 21) sino para todos los descendientes de Israel. Este deseo de unión se expresa claramente en sus preparativos para la Pascua (30:1–6).
+
+---
+
+### 2 Crónicas 29:25
+címbalos, arpas y liras. Véase la nota sobre 1 Crónicas 15:16.
+
+---
+
+### 2 Crónicas 29:31
+Traer sacrificios. Después de que se ofrecen los sacrificios en nombre de la comunidad en su conjunto, se invita a las personas a traer ofrendas personales.
+
+---
+
+### 2 Crónicas 29:32
+Estos sacrificios son menos numerosos, pero aun así son un recordatorio de lo que Salomón ofreció cuando se dedicó el templo (7:4–6).
+
+---
+
+### 2 Crónicas 29:36
+La restauración del templo se llevó a cabo de manera repentina. La restauración del templo tomó menos de tres semanas (vv. 3, 17), lo que evidencia que Dios está obrando en el pueblo.
+
+---
+
+### 2 Crónicas 30:1
+La Pascua. Reyes enfatiza la Pascua bajo Josías (2 R. 23:21-23) sin analizar la celebración organizada por Ezequías. El cronista exalta esta celebración que reúne a las tribus del norte y del sur en la adoración del templo. Dicha reunión se registra debido a su sorprendente relevancia para quienes trabajaban por la restauración de Israel en El tiempo después del regreso de los exiliados de Babilonia.
+
+---
+
+### 2 Crónicas 30:2
+rey... príncipes... todos los asamblea. Ezequías sigue el buen ejemplo de David (1 Crónicas 13:1). el segundo mes. Normalmente, la Pascua y la fiesta de los Panes sin Levadura se celebran en el primer mes (Éx. 12:2, 6; Dt. 16:1–8; véase 2 Cr. 35:1). Sin embargo, se hacen excepciones para los viajeros o para aquellos que están impuros durante el tiempo designado para la celebración (Núm. 9:9-13). Ezequías aplica la excepción generosamente a toda la nación (v. 3).
+
+---
+
+### 2 Crónicas 30:5
+desde Beerseba hasta Dan. Desde el extremo sur hasta el extremo norte de la tierra, incluyendo el territorio de los Antiguo reino del norte de Israel.
+
+---
+
+### 2 Crónicas 30:6
+Ezequías envía la misma carta a Israel y a Judá (v. 6), dirigiéndose a ellos como “Israel”, la comunidad del pacto. Su carta contrasta con el discurso de Abías al reino del norte (13:4–12). En los días de Ezequías, tanto Judá como Israel necesitan arrepentimiento y renovación. 30:6 Volveos al Señor . Véase nota sobre 7:14. El remanente que ha escapado de vosotros. El Cronista utiliza esta terminología en un sentido técnico, refiriéndose a aquellos que han sido perdonados por Dios para representar la continuación de la nación.
+
+---
+
+### 2 Crónicas 30:7
+Infidelidad. Véase la nota sobre 1 Crónicas 2:7.
+
+---
+
+### 2 Crónicas 30:9
+compasión... volver a este Tierra. Ezequías recuerda la oración dedicatoria de Salomón (6:36-39). Su preocupación por el regreso de los que fueron llevados al exilio es instructiva para cualquiera que desee ver la nación restaurada en el tiempo posterior al exilio en Babilonia (Zac. 8:7, 8).
+
+---
+
+### 2 Crónicas 30:10
+Zabulón. El territorio tribal está al sur de Galilea.
+
+---
+
+### 2 Crónicas 30:11
+Sin embargo, algunos hombres . La presencia de algunos es importante, aunque no todos vengan.
+
+---
+
+### 2 Crónicas 30:15
+Avergonzados. La devoción y el entusiasmo del pueblo incitan a los sacerdotes y levitas a prepararse para sus deberes.
+
+---
+
+### 2 Crónicas 30:16
+Ley de Moisés. Ver nota sobre 1 Crónicas 16:40.
+
+---
+
+### 2 Crónicas 30
+En una segunda desviación de la práctica habitual (véase v. 2), se debe tener en cuenta que algunos no están ritualmente limpios. Ezequías intercede por los ofensores, y Dios hace que los La reunificación de la nación es posible (véase Éxodo 32:30-32).
+
+---
+
+### 2 Crónicas 30:23
+Así como se extendió la celebración del templo de Salomón (7:8, 9), la fiesta de Ezequías continúa por otra semana.
+
+---
+
+### 2 Crónicas 30:24
+Ezequías... dio. Ezequías sigue el ejemplo de David al sostener el templo con sus propias expensas (1 Crónicas 29:3 nota; 2 Crónicas 35:7, 8 nota). Los animales adicionales que el rey y los príncipes pusieron a disposición no sólo permitían más sacrificios, sino que también hacían posible la extensión de la celebración porque gran parte de una ofrenda de paz (v. 22) se devolvía al adorador para su consumo.
+
+---
+
+### 2 Crónicas 30:25
+los peregrinos... los Peregrinos. No nativos de ninguno de los dos reinos, sino personas de ascendencia extranjera que aceptan la religión israelita (véase Éxodo 12:48).
+
+---
+
+### 2 Crónicas 30:27
+su santa morada en los cielos. Observe el lenguaje similar en la oración de Salomón (6:21, 30, 33, 39).
+
+---
+
+### 2 Crónicas 31:1
+Después de terminar la fiesta de quince días, los adoradores extienden su purga de la idolatría cananea desde Jerusalén (30:14) a toda la tierra, tanto en Judá como en el antiguo reino del norte.
+
+---
+
+### 2 Crónicas 31:2
+Aparte de 31:20, 21 (véase 2 Rey. 18:5–7), este material no se encuentra en Reyes. Esta información es particularmente pertinente para la audiencia original del Cronista, ya que escribe en un momento en que se está restableciendo el culto en el templo. Las disposiciones de Ezequías ejemplifican la generosidad que los exiliados que regresaron debían tener al proveer para las necesidades del templo reconstruido. 31:2 designó las divisiones de los sacerdotes y de los levitas. Ezequías vuelve al orden de Salomón (8:14), quien siguió el diseño de David (1 Cr. 6:1). nota)
+
+---
+
+### 2 Crónicas 31:3
+La ley del SEÑOR . Véase la nota sobre 1 Crónicas 16:40.
+
+---
+
+### 2 Crónicas 31:7
+tercer mes…séptimo mes. El “tercer mes” es mayo/junio, cuando comienza la cosecha de cereales. El “séptimo mes” es septiembre/octubre, cuando se cierra el año agrícola con la cosecha de cereales. Recolección de frutas, entre ellas uvas y aceitunas.
+
+---
+
+### 2 Crónicas 31:11
+Cámaras. Cámaras laterales construidas alrededor del templo (1 R. 6:5, 6). También necesitan ser remodeladas para que puedan funcionar como almacenes para los diezmos sobrantes.
+
+---
+
+### 2 Crónicas 31:16
+tres años. Quizás esto se refiere a la inclusión de los niños en la distribución de alimentos (véase también v. 18). Sin embargo, debido a problemas de transmisión textual, puede ser que se deba decir “tres”. “treinta”, la edad del servicio activo en el templo (nota de 1 Crónicas 23:3). Véase Introducción a 1 Crónicas: Números especiales.
+
+---
+
+### 2 Crónicas 31:21
+prosperó. El Señor recompensa a Ezequías por su fidelidad y obediencia. Lo libra de una invasión (32:1), sana su enfermedad (32:24), perdona su orgullo (32:26) y le da riquezas (32:27–31).
+
+---
+
+### 2 Crónicas 32:1
+En Reyes, el relato de la invasión de Senaquerib es el episodio más destacado del reinado de Ezequías (2 Rey. 18:17–19:37). Crónicas da un relato más breve, utilizándolo para ilustrar la bendición divina concedida por la fidelidad, la confianza y la oración. El ataque de Senaquerib muestra claramente que el cronista no se aferra a una doctrina simplista de retribución. Su retrato de Ezequías es el de alguien que actúa con fidelidad y de todo corazón (31:20, 21) y, sin embargo, se ve amenazado por una invasión enemiga. 32:1 Senaquerib. Fue en el año 701 a. C., el cuarto año de su reinado, cuando el El emperador asirio emprendió una campaña para recuperar Judá.
+
+---
+
+### 2 Crónicas 32:3
+El suministro de agua es el punto débil de Jerusalén durante un asedio porque los manantiales están fuera de los muros.
+
+---
+
+### 2 Crónicas 32:5
+Levantó torres sobre él. Tal vez sea mejor seguir el texto hebreo: “y levantó sobre las torres”. La evidencia arqueológica sugiere que estas torres no estaban sobre los muros, sino que estaban independientes, entre los dos muros, diseñadas para proteger los suministros de agua. El Millo. El área rellenada entre el área del templo y la antigua ciudad de David.
+
+---
+
+### 2 Crónicas 32:7
+El discurso de Ezequías demuestra su plena confianza en el poder divino para vencer a su gran enemigo.
+
+---
+
+### 2 Crónicas 32:9
+El Cronista no repite lo que dice Reyes sobre el pago de tributo de Ezequías a Senaquerib con los tesoros del templo ni la acusación de los asirios de que Ezequías tenía una alianza con Egipto (2 R 18,14-27). Destaca las virtudes de Ezequías. Sitiar Laquis. Laquis es una importante fortaleza a treinta millas (40 km) al suroeste de Jerusalén, que defiende el acceso a la ciudad desde esa dirección. Senaquerib se involucra en una guerra psicológica, buscando deprimir la moral del pueblo e inducir una rendición temprana. Trata de volver las reformas religiosas de Ezequías en su contra diciendo que Ezequías eliminó los lugares de culto en todo el país. Además, los dioses de otras naciones no pudieron salvarlos ante los asirios. ¿Por qué entonces el pueblo de Israel debería esperar que su Dios tuviera éxito en ese sentido?
+
+---
+
+### 2 Crónicas 32:20
+Ezequías... Isaías... oró. Para un relato más detallado de estos acontecimientos, véase 2 Reyes 19:1–34. Sobre el valor de la oración en la batalla, véase la nota sobre 6:34.
+
+---
+
+### 2 Crónicas 32:21
+lo mató. Esto ocurrió en el año 681 a. C.
+
+---
+
+### 2 Crónicas 32:24
+Véase 2 Reyes 20:1–11 para un relato más completo de esta enfermedad y oración.
+
+---
+
+### 2 Crónicas 32:25
+El corazón de David se enorgulleció. Véase la nota sobre 26:16.
+
+---
+
+### 2 Crónicas 32:27
+muy grandes riquezas. La riqueza de Ezequías recuerda la riqueza del reino de Salomón (cap. 1; 9:13–28).
+
+---
+
+### 2 Crónicas 32:30
+cerró la salida superior. El túnel de Ezequías fue excavado en la roca desde el manantial de Gihón hasta el estanque de Siloé, una distancia de 542 m (1777 pies), por dos grupos de trabajadores que cavaron desde cada extremo y se reunieron en el medio.
+
+---
+
+### 2 Crónicas 32:31
+El Cronista abrevia el relato de 2 Reyes 20:12-19 (véase Is. 39), en el que Isaías le dice a Ezequías que sus tesoros serán llevados a Babilonia. El autor, aparentemente asumiendo que sus lectores posteriores al exilio están familiarizados con el relato de Reyes, omite la dura reprimenda de Isaías. Enviados... de Babilonia. Los embajadores babilónicos vienen a investigar los informes sobre la “señal” de Ezequías (v. 24; véase 2 R. 20:8–11). En los días de Ezequías, Babilonia forma parte del Imperio asirio. Al parecer, desean una alianza militar con Ezequías para apoyar su rebelión contra Asiria. para ponerlo a prueba. Ezequías es puesto a prueba para ver si formará una alianza con Babilonia. Como informa Reyes, Ezequías no pasa la prueba (2 Reyes 20:12-19). 2 CRÓNICAS 32:31
+
+---
+
+### 2 Crónicas 32:32
+escrito en la visión de Isaías El profeta. El cronista puede estar haciendo referencia al libro canónico de Isaías (llamado una “visión”, Is. 1:1).
+
+---
+
+### 2 Crónicas 33:1
+Este retrato de Manasés forma un marcado contraste con 2 R 21:1–18. Se omite la dura condena de Manasés (2 R 21:10–16), y en su lugar se da un relato de su exilio, arrepentimiento, regreso y reformas (vv. 11–17). Reyes culpa a Manasés por la caída final de Jerusalén (2 R 21:11–15). Sabiendo esto, el Cronista anima a sus lectores demostrando que incluso los peores pecadores pueden ser perdonados y restaurados mediante el arrepentimiento, la humildad y la oración. 33:1 Manasés... cincuenta y cinco años. Manasés reinó entre 696 y 642 a. C., el reinado más largo de cualquier rey de Judá. Al principio (vv. 1-9), el Cronista repite el relato del pecado de Manasés según 2 Reyes 21:1–9. Véase la nota sobre 2 Reyes 21:1.
+
+---
+
+### 2 Crónicas 33:2
+abominaciones de las naciones. Nótese la repetición de este tema en el v. 9. Véase la evaluación similar de Acaz. (28:3) Los pecados de Manasés son tan grandes que merece la destrucción tanto como el Los cananeos a quienes Dios destruyó durante la conquista (Gén. 15:16).
+
+---
+
+### 2 Crónicas 33:3
+Manasés no aprende nada de su padre, revierte las políticas de Ezequías y regresa al culto pagano. A los catálogos anteriores de abominaciones paganas, agrega el culto al “ejército del cielo”, es decir, el culto a las estrellas (Deut. 4:19), una práctica más asiria que cananea.
+
+---
+
+### 2 Crónicas 33:4
+mi nombre. Véase el versículo 7 y la nota sobre 6:5.
+
+---
+
+### 2 Crónicas 33:6
+quemó a sus hijos como Ofrenda. Otra terrible similitud entre Manasés y Acaz (nota 28:3; nota 33:2). Adivinación. Manasés se entrega a todo tipo de ocultismo. Los presagios son fenómenos considerados indicadores significativos del futuro. La brujería intenta controlar a los demás mediante el contacto con espíritus malignos. Médiums y nigromantes. afirman poder comunicarse con los muertos (véase Deut. 18:10–12).
+
+---
+
+### 2 Crónicas 33:7
+El ídolo que había hecho, una imagen de la diosa Asera (2 R 21:7). Su instalación en el templo es la mayor afrenta de Manasés.
+
+---
+
+### 2 Crónicas 33:8
+Moisés. Véase la nota sobre 1 Crónicas 16:40.
+
+---
+
+### 2 Crónicas 33:9
+El Cronista repite la evaluación del v. 2. La conducta de Judá se ha degenerado al nivel de la Cananeos, por lo que se espera que ellos corran la misma suerte.
+
+---
+
+### 2 Crónicas 33:10
+El Señor habló. El Cronista abrevia la descripción más completa en 2 Reyes 21:10-15. A pesar de la depravación de Judá, el Señor sigue tratándolos con gracia y emitiendo solemnes advertencias proféticas.
+
+---
+
+### 2 Crónicas 33
+El cronista agrega un informe del exilio, el arrepentimiento y el regreso de Manasés, mostrando cómo la retribución divina llega rápidamente al propio rey. 33:11 el rey de Asiria. O bien Esarhadón (681–669 a. C.) o bien Asurbanipal (669–627 a. C.), ambos mencionan a Manasés entre sus vasallos. La crueldad asiria era notoria. Conducir a un prisionero con ganchos por las fosas nasales, como si fuera un animal testarudo, es una práctica comprobada entre ellos. a Babilonia. Es posible que Manasés estuviera involucrado en la rebelión (652–648) AC) de Shamash-Shum-Ukin de Babilonia contra el rey asirio Asurbanipal. El cautiverio de Manasés en Babilonia y su regreso a la Tierra Prometida podrían haber recordado a los lectores posteriores al exilio su propia deportación a Babilonia y su reciente restauración. Para reformas similares, véase 17:1-6. Estos actos de devoción son una característica significativa del retrato que hace el Cronista cuando habla con su propia generación. Al igual que Manasés, su generación vive las secuelas del exilio en Babilonia; como él, pecaron contra Dios; pero mediante el arrepentimiento y una obediencia renovada, ellos también pueden dejar atrás su pasado y reconstruir la tierra. 33:14 El cronista señala los proyectos de construcción de Manasés como una señal de la bendición de Dios. Desde un punto de vista asirio, son deseables porque fortalecen a Judá como protección contra la expansión egipcia hacia el norte. Edificó. O “reconstruyó” (véase 32:5).
+
+---
+
+### 2 Crónicas 33:12
+Manasés “suplicó el favor del Señor”, “se humilló mucho” (v. 12) y “oró” (v. 13). Esto está en línea con la oración dedicatoria de Salomón (6:36–39) y la respuesta de Dios a ella (nota 7:14).
+
+---
+
+### 2 Crónicas 33:15
+todos los altares. Reyes señala que Josías debe destruir los altares que Manasés había erigido (2 R 23:12). Aparentemente, las reformas de Manasés están incompletas.
+
+---
+
+### 2 Crónicas 33:18
+Crónicas de los Reyes de Israel... Crónicas de los videntes. Véase Introducción a 1 Crónicas: Características literarias. Puesto que el reino del norte ya no existía en la época en que se escribió Crónicas, “Israel” aquí se refiere a Judá.
+
+---
+
+### 2 Crónicas 33:20
+lo sepultó en su casa. Véase la nota sobre 21:19. Probablemente en el jardín del palacio, lo que refleja la maldad general de su reinado (v. 19).
+
+---
+
+### 2 Crónicas 33:21
+Véase 2 R. 21:19–26. Amón reinó de 642 a 640 a. C. Imita la conducta anterior de su padre y no se arrepiente. Es asesinado por sus cortesanos, quienes a su vez son asesinados por el pueblo en su conjunto.
+
+---
+
+### 2 Crónicas 34:1
+El reinado de Josías también se registra en 2 R 22:1–23:30. El Cronista se basa en el relato de las reformas de Josías en Reyes, pero el orden de los acontecimientos difiere. En términos generales, en Reyes las reformas de Josías se resumen geográficamente: descubrimiento del libro en el templo (2 R 22:3–23:3); reforma de la ciudad y la nación (2 R 23:4–20); y celebración de la Pascua en el templo (2 R 23:21–23). El Cronista ordena los acontecimientos cronológicamente: reforma de la ciudad y la nación (34:3–7), descubrimiento del libro en el templo (34:8–33) y celebración de la Pascua (35:1–19). Las referencias a los años octavo y duodécimo (34:3) y al año dieciocho (34:8; 35:19) indican que las reformas comienzan antes del descubrimiento del libro. 34:1 Josías... treinta y un años. Josías reinó entre 640 y 609 a. C.
+
+---
+
+### 2 Crónicas 34:3
+siendo aún un muchacho. En el octavo año de su reinado (632 a. C.), tenía dieciséis años. En el año duodécimo. En el año 628 a. C., cuando tenía veinte años, Josías comenzó a revertir la política de Amón. Josías comenzó a purificar a los israelitas. La eliminación de la idolatría por parte de Josías se relata con más detalle en 2 Reyes 23:4-20.
+
+---
+
+### 2 Crónicas 34:5
+Quemaron los huesos. Esto profana los altares paganos para que no puedan volver a usarse posteriormente.
+
+---
+
+### 2 Crónicas 34:6
+Josías puede tomar esta medida cuando la dominación asiria disminuyó durante su reinado y sus tropas se retiraron a su tierra natal. “Toda la tierra de Israel” se unió para participar en esta reforma.
+
+---
+
+### 2 Crónicas 34:8
+en el año dieciocho. Es decir, 622 a. C., cuando Josías tenía veintiséis años. Como resultado de las reformas, Josías Ya se ha comprometido, se encuentra el Libro de la Ley (v. 14).
+
+---
+
+### 2 Crónicas 34:12
+Los levitas. La participación de los levitas garantizará que las reformas de Josías se ajusten a los patrones establecidos por David (1 Crónicas 6), Salomón (2 Crónicas 7:6; 8:14) y Ezequías (29:2–19). Instrumentos de música. Véase nota sobre 1 Crónicas 15:16.
+
+---
+
+### 2 Crónicas 34:15
+el Libro de la Ley... del SEÑOR . Ciertamente Deuteronomio, pero posiblemente la copia oficial de todo el Pentateuco (cf. 2 R 22:8 nota). Si se ha mantenido junto al arca, puede ser que se haya trasladado con ella cuando Josías más tarde ordena a los levitas que restauren el arca al templo (35:3 nota). Hilcías, el sumo sacerdote, le pasa el rollo a Josías, quien lo acepta como guía para sus futuras reformas (véase Esd 7:6-10; Neh 8; 9). Es indicativo del grado en que el régimen de Manasés suprimió la Palabra de Dios el hecho de que sólo después de veinte años en el trono un rey reformador escucha el mensaje divino directamente.
+
+---
+
+### 2 Crónicas 34:19
+rasgó sus vestiduras. Una expresión de dolor. Josías está angustiado por las maldiciones impuestas a los que rompen el pacto. porque sabe que su pueblo cae bajo la maldición.
+
+---
+
+### 2 Crónicas 34:20
+el siervo del rey. Esto parece ser el título de un puesto superior en la administración real.
+
+---
+
+### 2 Crónicas 34:22
+El Segundo Barrio. La nueva zona residencial en el lado oeste de Jerusalén, donde se había producido una expansión en la época de Ezequías para dar cabida a la afluencia de población procedente del norte después de la caída de Samaria.
+
+---
+
+### 2 Crónicas 34
+Hulda la profetisa anuncia juicio divino debido a la violación de la ley de Dios, pero la La humildad tiene el efecto de posponer el desastre (1 Crónicas 28:9 nota).
+
+---
+
+### 2 Crónicas 34:28
+a tu sepulcro en paz. Aunque Josías muere en batalla, la tierra goza de prosperidad y no es invadida durante todo su reinado.
+
+---
+
+### 2 Crónicas 34:30
+el Libro del Pacto. Josías promulga la ley de Dios al pueblo y jura que él mismo la obedecerá. Exige al pueblo que se una a él en esta renovación pública de la relación de Dios con ellos (v. 32).
+
+---
+
+### 2 Crónicas 34:32
+hizo que todos... participaran en ello. Lit. “hizo que todos se pusieran de pie”, probablemente como señal de asentimiento. La ausencia de cualquier señal de sinceridad sugiere que puede tratarse de un consentimiento forzado, no de una reacción espontánea.
+
+---
+
+### 2 Crónicas 35:1
+La Pascua. La Pascua celebrada en el año dieciocho de Josías (v. 19), el año en que se renovó el templo, se menciona brevemente en 2 Reyes 23:21-23, pero aquí se describe en detalle. Al igual que Ezequías antes que él (nota 30:1), Josías observa con entusiasmo esta celebración nacional en el templo de Jerusalén (véase también Esdras 6:19–22). Primer mes. En el tiempo señalado, a diferencia de la Pascua de Ezequías; véase nota sobre 30:2.
+
+---
+
+### 2 Crónicas 35:3
+todo Israel. Incluye a la gente de los reinos del norte y del sur. Al igual que Ezequías, Josías preside una reunión del pueblo (nota de 30:1). Colocar el arca sagrada. Parece que fue sacada del templo ya sea durante El reinado de Manasés por razones de seguridad o durante las obras de remodelación.
+
+---
+
+### 2 Crónicas 35:4
+los escritos de David... y... Salomón. La celebración de Josías es un ejemplo para las generaciones futuras porque se lleva a cabo de acuerdo con los estándares reconocidos de David y Salomón, una combinación que el Cronista también menciona en 7:10 y 11:17.
+
+---
+
+### 2 Crónicas 35:6
+palabra de Jehová por mano de Moisés. Véase la nota sobre 1 Crónicas 16:40.
+
+---
+
+### 2 Crónicas 35:7
+Josías sigue un patrón similar a David (1 Crónicas 29:3 nota) y Ezequías (30:24 nota). Sus contribuciones son seguidas por contribuciones voluntarias entusiastas de otros. Una vez más, un Característica significativa para la audiencia del Cronista.
+
+---
+
+### 2 Crónicas 35:9
+toros. Estos no se utilizan para las ofrendas de Pascua, que requieren corderos o machos cabríos que deben ser asados (v. 13). Aquí se sacrifican los toros como ofrendas de paz, muchos de los cuales son comidos por los adoradores (“cocidos”; v. 13).
+
+---
+
+### 2 Crónicas 35:18
+No hay Pascua como ésta... desde que Los días de Samuel. El cronista hace una observación similar sobre la Pascua de Ezequías (30:26), pero esta celebración es mayor en el número de animales sacrificados. (cf. v. 7 con 30:24) y también en la adhesión a la fecha fijada.
+
+---
+
+### 2 Crónicas 35:20
+Después de todo esto, el paso del tiempo nos lleva al año 609 a. C., cuando el Imperio asirio se encuentra en sus estertores de muerte. La capital, Nínive, cae en el año 612 a. C. ante una coalición que incluye a los babilonios. Queriendo frenar los avances babilónicos, los egipcios acuden en ayuda de las fuerzas asirias restantes. Josías salió. Sus motivos no están claros. Pero incluso un rey que “había preparado el templo” sufrirá el castigo divino si ignora la Palabra de Dios. Josías cae en batalla porque se niega a obedecer las palabras divinamente dirigidas del faraón Necao (v. 22).
+
+---
+
+### 2 Crónicas 35:21
+casa con la cual estoy en guerra. No está claro por qué Josías quiere impedir el avance del faraón Necao. Puede que... enredarse en una alianza con los enemigos de Necao (ver 2 R 23:29).
+
+---
+
+### 2 Crónicas 35:22
+se disfrazó, como Acab (18:29) y con resultados similares. De la boca de Dios. De alguna manera Dios ha comunicado sus propósitos al rey extranjero, como lo había hecho con Ahimelec a través de un sueño (Gén. 20:3), pero Josías no escucha. en la llanura de Meguido. Meguido es una de las ciudades que en tiempos de Josías dominaba el estratégico valle de Jezreel, que proporcionaba acceso desde el Mediterráneo hacia el este hasta Galilea y más allá. Fue escenario de numerosas batallas.
+
+---
+
+### 2 Crónicas 35:24
+Jerusalén se enlutó. A pesar de Su última debilidad, Josías, ha sido un rey honorable de Judá (nota 21:19).
+
+---
+
+### 2 Crónicas 35:25
+Jeremías también pronunció una Lamento. Este pasaje (que no se encuentra en Reyes) se ha tomado como prueba de que Jeremías escribió Lamentaciones, pero la identificación de ese libro con el lamento específico mencionado aquí es improbable. Jeremías bien pudo haber escrito Lamentaciones (aunque el libro en sí no afirma esto), pero si lo hizo, 35:25 no lo proporciona . Prueba concluyente de este hecho. Véase Introducción a Lamentaciones: Autor. hasta el día de hoy. Véase la nota sobre 1 Crónicas 4:41.
+
+---
+
+### 2 Crónicas 35:27
+el Libro de los Reyes. Ver Introducción a 1 Crónicas: Características literarias.
+
+---
+
+### 2 Crónicas 36:1
+El historiador rastrea rápidamente los reinados de los tres hijos de Josías (Joacaz, vv. 1–4; Joacim, vv. 5–8; y Sedequías, vv. 11–14) y su nieto (Joaquín, vv. 9, 10). la cuenta es más corto que el registro de Reyes (2 R. 23:31–24:20) e informa sobre los fracasos y la desobediencia que condujo al exilio en Babilonia (1 Crónicas 3:15 nota e; 3:17 nota).
+
+---
+
+### 2 Crónicas 36:2
+Joacaz. Reinó durante tres meses en 609 a.C. No era el hijo mayor de Josías, pero fue elegido con preferencia a Joacim. Véase 2 Reyes 23:31–35.
+
+---
+
+### 2 Crónicas 36:3
+rey de Egipto. Después de Josías Derrota por Necao (609 a. C.), Egipto dominó Judá hasta 605 a. C.
+
+---
+
+### 2 Crónicas 36:4
+cambió su nombre . Cambiar El nombre de otro rey demuestra el dominio político de Egipto.
+
+---
+
+### 2 Crónicas 36:5
+Joacim. Reinó entre 609 y 598 A.C. El Cronista abrevia el relato en 2 Reyes 23:36–24:7.
+
+---
+
+### 2 Crónicas 36:6
+Nabucodonosor rey de Babilonia. Después de que Egipto fue derrotado por los babilonios en Carquemis (605 a. C.), Judá quedó sometida al poder babilónico. No se dice que Joacim fuera llevado a Babilonia, pero esto puede estar relacionado con la deportación de Daniel y sus asociados (Dan. 1:1). El padre de Nabucodonosor murió durante esta campaña, por lo que tuvo que apresurarse a regresar a Babilonia para ser coronado.
+
+---
+
+### 2 Crónicas 36:9
+Joaquín. Reinó durante poco más de tres meses, entre diciembre de 598 y marzo de 597 a. C. La mayoría de los manuscritos hebreos dan aquí su edad como ocho años, pero parece que se quería decir “dieciocho” (véase Introducción a 1 Crónicas: Números especiales). Su captura y liberación de la prisión (en 561 a. C.) se registran en 2 Reyes 24:8–12; 25:27–30. El cronista pasa por alto la liberación de Joaquín de Babilonia, y opta en cambio por terminar su relato con el edicto de Ciro que permitía a los exiliados regresar a Jerusalén.
+
+---
+
+### 2 Crónicas 36:10
+su hermano. El término se usa en el sentido general de “pariente”. Sedequías es el tío de Joaquín, el deportado (2 R 24:17).
+
+---
+
+### 2 Crónicas 36
+Sedequías. Reinó entre 597 y 586 A.C. Sedequías busca ayuda en Egipto, pero sin éxito. Los babilonios sitiaron Jerusalén durante dos años y finalmente tomaron la ciudad en el año 586 a.C. (véase 2 Reyes 24:18- 19). 20)
+
+---
+
+### 2 Crónicas 36:13
+endureció su cerviz. Esta metáfora de terquedad se toma de un animal recalcitrante que no está dispuesto a bajar la cabeza para que lo pongan en el yugo.
+
+---
+
+### 2 Crónicas 36:14
+Todos los oficiales, no sólo los reyes, sino también los sacerdotes y el pueblo, cometen pecados que los someten a la retribución del exilio en Babilonia.
+
+---
+
+### 2 Crónicas 36:15
+sus mensajeros. Las advertencias de los profetas aparecen a menudo en Crónicas (nota de 20:20). Jeremías estuvo activo durante El reinado de Sedequías (Jer. 1; 21; 34; 37; 38; 52).
+
+---
+
+### 2 Crónicas 36:16
+No hay remedio. Cf. Heb. 6:4–6.
+
+---
+
+### 2 Crónicas 36:17
+Por eso trajo... La paciencia divina se agota por la iniquidad de la nación y su falta de voluntad para Acepte la corrección. Es el Señor quien dirige cómo se desarrollan los acontecimientos.
+
+---
+
+### 2 Crónicas 36:20
+El establecimiento de la Reino de Persia. El Imperio Babilónico finalmente cayó ante los persas en octubre de 539 a. C. (ver Dan. 5:30–31).
+
+---
+
+### 2 Crónicas 36:21
+La tierra había disfrutado de sus sábados. Esta observación muestra que Dios tenía sus propósitos al permitir el exilio de los judíos en Babilonia. Durante el exilio, la tierra disfrutó del descanso sabático que se le había negado (Levítico 26:40-45). Setenta años. Un número completo de años. Véase Jeremías 25:1–14 y Daniel 9. Las Crónicas consideran que el final de los setenta años es el primer año de Ciro (538 a. C.). Tal vez el cálculo se base en la primera deportación (605 o 604 a. C.) bajo el mando de Joacim. Zacarías 1:12–17 puede indicar que los setenta años se miden desde el Destrucción del templo en el año 586 a. C. hasta su rededicación en el año 516 a. C.
+
+---
+
+### 2 Crónicas 36:22
+Este pasaje se repite con algunas variaciones en Esdras 1:1-4. Ciro ejerció una política liberal hacia muchas personas deportadas por los babilonios. La liberación de Israel recuerda la oración de dedicación de Salomón (nota 6:36-39).
+
+---

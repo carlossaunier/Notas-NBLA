@@ -1,0 +1,371 @@
+# Notas de Estudio - Santiago
+
+### Santiago 1:1
+Santiago, un siervo. Santiago se identifica a sí mismo como un esclavo de Dios y de Cristo. Un siervo (nota de texto) es alguien comprado y poseído por un amo o “señor”. Esto indica no solo humildad por parte del escritor, sino un profundo testimonio de su conversión a la fe en su medio hermano terrenal como su Redentor (1 Cor. 15:3). Santiago es un siervo tanto de Dios como de Jesús, una distinción teológica crucial. a las doce tribus en la Dispersión. Una referencia no sólo a los cristianos judíos dispersos fuera de Israel, sino también a los cristianos gentiles, que han sido injertados en Cristo, el verdadero Israel, de modo que ellos también han llegado a ser, junto con los cristianos judíos, la continuación del verdadero Israel (cf. Gál. 3:16, 29; 6:15, 16; Ap. 7:1-9). Este tema también aparece en 1 Pedro, donde Pedro se dirige de manera similar a “los exiliados elegidos de la Dispersión” (1:1). Los destinatarios de 1 Pedro ciertamente no son sólo cristianos judíos, sino también creyentes gentiles (como es evidente en 1 Ped. 2:10 [cf. Rom. 9:24-26] y 2:18, donde “siervos” probablemente sean gentiles). Por lo tanto, hablar de “los exiliados elegidos de la Dispersión” de 1 Ped. 1:1 es probablemente una manera de referirse a la iglesia judía-gentil como la continuación del verdadero Israel, ya que anteriormente a Israel se le llamaba exiliados porque estaban dispersados de Babilonia en la época del Antiguo Testamento. Lo mismo sucede en Santiago 1:1.
+
+---
+
+### Santiago 1:2
+Tened por sumo gozo. Un llamado a entender el sufrimiento desde el punto de vista de la confianza en la soberanía de Dios. Lo que sigue requiere una reflexión cuidadosa desde una perspectiva teológica. Hermanos. A los hermanos creyentes se les habla en términos familiares, como corresponde a quienes tienen a Dios como Padre. Pruebas. Diversos tipos de circunstancias difíciles, a menudo relacionadas con la persecución, como la que padecieron los primeros cristianos.
+
+---
+
+### Santiago 1:3
+Pruebas. Las pruebas pueden considerarse puro gozo solo cuando se sabe que Dios las diseñó con un propósito. Son pruebas de fe dadas para desarrollar la perseverancia. A su vez, la perseverancia produce un carácter cristiano maduro (Rom. 5:3).
+
+---
+
+### Santiago 1:5
+sabiduría. Ser sabio en términos bíblicos es conocer y entender la piedad, para hacer lo que es agradable a Dios (Heb. 5:14). El capítulo 3 desarrolla este tema. Pídele a Dios. Dios es la fuente de la sabiduría. Él la concede a quienes la buscan sinceramente.
+
+---
+
+### Santiago 1:8
+El hombre de doble ánimo. Esta rara expresión fue posiblemente acuñada por Santiago. Sugiere un hombre que tiene dos almas; es tan inestable como una persona con doble personalidad, ya que afirma tener fe pero, en realidad, es un escéptico (v. 6).
+
+---
+
+### Santiago 1:9
+Se exhorta tanto a los pobres como a los ricos a enorgullecerse de sus posiciones. El hermano pobre es rico en tesoros espirituales. Tiene un alto estatus en el reino de Dios. Si el término “rico” se refiere a los cristianos ricos, Santiago quiere decir que pueden regocijarse de haber aprendido dónde se encuentra el verdadero tesoro. Si “rico” se refiere a los impíos, la referencia a sus “Jactarse” es irónico.
+
+---
+
+### Santiago 1:11
+Cf. Job 14:2; Sal. 103; Is. 40:6, 7.
+
+---
+
+### Santiago 1:12
+Bienaventurados. Hace eco de los oráculos proféticos de salvación utilizados por los profetas del Antiguo Testamento y por Jesús (Mateo 5:3-11). La “corona de vida” La palabra “prometida” por Dios podría traducirse como “corona que es vida”, probablemente refiriéndose a la futura recompensa de la resurrección. La “corona de vida” (es decir, la recompensa de la resurrección) también se promete a quienes perseveren en la prueba en Apocalipsis 2:10. Esta corona no es algo que se gana, sino que es el regalo para aquellos que se apartan de su propia justicia y descansan sólo en Cristo (Rom. 6:23). Tal fe necesariamente persevera (Jn. 6:35-40; Rom. 8:28-30; Fil. 1:6), lo que resulta en la experiencia plena de nueva vida en la resurrección final de entre los muertos.
+
+---
+
+### Santiago 1:13
+tentado. Hay una diferencia importante entre los conceptos “probar” y “tentar”. Dios prueba a las personas, pero nunca las tienta en el sentido de inducirlas a pecar. Jesús, en el desierto, fue probado por Dios y tentado por Satanás. También hay una diferencia entre las tentaciones que surgen de nuestras propias inclinaciones pecaminosas (internas) y las que vienen de afuera (externas). Jesús, al estar libre del pecado original, fue tentado externamente, pero no internamente. La prueba de nuestra fe puede ser la ocasión para que surjan tentaciones, tanto internas como externas, pero las tentaciones nunca tienen a Dios como su autor.
+
+---
+
+### Santiago 1:17
+Padre de las luces. Las luminarias de la naturaleza varían en magnitud y están sujetas a fases, eclipses y sombras. Dios es el Autor supremo de la luz. En Él no hay cambios de brillo ni de claridad. No hay fluctuación en Su carácter.
+
+---
+
+### Santiago 1:18
+Él nos engendró. Lit. “nos dio a luz”. Esto se refiere a la gracia de la regeneración por la cual somos adoptados en la familia de Dios (1 Ped. 1:23). Este “dar a luz” es la regeneración, que es la nueva creación del tiempo del fin. Que la nueva creación está en mente es más evidente al observar que los creyentes regenerados son “primicias de sus criaturas”, es decir, el comienzo de la renovación de toda la creación que finalmente será completamente restaurada. Esta nueva vida que los creyentes experimentan en el aquí y ahora es la etapa inicial de la nueva vida de resurrección que será consumada al final de los tiempos en la resurrección física (v. 12 nota). La idea es muy similar a la de Romanos 8:18-23, donde los cristianos que han comenzado a experimentar la vida de resurrección a través del Espíritu (Romanos 8:11-15) son llamados “las primicias del Espíritu”, y esperan su resurrección física, momento en el cual toda la creación será renovada. Por la palabra de verdad. La regeneración es la obra monergística del Espíritu de Dios. —Sólo Él concede el nuevo nacimiento a Su pueblo (cf. Juan 3:1-15 y notas). Sin embargo, Él realiza esta obra tomando la Palabra de Dios, tanto leída como predicada, y aplicándola eficazmente a los corazones de Sus elegidos. Este versículo es una indicación clara de la primacía de la gracia en la teología de Santiago. Sólo por la obra del Espíritu a través del evangelio somos llevados a una nueva vida.
+
+---
+
+### Santiago 1:19
+pronto para oír, tardo para hablar. Aunque la comunidad cristiana valora mucho el talento del habla elocuente, Santiago pone el acento en la escucha. Es la persona que escucha atentamente la Palabra de verdad quien progresa en la piedad.
+
+---
+
+### Santiago 1:22
+Sed hacedores. La verdadera escucha de la Palabra debe conducir a una acción piadosa.
+
+---
+
+### Santiago 1:23
+El espejo. En el mundo antiguo, los espejos estaban hechos de metal pulido, no de vidrio. La Escritura es un espejo de la necesidad de gracia del alma. Nos revela nuestro verdadero carácter.
+
+---
+
+### Santiago 1:25
+La ley perfecta. Santiago utiliza esta frase como sinónimo de Sagrada Escritura (Salmo 19:7). Libertad. La ley de Dios nos hace libres, pues nos conduce a Cristo, el único que puede liberarnos del pecado. Habiendo sido justificados, encontramos entonces que la ley de Dios es la ley de la libertad, pues somos verdaderamente libres sólo cuando hacemos lo que agrada al Señor (Juan 8:36; Romanos 8:2, 15; Gálatas 3:15-29; 5:13).
+
+---
+
+### Santiago 1:26
+lengua. Véase cap. 3.
+
+---
+
+### Santiago 1:27
+La religión pura y sin mácula. Santiago enfatiza la preocupación por las viudas y los huérfanos como una verdadera medida de obediencia que agrada a Dios. Refleja las preocupaciones de Dios mismo (Deut. 10:18; Sal. 9:18). Nota: 68:5; 146:9). A Israel se le dio esta responsabilidad en el Antiguo Testamento (Deut. 14:29; Eze. 22:7).
+
+---
+
+### Santiago 2:1
+Parcialidad. La expresión es similar a la que se encuentra en Gálatas 2:6. Santiago prohíbe tener respeto por las personas basándose únicamente en lo externo. Un respeto basado únicamente en lo externo es contrario a la conducta de Dios, quien no hace acepción de personas (Romanos 2:11; Efesios 6:9; Colosenses 3:25). A la luz de la gloria divina de Cristo, es una necedad mostrar favoritismo basado en niveles inferiores de gloria humana. Señor Jesucristo, el Señor de la gloria. Esto puede traducirse como “nuestro Señor Jesucristo, la gloria”. Aquí Jesús puede identificarse con la gloria de Dios. Él es Emanuel, “Dios con nosotros”, la morada de Dios con el hombre.
+
+---
+
+### Santiago 2:4
+hizo distinciones. Aunque Dios nos llama a discernir y discriminar entre el bien y el mal, la discriminación basada en meros factores externos como el estatus económico, las diferencias raciales o étnicas y similares se considera una forma malvada de juicio.
+
+---
+
+### Santiago 2:5
+Dios no ha elegido a nadie. La herencia en el reino se basa en la elección soberana de Dios. Él no elige según el mérito o el estatus mundano. Las normas de este mundo no tienen influencia en la elección misericordiosa de Dios (1 Corintios 1:28, 29; Efesios 1:4). El texto no justifica ninguna forma de “misticismo de la pobreza” por el cual la pobreza en sí misma hace que una persona sea buena a los ojos de Dios (nota de Salmos 9:18).
+
+---
+
+### Santiago 2:6
+oprimir. El verbo es una palabra fuerte y se usa para referirse a la obra opresora de Satanás (Hechos 10:38). Los ricos usaban El poder político y judicial para explotar a los pobres y necesitados de la nación. Como grupo, los ricos tienen una fuerte tendencia a depender de la riqueza y el poder en lugar de buscar su redención en Cristo.
+
+---
+
+### Santiago 2:8
+ley real. La ley suprema de Dios. Ama a tu prójimo. Santiago considera el pecado del favoritismo como una violación del gran mandamiento (Levítico 19:18; Deuteronomio 6:5; Mateo 22:36-39), lo que convierte al perpetrador en un infractor de la ley. Santiago, al igual que Pablo (Romanos 13:8-10), dice que el amor al prójimo es el cumplimiento de la ley (es decir, de los últimos seis de los Diez Mandamientos).
+
+---
+
+### Santiago 2:10
+toda la ley... un punto. Este texto no niega el concepto bíblico de gradación del mal. Algunos pecados son más atroces que otros y reciben un castigo más severo que los pecados que son “menos” atroces (Mateo 11:21, 22; Lucas 12:47, 48; Juan 19:11; Hebreos 10:29). Sin embargo, incluso en el pecado más pequeño, se comete una ofensa grave contra Dios. Pecar en un punto es pecar contra la ley y, por lo tanto, contra el Legislador. Incluso el pecado más pequeño es digno del fuego del infierno, y toda persona impenitente va al infierno, aunque algunos en el infierno reciben un castigo mayor que otros. Santiago, como Jesús, advierte contra una comprensión superficial de la ley de Dios (Mateo 5:17-20).
+
+---
+
+### Santiago 2:13
+Cf. Zacarías 7:9; Mateo 5:7; 18:21–35. Aunque Dios nunca está obligado a mostrar misericordia, Él libremente elige hacerlo en abundancia. Él se reserva la prerrogativa divina de mostrar misericordia a quien Él quiere (Rom. 9) Sin embargo, según su ley, se nos ordena moderar la justicia con la misericordia. Él advierte que si nos negamos a mostrar misericordia, no recibiremos misericordia de Él.
+
+---
+
+### Santiago 2:14
+¿Puede esa fe salvar? Esto introduce el tema crucial de la relación entre la fe y las obras. La pregunta bajo escrutinio es: “¿Qué clase de fe es la fe salvadora?” La pregunta de Santiago es retórica; la respuesta obvia es que la fe sin obras no puede salvar. La fe que no produce obras no es fe salvadora. El NT no enseña la justificación por obras, pero tampoco enseña la justificación por la profesión de fe o la afirmación de fe; enseña la justificación por la posesión de la fe verdadera, y la fe verdadera siempre da el fruto del amor a Dios y al prójimo. Santiago tiene en mente una fe genuina y viva que produce obras fructíferas, que es evidencia que vindicará (o probará) la validez de la fe justificante auténtica de uno en el juicio final. Véase Introducción: Números especiales.
+
+---
+
+### Santiago 2:15
+Describe una “fe” de palabras sin acciones.
+
+---
+
+### Santiago 2:17
+La fe por sí sola... está muerta. Cuando Lutero y los reformadores insistieron en la fórmula de la justificación solo por la fe , querían insistir en que la justificación se basa en la confianza en el mérito de Cristo solamente. “Sola” no significa que la fe exista sola sin ningún fruto posterior de obediencia. Lutero insistió en que la fe salvadora es una fe viva. Somos justificados solo por la fe, pero no por una fe que esté sola, es decir, una fe que consiste solo en una profesión sin el fruto del servicio amoroso a Dios y al prójimo. La fe “muerta” no significa una fe que ha perecido; más bien, la imagen sugiere una fe que nunca tuvo vida verdadera en ella para empezar. Una fe muerta no puede hacer que uno viva, no puede “salvar vuestras almas” (1:21), y por lo tanto es falsa e inútil.
+
+---
+
+### Santiago 2:18
+Muéstrame tu fe. Santiago desafía a cualquiera que diga tener fe a demostrarla, a hacerla visible. Las obras de obediencia constituyen la única evidencia de la fe salvadora que es visible a los ojos humanos. Dios puede ver el corazón, pero nuestra única visión del corazón es a través de la vista del fruto externo.
+
+---
+
+### Santiago 2:19
+Tú crees que Dios es uno. Creer que Dios es uno puede ser una mera afirmación intelectual. Creer en Dios requiere confianza personal. Creer que Él es uno solo implica asentir a una proposición que incluso los demonios reconocen, y la “fe de los demonios” no salva a nadie. La fe salvadora incluye el conocimiento cognitivo, pero va más allá de él y llega a la confianza y la sumisión personales.
+
+---
+
+### Santiago 2:20
+El necio. Esta es una reprimenda fuerte. Es un juicio moral más que un juicio intelectual, que recuerda el juicio que cae sobre “el necio” en la literatura sapiencial del Antiguo Testamento. Inútil. Estéril de fruto.
+
+---
+
+### Santiago 2:21
+justificado. Santiago apela a Abraham como su principal ejemplo de alguien cuya fe es justificada, o demostrada, por sus obras. Esto no implica ningún conflicto con Pablo, quien también apela a Abraham como el ejemplo principal de alguien justificado, o declarado justo a los ojos del Señor, solo por la fe. Nótese que Santiago apela a Génesis 22, mientras que Pablo apela a Génesis 15. A los ojos de Dios, Dios, Abraham es justificado en Génesis 15, mucho antes de que ofrezca a Isaac en el altar. Dios sabía que la fe de Abraham era genuina. Abraham es justificado ante nosotros, ante los ojos humanos, en Génesis 22 cuando muestra su fe a través de su obediencia. Jesús usó el mismo verbo en Lucas 7:35 cuando declaró que “la sabiduría es justificada por todos sus hijos” (es decir, se demuestra que es sabiduría genuina por sus resultados). Aquí, la palabra “Justificar” no significa reconciliarse con Dios y ser declarado justo ante sus ojos, sino demostrar la verdad de una afirmación previa. Así como la verdadera sabiduría se demuestra por sus frutos, la afirmación de Abraham de tener fe se justifica por sus frutos, es decir, su obediencia externa. Sus obras no fueron la causa meritoria de su salvación; no añadieron ningún mérito al mérito perfecto y suficiente de Cristo. Lo mismo es cierto de nuestras buenas obras.
+
+---
+
+### Santiago 2:22
+La fe fue completada. La manifestación plena de la fe se ve en las obras. La fe verdadera siempre produce fruto. La fe y las obras pueden distinguirse, pero nunca separarse ni divorciarse.
+
+---
+
+### Santiago 2:24
+No solo por fe. Una persona no se muestra justa por la mera profesión de fe o por tener una fe que permanece sola, sin producir nunca buenas obras. La validez de la profesión de fe de uno es evidente para otras personas solo por lo que uno hace. Ninguna de nuestras acciones es digna de justificación final a los ojos de Dios. Solo el mérito de Cristo vale para esa clase de justificación, para esa declaración de justicia a los ojos de Él. Solo confiando solo en Cristo podemos ser declarados justos a los ojos de Dios. Aquí Santiago ataca todas las formas de antinomianismo que buscan tener a Jesús como Salvador sin aceptarlo como Señor. Así como Pablo demostró que confiar en las propias obras es mortal, Santiago enseña que descansar en una fe vacía o muerta es mortal. Véase la nota teológica “Fe y obras” más arriba.
+
+---
+
+### Santiago 3
+Santiago hace eco del énfasis de Jesús en la importancia crucial del uso de las palabras en la vida diaria (Mateo 12:36; Marcos 7:20–23). 3:1 juzgados con mayor severidad. Santiago da una seria advertencia sobre la responsabilidad de los maestros. Los maestros ejercen influencia sobre los estudiantes confiados, una relación que los hace vulnerables a errores graves. El maestro es considerado estrictamente responsable de lo que enseña. Este juicio estricto debería impedir que los maestros digan palabras descuidadas. La lengua del maestro puede ser un peligro devastador. La iglesia primitiva le daba gran estima al oficio del maestro. (Mateo 5:19; 18:6; cf. Romanos 14:10-12).
+
+---
+
+### Santiago 3:3
+Santiago usa metáforas de la experiencia común para ilustrar su punto cardinal de que se pueden lograr grandes resultados con medios pequeños. La lengua es una pequeña parte del cuerpo que es capaz de crear grandes desastres.
+
+---
+
+### Santiago 3:6
+La lengua es un fuego. Una lengua sin control se asemeja a un fuego que arde sin control (Salmos 120:3, 4; Proverbios 16:27). Manchas. Las malas palabras (que incluyen la blasfemia, el chisme, la calumnia, la mentira, los falsos juramentos y cosas por el estilo) tienen el poder de estropear, manchar y corromper todo el carácter moral de una persona.
+
+---
+
+### Santiago 3:8
+Ningún ser humano puede domar la lengua. La lengua es más difícil de domar que las fieras. Está llena de veneno más venenoso que el de la víbora (Sal. 58:4; 140:3; Rom. 3:13, 14).
+
+---
+
+### Santiago 3:9
+bendecir... maldecir. La lengua puede usarse tanto para la virtud como para el vicio. La misma boca usa la lengua para estos propósitos contradictorios. Hechos a imagen de Dios. Véase la nota teológica “Seres humanos creados a imagen de Dios” en la pág. 13. Nuestra forma de hablar es una de las maneras en que estamos hechos a imagen de Dios, y debemos usar nuestras palabras de maneras que reflejen la propia Palabra de Dios, que a su vez lo honra y lo “bendice” a Él y a los demás.
+
+---
+
+### Santiago 3:11
+Nótese la similitud aquí entre Las metáforas de Santiago y las que utilizó Jesús en Mateo 7:16.
+
+---
+
+### Santiago 3:13
+sabios... mostrar. Así como Santiago exhorta a los creyentes a demostrar su fe mediante obras, también hace un llamado a demostrar sabiduría mediante una vida piadosa. El que es verdaderamente sabio en el Señor “mostrará sus obras” o “fruto” (cf. v. 17) bendiciendo con la boca y no maldiciendo (cf. nuevamente 3:10-12). Mansedumbre. La señal de la sabiduría es un espíritu manso y humilde. Así como la arrogancia y la necedad van juntas, también lo hacen la humildad y la sabiduría.
+
+---
+
+### Santiago 3:14
+Los celos amargos y la ambición egoísta. La envidia y la codicia envenenan el espíritu. Están vinculadas a la ambición egoísta y centrada en uno mismo. Estos vicios ciegan al verdadero entendimiento y la sabiduría, y son contrarias al amor al prójimo.
+
+---
+
+### Santiago 3:15
+terrenal, natural, demoníaca. La sabiduría divina se presenta en marcado contraste con la sabiduría de este mundo. La sabiduría de la carne refleja el engaño de Satanás y es necedad a los ojos de Dios.
+
+---
+
+### Santiago 3:16
+toda obra abominable. Así como Santiago mostró anteriormente que la lengua es capaz de crear un mal desastroso, aquí enfatiza el poder destructivo de la envidia y la ambición egoísta. De ellas fluye toda clase de mal, incluyendo vandalismo, asesinato, adulterio, guerras, robos, calumnias, y otros pecados que violan a las personas y provocan caos en la comunidad. VOLVER SANTIAGO 3:16
+
+---
+
+### Santiago 3:17
+La sabiduría que viene de lo alto. La sabiduría que es un don de Dios (1:5) refleja la pureza de Dios mismo. Una vez más, la sabiduría está vinculada a la piedad, ya que Dios mismo es la fuente y el manantial de la verdadera sabiduría. Pacífica. Ésta es la paz auténtica, libre de actitudes pendencieras. Amable. Considerado y respetuoso con los sentimientos de los demás. Abierto a la razón. Dispuesto a escuchar y obedecer a los demás. lleno de misericordia. El sabio no es tacaño en la misericordia, sino que demuestra caridad en amplia medida. Buenos frutos. Quienes participan de la verdadera “sabiduría de lo alto” de Dios darán “buenos frutos” porque han sido “producidos (regenerados) como “primicias” del comienzo de la nueva creación (1:18). Quienes forman parte de la nueva creación darán nuevos “buenos frutos”. imparcial y sincero. La persona sabia es justa y sin engaño, ni dolo ni fraude.
+
+---
+
+### Santiago 3:18
+cosecha de justicia. El fruto que se cosecha al sembrar la sabiduría es una abundante cosecha de justicia. Los frutos “justos” de los verdaderos creyentes, que son “sembrados” por Dios (cf. 1:18), serán “cosechados” al final de los tiempos e indicarán que esas personas tuvieron una fe auténtica durante toda su vida de creyentes (cf. 2:14-26). Uno de esos frutos es el de la “paz”, una de las señales reveladoras de la nueva creación que irrumpirá y se consumará en la cosecha final (cf. por ejemplo, Gálatas 6:15, 16).
+
+---
+
+### Santiago 4:1
+Las peleas. Santiago explora la causa raíz de las Las divisiones entre los santos son causadas por malos deseos. La envidia todavía está presente. como un deseo malo que es destructivo.
+
+---
+
+### Santiago 4:2
+No pedís. Es decir, “ no pedís” de “Dios, que da a todos abundantemente” (1:5). La envidia es un pecado contra Dios. surge de una falta de gratitud hacia Dios que concede dones a su pueblo. También es resultado de no buscar los propios dones en Dios en lugar de buscarlos en el mundo.
+
+---
+
+### Santiago 4:3
+Dios se niega a concedernos nuestras peticiones . cuando proceden de malos deseos. Orar por motivos erróneos no es orar. En la fe (Rom. 14:23; Heb. 11:6).
+
+---
+
+### Santiago 4:4
+La infidelidad espiritual es una de las formas más comunes de infidelidad. Ver aquí. El Antiguo Testamento a menudo vio que la adoración a los ídolos de Israel era adulterio, ya que era mostrando lealtad de pacto a algo de esta creación en lugar de a la Creador, que fue el esposo de Israel (p. ej., Jer. 3:9; Eze. 16; 23:37; Os. 4:13; cf. Ap. 2:20–22). Esto es una relación espiritual ilícita y, por lo tanto, adulterio. Ser “amigo del mundo” es estar más comprometido con el “mundo” que con Dios y así alinearse con el malvado sistema mundial en contra de Dios y Su pueblo. No existe neutralidad espiritual.
+
+---
+
+### Santiago 4:5
+La Escritura dice: Santiago probablemente no tiene un texto específico en mente, por lo que está haciendo una referencia general a un texto común. tema bíblico, como también se ve en Mateo 2:23. La idea puede derivar en parte de Éxodo 2:11. 20:5 y Deuteronomio 4:24. Si el versículo se entiende como hablando del espíritu humano, Santiago está pensando en textos como Génesis 6:3 y 8:21, que tratan sobre el consecuencias del pecado original.
+
+---
+
+### Santiago 4:6
+Cf. Prov. 3:34.
+
+---
+
+### Santiago 4:7
+Someterse. Esto requiere un acto voluntario de aceptando la autoridad de Dios, pues estamos bajo Su autoridad cuando nos inclinamos voluntariamente a Él o no. Aquí “someterse” significa “obedecer”. Resistid al diablo, y huirá. Satanás no es igual en poder ni autoridad a Dios. Aunque Satanás es poderoso, no es invencible. Huye de los santos que quienes visten la armadura de Dios y le resisten (ver Efesios 6:10-17).
+
+---
+
+### Santiago 4:9
+¡Afligios, lamentad y llorad! Un llamado al arrepentimiento genuino por el cual lamentamos nuestros pecados.
+
+---
+
+### Santiago 4:11
+Hablar mal. Un pecado de habla, la calumnia surge de la envidia y refleja la obra de Satanás. La palabra griega para “diablo” significa “calumniador”. Calumniar a otros cristianos destruye la comunión y quebranta la ley real. Cuando hablamos falsamente contra un hermano creyente, no solo hablamos contra la persona sino contra la ley de Dios. El calumniador se coloca ilícitamente como juez por encima de la ley (v. 12).
+
+---
+
+### Santiago 4:13
+sabes lo que traerá el mañana. Santiago reprende a la persona que vive la vida y hace planes para el futuro sin tener en cuenta la providencia de Dios. Una persona así vive sin tener en cuenta la soberanía divina.
+
+---
+
+### Santiago 4:15
+Si el Señor quiere. La palabra “si” se refiere a eventos futuros que son condicionales. Aquí la consideración principal en toda planificación futura es la voluntad del Dios soberano.
+
+---
+
+### Santiago 4:16
+Jactarse. Jactarse del propio poder y de los propios logros es malo. El cristiano debe jactarse sólo en el Señor (2 Cor. 11:30; 12:5, 9). Porque “¿qué tienes que no hayas recibido? Y si lo recibiste, ¿por qué te jactas como si no lo hubieras recibido?” (1 Cor. 4:7). Es arrogancia no vivir nuestras vidas conscientes de que en Dios “vivimos, nos movemos y existimos” (Hechos 17:28). Tal arrogancia exalta superficialmente al ser humano a una posición que sólo Dios puede ocupar.
+
+---
+
+### Santiago 4:17
+pecado. Aquí se consideran los pecados de negligencia y omisión.
+
+---
+
+### Santiago 5:1
+Ricos. La Biblia no condena en ningún lugar la riqueza en sí misma. De hecho, a menudo se la considera una bendición de Dios (Prov. 10:22). Sin embargo, los ricos, como clase social, a veces pueden ser culpables de explotar y oprimir a los pobres. Muchos de ellos pueden vivir como si no hubiera un Dios que gobierna sobre todo (4:13–17 nota). Dios reserva un juicio severo para quienes viven de esa manera (Lucas 6:24).
+
+---
+
+### Santiago 5:2
+podrido... comido por las polillas... corroído. Los tesoros terrenales están sujetos a la descomposición y finalmente perecen. Santiago aquí hace eco de la enseñanza de Jesús (Mateo 6:20). Los últimos días. Los últimos días predichos en el Antiguo Testamento han comenzado con la venida de Cristo (cf. Hch 2:17; 1 Co 10:11; Gál 4:4; He 1:1-4; 9:26; 1 Jn 2:18) y continuarán hasta que sean consumados en la venida final de Cristo (cf. He 9:28; 1 P 1:5). Aquí, los ricos descuidados no se dan cuenta de que están viviendo en estos últimos días, que pueden ser consumados en cualquier momento, momento en el cual ocurrirá el juicio final. “Acumular tesoros” para uno mismo, que se corroerán, “será evidencia contra” ellos en el último día que conducirá a su juicio.
+
+---
+
+### Santiago 5:4
+salario... no os habéis pagado. Esto es una violación de la ley de Dios. El salario no sólo debe pagarse, sino que debe pagarse a tiempo (Levítico 19:13; Deuteronomio 24:14, 15).
+
+---
+
+### Santiago 5:5
+“Engordaron vuestros corazones”. Como animales engordados para el matadero, los ricos no son conscientes del desastre que les espera en el juicio final. “El día de la matanza” es otra referencia a su juicio final. Así como las vacas no se dan cuenta de su próximo sacrificio y se engordan, lo mismo sucede con sus contrapartes humanas incrédulas, que sufren un juicio aún peor. Por el contrario, los cristianos son exiliados en esta era presente (Santiago 1:1; 1 Corintios 12:1-2). Pedro 1:1; 5:13) y siempre deben vivir con paciencia con la vista puesta en su futuro hogar permanente en los nuevos cielos y la tierra eternos (cf. v. 7 nota; Heb. 11:13– 16), donde nada se marchitará ni se corroerá.
+
+---
+
+### Santiago 5:6
+condenados... asesinados. El uso injusto del poder a menudo causa la muerte de personas inocentes. El versículo también podría entenderse en sentido figurado, ya que robar a las personas su salario y sus medios de vida es cometer una especie de asesinato contra ellas.
+
+---
+
+### Santiago 5:7
+Paciente. Los santos necesitan paciencia mientras esperan la vindicación prometida por Dios para su pueblo. Dios promete justicia para corregir las formas de injusticia que prevalecen en este mundo (Lucas 18:1–8).
+
+---
+
+### Santiago 5:9
+El juez está a la puerta. Este versículo refleja el sentido urgente de la cercanía de la venida de Cristo. La “venida del Señor” podría ocurrir en cualquier momento. Santiago está haciendo eco de la esperanza del NT del regreso de Jesús al final de los tiempos. Santiago también puede estar pensando en la cercanía radical del juicio que enfrenta cada persona, porque a la luz de la eternidad, la vida de cada persona, no El fin de la era cristiana, sin importar la edad, pronto terminará y entonces toda persona comparecerá ante el juicio de Dios (cf. v. 3, donde Santiago menciona los “últimos días”). Los creyentes profesantes pueden revelarse como pseudocreyentes y ser juzgados si no han “fortalecido” sus corazones (cf. v. 8) y demostrado una fe genuina dando fruto (2:14-26; 3:17, 18). De hecho, esta es una advertencia de juicio para la comunidad de la iglesia (cf. Mt. 7:15-23) y no en este momento para los paganos incrédulos. Se exige perseverancia y paciencia ante el cumplimiento prometido. “La venida del Señor” que “está cerca”. Es decir, la venida final de Cristo podría ocurrir en cualquier momento.
+
+---
+
+### Santiago 5:10
+Los profetas, y especialmente Job, son ejemplos que deben seguir los oyentes a quienes se les acaba de exhortar a tener paciencia en los versículos 7-9.
+
+---
+
+### Santiago 5:12
+sobre todo. Esta exhortación enfática señala una prioridad importante para la piedad. Exaltar el abstenerse de juramentos y votos falsos a un alto nivel de prioridad puede parecer extraño para algunos, pero es coherente con la preocupación bíblica por el cumplimiento del pacto y la santidad de la fe. No jures. Esto no es una prohibición contra las maldiciones o el uso de vulgaridades. Se refiere a hacer juramentos apelando a objetos como testigos (lo que en términos bíblicos es una forma de idolatría). Sólo Dios puede ser un testigo omnipresente y omnisciente de juramentos y votos, por lo que invocar meros objetos como testigos es rechazar al Creador en favor de lo creado. Los votos justos y piadosos no están prohibidos en las Escrituras porque forman parte vital de todos los pactos. Los únicos votos que están prohibidos son los votos de cometer un pecado, los votos jurados en nombre de alguien más que el Señor y los votos que uno no tiene la intención de cumplir (cf. Números 30; Deuteronomio 23:21–23). “Sí” es sí. Se espera que el cristiano sea una persona en cuya palabra se pueda confiar. La enseñanza de Santiago aquí hace eco de la de Jesús en el Sermón del Monte (Mateo 5:34-37). Aquí nuevamente hay otra exhortación a la comunidad creyente a perseverar en una conducta piadosa, para que no caigan en condenación. “Caerán bajo la condenación” del juicio final. Una vez más, las personas deben asegurarse de la autenticidad de su fe dando fruto. Esta vez se destaca el fruto de hablar con rectitud, como en 3:1-12. Si no perseveran, pueden encontrarse siendo de un carácter diferente al que profesan y, en consecuencia, juzgados como incrédulos.
+
+---
+
+### Santiago 5:13
+Cante alabanzas. Ver artículo temático “Adoración” en la pág. 2383.
+
+---
+
+### Santiago 5:14
+ancianos. Véase Hechos 14:23; Tito 1:5. Ungiéndole con aceite. El aceite de oliva era un elemento de uso común en la medicina del mundo antiguo (Marcos 6:13; Lucas 10:34). El aceite también puede tener una referencia simbólica al poder sanador de Dios.
+
+---
+
+### Santiago 5:15
+Oración de fe. No existe una “oración de fe” especial que tenga un poder sanador inherente. En cambio, aquí se enfatiza el poder de la oración confiada y fiel; la comunidad cristiana debe participar devotamente en la oración de intercesión por los enfermos. Este versículo es el texto clásico de prueba de la institución del sacramento católico romano de la unción de los enfermos (anteriormente “extremaunción”). La unción de los enfermos es un rito de sanación que, (administrado junto con los sacramentos de la Eucaristía y la penitencia), ha llegado a considerarse principalmente como los “últimos ritos” en preparación para la muerte. Sin embargo, aunque este texto puede incluir la noción de que la muerte puede ocurrir y que la oración de fe es apropiada en el momento de la muerte, el punto de Santiago es que la iglesia debe orar por la sanación y la vida de la persona enferma, para que “el Señor lo resucite”. Por lo tanto, el pasaje no se refiere a una unción sacramental. Además, como ya ha dicho Santiago, a veces el llamado de la fe es estar gozosos y firmes bajo “diversas pruebas” (1:2-4), pruebas que pueden incluir una enfermedad grave y prolongada. Incluso cuando el cristiano ofrece esta oración con fe, debe recordar que Dios es soberano sobre la vida y la muerte, incluida la suya propia (cf. 4:13-14). 17) Hay que tener cuidado, pues, de no aislar esta afirmación de la enseñanza del resto de la carta. Los pecados cometidos. El pecado y la enfermedad no están desconectados, aunque la enfermedad no siempre es consecuencia de pecados específicos. El perdón es terapéutico tanto para el cuerpo como para el alma.
+
+---
+
+### Santiago 5:16
+Confesar vuestros pecados. Aunque la confesión a un sacerdote no es un requisito de las Escrituras, la confesión a Dios y a los demás sí lo es. La reacción exagerada contra el sacramento católico romano de la penitencia puede llevar a descuidar la auténtica confesión piadosa entre nosotros, confesión que puede traer sanación y vitalidad renovada al alma. persona justa. Una persona piadosa que ora con fe es una persona justa o recta.
+
+---
+
+### Santiago 5:17
+Elías. Aunque Elías tenía el oficio especial de profeta del Antiguo Testamento, comparte una humanidad común con todos los creyentes. Su vida de oración eficaz es, por lo tanto, un modelo para todos los santos de Dios, es decir, todos aquellos que confían solo en Jesús para la salvación.
+
+---
+
+### Santiago 5:19
+Se desvía de la verdad. Se extravía en patrones de pensamiento y conducta pecaminosos.
+
+---
+
+### Santiago 5:20
+El cuidado de las almas de la comunidad es un asunto que preocupa a todos los miembros, no solo a los oficiales de la iglesia o al clero. Se requiere ayuda y aliento mutuos. Cobertura. Se refiere a la cobertura de los pecados por parte de Dios con el perdón (Sal. 32:1; 85:2), pues en el arrepentimiento y la fe por los cuales un pecador descarriado es devuelto al Señor, Dios perdona sus transgresiones.
+
+---

@@ -1,0 +1,341 @@
+# Notas de Estudio - Miqueas
+
+### Miqueas 1:1
+Miqueas de Moréset. El nombre Miqueas es una forma abreviada de Micayahu (“¿Quién como Yahvé?”). La ciudad de Moréset está ubicada cerca de Gat en la Sefelá, o colinas, del suroeste de Judá. El mensaje divino a Miqueas toma la forma de una revelación sobrenatural a la vista o al oído interior del profeta. El verbo “vio” está relacionado con la palabra “visión” (Nah. 1:1).
+
+---
+
+### Miqueas 1:2
+Esta profecía tiene cuatro partes: citación de las naciones para asistir al juicio (v. 2); una visión simbólica de Dios derribando la creación (vv. 3, 4); una acusación contra las dos ciudades capitales (v. 5); y la sentencia divina de que Samaria será destruida (vv. 6, 7). 1:2 Todos vosotros... contra vosotros. El juicio de Dios sobre Samaria (vv. 6, 7) ejemplifica y prefigura Su juicio contra todas las personas que cometen idolatría y crímenes sociales. Su santo templo, es decir, su morada celestial (Sal. 11:4).
+
+---
+
+### Miqueas 1
+Detrás de la marcha del ejército asirio, el profeta ve la mano de Dios (cf. Is. 10:5, 6). La profundidad del juicio divino contra Jerusalén y Samaria se describe vívidamente como una destrucción del orden creado mismo. 1:3 lugares altos. Quien domina las alturas de Israel domina la tierra. Esto probablemente se refiere a esas montañas en lugar de a los santuarios cananeos conocidos como “lugares altos”.
+
+---
+
+### Miqueas 1:4
+fuego... por un despeñadero. Estas palabras vinculan la visión simbólica con la caída histórica de Samaria (vv. 6, 7), que está situada sobre una colina (1 R. 16:24).
+
+---
+
+### Miqueas 1:5
+Jacob... Israel. “Jacob” e “Israel” aparecen a menudo juntos en Miqueas, refiriéndose a todo el pueblo del pacto. A veces “Jacob” representa al pueblo en su conjunto (2:12; 3:1, 8, 9). La segunda aparición de “Jacob” en este versículo señala al reino del norte de Israel (con su capital, Samaria) como distinto de Judá (con su capital, Jerusalén). En este libro, “Israel” generalmente designa a Judá como representante de toda la nación.
+
+---
+
+### Miqueas 1:7
+su salario. Las religiones antiguas de fertilidad del Cercano Oriente implicaban la prostitución ritual, una actividad estrictamente prohibida para Israel (Deut. 23:17). La riqueza que se había pagado a las prostitutas del templo y que se había usado para hacer ídolos sería tomada por los asirios y usada de la misma manera.
+
+---
+
+### Miqueas 1:8
+Este lamento tiene tres partes: una introducción que declara la decisión de Miqueas de lamentar el exilio de Judá (vv. 8, 9); un cuerpo principal con una serie de juegos de palabras con los nombres de las fortalezas de Judá que predicen la caída y el exilio de Judá (vv. 10–15); y una conclusión que llama a la casa de David a unirse a los ritos de duelo porque irá al exilio (v. 16). despojado y desnudo. Un acto simbólico que se refiere a la amenaza del cautiverio (Is. 20:2-3). 4)
+
+---
+
+### Miqueas 1:9
+La puerta de Jerusalén. El rey Senaquerib de Asiria llegó a la puerta de Jerusalén pero no tomó la ciudad (v. 12; ver Introducción: Fecha y ocasión).
+
+---
+
+### Miqueas 1:10
+No lo anunciéis en Gat. El lamento de Miqueas por la caída de la casa de David recuerda el lamento de David por la caída de la casa de Saúl en circunstancias similares (2 Sam. 1:20). No se debe dar a la ciudad filistea de Gat motivos para regocijarse por la calamidad que se avecina.
+
+---
+
+### Miqueas 1:11
+Safir. Se desconoce su ubicación. El nombre suena como una palabra que significa “hermosa” y es un juego de palabras irónico sobre el destino de sus ciudadanos llevados al exilio. Zaanan... fuera. A pesar de su nombre, que hace eco del hebreo que significa “salir”, esta ciudad se esconderá tras su muralla y no “saldrá” a la batalla. Bet-ezel. Lit. “casa contigua”. La palabra hebrea ezel se parece a un verbo que significa “retirar” o “retener”. Esta ciudad retendrá su protección de Judá porque ha sido anexada por el conquistador.
+
+---
+
+### Miqueas 1:12
+Marot. Aunque anhelaba el bien, este pueblo, cuyo nombre suena a “amargura”, experimentará la dureza de la derrota.
+
+---
+
+### Miqueas 1:13
+corceles... carros... Laquis. Laquis, una importante ciudad fortaleza de Judá situada a veintiséis millas (42 km) al suroeste de Jerusalén, albergaba un contingente de carros. Aquí la referencia a “corceles” (la Hb. El término se asemeja a “Laquis”) tal vez implica que los carros se usarán para huir en lugar de para luchar. El comienzo del pecado. No se explica la naturaleza precisa de este pecado. Muchos sugieren que se trata de la importación de caballos egipcios para su uso en la guerra (5:10; Deut. 17:16; 1 R. 10:28, 29), induciendo a Israel a confiar en su fuerza militar en lugar de en el Señor. Hija de Sión. Personificación de Jerusalén (nota de Sofonías 3:14).
+
+---
+
+### Miqueas 1:14
+Regalos de despedida. Esta alusión a la dote que da un padre a su hija cuando ella parte hacia la casa de su esposo (1 R. 9:16) está motivada por la similitud de Moreset con el término heb. para una “mujer que está comprometida”. Los habitantes de Moreset-gat (la ciudad natal del profeta, a unas veinte millas [32 km] al suroeste de Jerusalén y a seis millas [10 km] al noreste de Laquis) partirá al exilio. Aczib será cosa engañosa. El nombre de la ciudad se parece mucho al de Hb. Término para “engañoso”, una palabra usada para referirse al “arroyo engañoso” en Jeremías 15:18. La ciudad de Aczib (a 14 km al este de Gat) decepcionará al rey de Judá.
+
+---
+
+### Miqueas 1:15
+conquistador. El término suena como Maresa, otra ciudad fortificada en las colinas al sur de Jerusalén, a ocho kilómetros al noreste de Laquis. El término “conquistador” sin duda se refiere a Asiria. gloria de Israel... Adulam. Cuando David huyó a la cueva del desierto en Adulam (2 Sam. 23:13), por lo que los líderes (“gloria”) de Israel huirán. El cuerpo del lamento (vv. 10-15) comienza y termina con referencias literarias a la carrera de David (v. 10). nota)
+
+---
+
+### Miqueas 1:16
+“Quedaos calvos”. Una señal culturalmente reconocida de duelo que en circunstancias normales está prohibida para Israel (Deut. 14:1).
+
+---
+
+### Miqueas 2
+Esta profecía tiene tres partes: (1) la acusación: hombres malvados y violentos se apoderan de la propiedad sagrada de manera poco ética y destruyen a sus dueños (vv. 1, 2); (2) la sentencia: el Señor los sentencia al exilio (v. 3) y a la pérdida de sus tierras a manos de invasores (v. 4); y (3) la conclusión: los ladrones son separados del pueblo del pacto (v. 5). La acusación y la sentencia están vinculadas por un juego de palabras que incluye “que traman maldad” (v. 1) y “estoy tramando desastre” (v. 3), que son expresiones prácticamente idénticas en hebreo. Así como los poderosos han quitado los campos a las familias de Israel (vv. 1, 2), el Señor enviará un ejército enemigo para arrebatarles la Tierra Prometida (vv. 4, 5). 2:1 Con el poder de sus manos, abusan de su posición para perpetrar opresión. En esta profecía, Miqueas defiende su mensaje contra quienes intentan silenciarlo. Miqueas rechaza la orden de que cesen (v. 6). Luego, el Señor acusa a los poderosos de explotar a los indefensos (vv. 8, 9) y los sentencia al exilio porque han profanado la tierra (v. 10). Finalmente, el pueblo es condenado por desear falsos profetas que les digan lo que quieren oír (v. 11). 2:6 El hebreo del v. 6 es difícil de traducir. Algunos sugieren que Miqueas confronta a los falsos profetas que apoyan a los ladrones de tierras y que han buscado Silenciarlo. En apoyo de esta interpretación, la frase Hb. traducida “así predican” (lit. “goteando [palabras]”) puede traducirse “profetizan”. Otros argumentan que los propios líderes codiciosos y corruptos han tratado de silenciar al profeta.
+
+---
+
+### Miqueas 2:2
+Herencia. La propiedad de una familia es un encargo permanente y sagrado de Dios (Levítico 25:10, 13). Véase la nota sobre Números 27:1–11.
+
+---
+
+### Miqueas 2:4
+A un apóstata le reparte. Se refiere a que Dios le dio su tierra a los asirios o al conquistador asirio que distribuyó sus campos a otros como botín.
+
+---
+
+### Miqueas 2:7
+Mis palabras. Desde este punto hasta el final del capítulo, Miqueas transmite directamente la palabra del Señor.
+
+---
+
+### Miqueas 2:8
+manto... casas deliciosas... hijos. Los oprimidos pertenecen a la clase media de Israel. (Introducción: Fecha y ocasión).
+
+---
+
+### Miqueas 2:11
+Predicaré... sidra. El pueblo se ha vuelto tan inepto espiritualmente que fácilmente será engañado por un charlatán o un falso profeta.
+
+---
+
+### Miqueas 2:12
+Miqueas concluye la primera sección de su profecía con un breve oráculo de salvación. Los expositores difieren en cuanto al evento en particular que se analiza principalmente. Algunos consideran que el pasaje prefigura el regreso final del exilio. El Señor abrirá una brecha en las defensas de sus captores y conducirá a Su rebaño de regreso desde las tierras donde han sido dispersados al redil de Jerusalén. Alternativamente, el pasaje puede referirse a la liberación divina extendida a Jerusalén cuando Senaquerib invadió gran parte de la tierra en 701 a. C. Esta interpretación recibe un apoyo significativo de la similitud del lenguaje entre 2:12, 13 y la profecía de Isaías: “De Jerusalén saldrá un remanente”, que definitivamente se refiere al año 701 (2 R. 19:29-31; Is. 37:30-32). El Señor reunirá al pueblo en la ciudad para su preservación. Entonces saldrá de la ciudad sitiada para liberarlos diezmando al ejército asirio (2 R 18:17–19:37). Cualquiera de las dos interpretaciones de una liberación del remanente escogido de Dios anticipa el triunfo mayor del Mesías, el gran Pastor-Rey (5:2–5). 2:12 Jacob... Israel. La segunda interpretación anterior requiere que se refiera a Judá como representante de toda la nación (nota 1:5), mientras que la primera interpretación no está restringida de esta manera.
+
+---
+
+### Miqueas 3
+Las tres profecías de este capítulo anuncian el rechazo y el castigo del liderazgo incompetente y corrupto de Israel. En primer lugar, el trato que los líderes dieron al pueblo oprimido se compara con el canibalismo (vv. 1–4). En segundo lugar, se condena a los falsos profetas que extraviaron al pueblo (vv. 5–7) y se los contrasta con Miqueas, quien profetiza verdaderas revelaciones de parte de Dios (v. 8). Por último, se condena a los líderes políticos y religiosos corruptos y se castiga su complacencia (vv. 9–12). 3:1 Y dije. Un añadido editorial que indica que Miqueas editó su propio libro (Introducción: Características y temas principales). Marca el comienzo del segundo ciclo de profecías en esta obra (caps. 3–5). Jacob... Israel. Ambos términos designan a Judá como el pueblo del pacto (nota 1:5).
+
+---
+
+### Miqueas 3:4
+No responder. Así como los magistrados se negaron a escuchar el clamor de los oprimidos, así también Dios se negará a escuchar su clamor en el tiempo del juicio.
+
+---
+
+### Miqueas 3:5
+Paz... algo de comer. Estos falsos profetas son oportunistas, que adaptan sus declaraciones de paz y seguridad a los deseos de quienes los alimentan. Véase Jeremías 28.
+
+---
+
+### Miqueas 3:6
+Aquellos que han profetizado falsamente serán juzgados y avergonzados por el silencio de Dios.
+
+---
+
+### Miqueas 3:8
+Estoy lleno. Miqueas recibe la inspiración divina, no para engañar al pueblo y hacerle creer que tiene una falsa sensación de seguridad y favor divino, sino para exponer su iniquidad con perspicacia y valentía.
+
+---
+
+### Miqueas 3:10
+Edificar Sión con sangre. Posiblemente esté relacionado con la expansión de Jerusalén para dar cabida a los refugiados del norte y con los proyectos de construcción que se llevaron a cabo durante el reinado de Ezequías. El profeta Isaías también destaca la corrupción que existe dentro de la ciudad de Jerusalén durante esta época (Is. 1:14, 15, 21–23).
+
+---
+
+### Miqueas 3:12
+Sión... altura boscosa. Esta profecía se da en los días de Ezequías (Jer. 26:17-19). El arrepentimiento y la fidelidad de Ezequías (cf. Is. 36-38) significan que el cumplimiento completo de las palabras de Miqueas En el juicio de Jerusalén se retrasa hasta el año 586 a. C.
+
+---
+
+### Miqueas 4:1
+La visión profética de Miqueas pasa del juicio inminente en el corto plazo a los “últimos días”, cuando el reino mesiánico de Dios se establezca en Sión. La primera parte de este oráculo (vv. 1- 5) es prácticamente idéntica a la de Isaías 2:1-5 (véanse las notas allí para un comentario adicional). 4:1 los últimos días (cf. Is 2,2-4). La expresión indica una nueva época que, aunque en un futuro oculto, altera decisivamente el curso de la historia. Aquí se refiere a la era mesiánica, consumada en el nuevo cielo y la nueva tierra (Ap 21; 22). monte de la casa del SEÑOR. Ya no son los restos abandonados de 3:12 Pero el precursor de la presencia del Señor con Su pueblo, el monte Sión terrenal, prefigura la realidad celestial a la que la iglesia de hecho ha llegado ahora (Heb. 12:22–24). Como parte del antiguo pacto, el nuevo orden venidero ha eclipsado el centro religioso terrenal (Hebreos 8:13). como la cima de los montes. Los dioses paganos en los días de Miqueas también tienen montes sagrados con templos. Al ser elevada por encima de ellos, la casa eterna de Dios (aquí simbolizada por el templo en el monte Sión) será establecida entre las naciones como el centro de la verdadera adoración.
+
+---
+
+### Miqueas 4:6
+En aquel día. Véase la nota sobre el versículo 1. reunir... juntar. Los mismos verbos que en 2:12, lo que indica que esta profecía es un desarrollo y expansión de lo dicho anteriormente. y aquellos a quienes. Tal vez sea mejor traducir “aún aquellos a quienes”, una descripción adicional del mismo grupo.
+
+---
+
+### Miqueas 4:7
+El remanente. Así como Dios preservó a un remanente que sobrevivió a la invasión de Senaquerib (nota 2:12, 13), también un remanente sobrevivirá al exilio babilónico posterior. nación fuerte. Profecía que encuentra su cumplimiento final en la iglesia (1 Pedro 2:9, 10).
+
+---
+
+### Miqueas 4:8
+La torre. Jerusalén (es decir, la nueva Jerusalén; Apocalipsis 21, cf. Hebreos 12:22) se convertirá en una torre fortificada alrededor de la cual se reunirán los habitantes para protegerse. Isaías anticipa una transformación similar. de Jerusalén (Is. 65:17–25).
+
+---
+
+### Miqueas 4:9
+Esta profecía explica que la angustia actual de Israel (el “ahora” de los vv. 9, 11) traerá salvación gloriosa: liberación del exilio babilónico posterior (vv. 9, 10) y liberación del asedio de Senaquerib (vv. 11, 12).
+
+---
+
+### Miqueas 4:10
+como una mujer que está de parto. El dolor del juicio (exilio, pérdida del rey y de la tierra) para el remanente debe preceder al nacimiento de la era mesiánica que seguirá. La visión de Miqueas va más allá de la amenaza asiria inmediata a Judá y anticipa lo que sucederá más de un siglo después, cuando no haya liberación para Jerusalén de los babilonios.
+
+---
+
+### Miqueas 4:11
+Ahora, el enfoque se centra nuevamente en las circunstancias de la época de Miqueas. Muchas naciones. El ejército imperial asirio está formado por mercenarios de muchas naciones.
+
+---
+
+### Miqueas 5:1
+Esta profecía también pasa de la angustia presente (“ahora”; v. 1) a la venida y la victoria del Mesías (vv. 2–5). Véase Introducción: Cristo en Miqueas. 5:1 mejilla. Este insulto al líder de Israel significa que Jerusalén caerá ante sus atacantes babilónicos y se perderá todo poder para resistir (cf. 2 R 25:4-7).
+
+---
+
+### Miqueas 5:2
+Pero... Contrasta al gobernante venidero con el humillado representante actual del linaje de David en el v. 1. Belén Efrata. Lit. “casa de pan, fructífera”. La ciudad anteriormente no distinguida donde nació David (1 Sam. 16:1–13), situada a ocho kilómetros (5 millas) de Jerusalén. km) al suroeste de Jerusalén. Aunque la línea de reyes de David cesaría temporalmente (v. 3), Dios levantaría un gobernante de la familia de David para reinar para siempre: Jesucristo mismo (2 Sam. 7:12–17; Mat. 2:6). Para mí, todo ocurre para que avance el plan divino. desde la antigüedad. Esta expresión también se puede traducir como “desde los días de “La eternidad”. De hecho, “desde el principio” se traduce “desde los tiempos eternos” en Hab. 1:12, donde se aplica a Dios mismo (cf. “Dios eterno”, Deut. 33:27). Miqueas ciertamente ha aprendido que el origen del gobernante es muy anterior a su futura venida anticipada. Se trata de una figura más que humana.
+
+---
+
+### Miqueas 5:3
+los entregará. Israel estuvo sin rey davídico desde la caída de Jerusalén en el año 586 a. C. hasta la llegada de Cristo. la que está de parto. Se refiere a María, la madre de Jesús, o al resto fiel (véase 4:10). El resto de sus hermanos. Miles de israelitas se convirtieron después de Pentecostés (Hechos 2:41, 47).
+
+---
+
+### Miqueas 5:4
+pastorear su rebaño. Al gobernante mesiánico se le asigna el papel del SEÑOR (2:12) de cuidar del rebaño.
+
+---
+
+### Miqueas 5:5
+Su paz. El gobernante como “Príncipe de Paz” (Is. 9:6; cf. también Zac. 9:10) proveerá completamente para el bienestar y la seguridad de su pueblo. Es este aspecto de la misión de Cristo sobre el que Pablo reflexiona en Ef. 2:14. El asirio. Después de la primera línea de lo que ahora se denomina versículo 5, Miqueas vuelve a centrarse en las condiciones contemporáneas. Asiria, la nación sitiadora del versículo 1, representa aquí a todos los enemigos que se oponen al reino de Dios. Siete... ocho. Siete es el número de la perfección. Habrá una provisión más que suficiente de líderes para expandir el reino de Cristo.
+
+---
+
+### Miqueas 5:6
+Nimrod. Una referencia a un antiguo rey, cuyo imperio incluía tanto a Babilonia como a Asiria (Gén. 10:10, 11).
+
+---
+
+### Miqueas 5:7
+Este oráculo tiene dos partes: una profecía de que el remanente se convertirá en el instrumento de vida y muerte de Dios (vv. 7, 8), y una petición para que Dios derrote a todos sus enemigos (véase v. 9 y nota). Estas declaraciones encuentran cumplimiento en la iglesia (2 Cor. 2:14-16). 5:7 demorar... esperar. Así como la lluvia procede de la iniciativa divina, así también el remanente depende de Dios para refrescar la tierra.
+
+---
+
+### Miqueas 5:9
+Tu mano... Este versículo tal vez se traduzca mejor como una petición de victoria divina ("Alza tu mano En la siguiente sección se describe cómo el Señor logra esta victoria.
+
+---
+
+### Miqueas 5:10
+Dios limpiará a Su pueblo (vv. 10–15) 14) y exterminará a las naciones paganas (v. 15). La salvación de Dios no puede venir excepto despojando a Su pueblo de toda confianza militar vana y falsa (vv. 10, 11), hechicerías (v. 12) e idolatría (v. 13).
+
+---
+
+### Miqueas 5:15
+La venganza de Dios se llevará a cabo cuando Él revele Su soberanía plena al liberar a Su pueblo y castigar a sus opresores culpables. Solo el Señor soberano tiene el derecho supremo de usar la fuerza para proteger Su reino, y el ejercicio de la fuerza por parte de un individuo o una comunidad sin la autorización divina surge de la incredulidad (Deut. 32:35; Ro. 12:19-21).
+
+---
+
+### Miqueas 6:1
+El tercer ciclo de los oráculos de Miqueas (caps. 6, 7) comienza con un ejemplo clásico del juicio profético del pacto en el que el Señor alega los términos del pacto contra su pueblo desobediente. El mensaje comienza con una escena de juicio en la que el Señor es el demandante, Miqueas es su enviado, los montes son testigos e Israel es el acusado (vv. 1, 2). La fidelidad de Dios al pacto queda entonces atestiguada cuando primero le da a Israel la oportunidad de expresar sus quejas (v. 3) y luego relata sus poderosos actos de liberación (vv. 4, 5). Se proclama entonces la exigencia de la justicia del pacto, una justicia que no consiste simplemente en un ritual vacío, sino en una obediencia sincera (vv. 6-8). 6:1 Levántate, defiende tu causa. El Señor le ordena a Miqueas, como su representante, que presente su caso contra el pueblo. Miqueas obedece la orden (v. 2). montañas. El Señor usa las montañas perdurables como testigos del pacto mediado por Moisés (ver Deut. 4:26; 30:19 y nota; 31:28; 32:1).
+
+---
+
+### Miqueas 6:3
+Mi pueblo. El Señor los reconoce como parte de un pacto con él.
+
+---
+
+### Miqueas 6:4
+Estos versículos están enmarcados por referencias a Egipto (de donde fue liberado Israel) y Gilgal (donde Israel entró en la Tierra Prometida, Josué 4:19). Todos los actos salvadores de Dios durante la formación de Israel Se incluyen los siguientes momentos del período: la Pascua y el éxodo, la guía de la columna de fuego y nube, la provisión milagrosa de alimentos y agua, la provisión de líderes capaces (“Moisés, Aarón y María”) y la victoria sobre los enemigos. La maravillosa provisión de Dios para su pueblo durante este período prefigura la experiencia de la iglesia con Cristo (Juan 6:33; 1 Corintios 5:7; 10:1–4).
+
+---
+
+### Miqueas 6:6
+A través de la escalada retórica de sacrificios (“terneros... millares de carneros... ríos de aceite... mis primogénitos”), Miqueas muestra lo absurdo de la dependencia de Israel de rituales y sacrificios vacíos para ganarse el favor divino. Tal dependencia muestra una profunda incomprensión de la gracia de Dios, porque la salvación de Israel de Egipto (y en última instancia del pecado y la muerte) fue gratuita y no merecida (vv. 4, 5). Además, las obligaciones del pacto de Israel implican justicia social y misericordia, no mera liturgia (v. 8). Véase también Amós 5:21– 24. MIQUEAS 6:6, 7
+
+---
+
+### Miqueas 6:8
+Humildemente. O “prudentemente”. Estos tres requisitos divinos abarcan las relaciones con los demás, el apego interior del individuo a las normas del pacto y un estilo de vida que dé el debido reconocimiento a Dios en cada aspecto de la conducta.
+
+---
+
+### Miqueas 6
+Esta profecía consiste en un discurso dirigido a Jerusalén (v. 9), una acusación de falsedad en los negocios y en el habla (vv. 10-12), y una sentencia judicial de enfermedad y ruina (vv. 13-15). El contexto del pacto es evidente, ya que el castigo refleja las maldiciones del pacto especificadas en la ley mosaica (v. 15; Lev. 26:20; Deut. 28:40, 51). Aquellos que viven en rebelión contra su rey del pacto encontrarán que todo esfuerzo se arruinará cuando Él les impida lograr lo que quieren.
+
+---
+
+### Miqueas 6:14
+Las amargas condiciones predichas en estos versículos reflejan las maldiciones de futilidad descritas en Levítico 26:26; Deuteronomio 28:30, 31, 38–40.
+
+---
+
+### Miqueas 6:16
+los estatutos de Omri, y todas las obras de La casa de Acab. Omri y Acab gobernaron el reino del norte durante el siglo IX a. C. Conocidos por sus malas acciones, promovieron activamente la adoración de Baal en todo Israel.
+
+---
+
+### Miqueas 7:1
+Miqueas lamenta que no se encuentre a nadie justo (vv. 1-4), y lamenta la confusión social y nacional resultante, que es a la vez resultado y castigo de su pecado (vv. 4-6). Particularmente llamativa es la descripción de la ruptura del orden familiar. Sin embargo, Miqueas concluye con su confianza en que más allá del juicio de Dios se encuentra la salvación (v. 7). 7:1 Me he convertido en... fruto de verano. En su búsqueda de los justos, Miqueas se compara a un viñador que busca el fruto escogido después de que ha pasado lo mejor de la temporada.
+
+---
+
+### Miqueas 7:2
+El piadoso. El que se caracteriza por su lealtad al pacto (cf. nota de texto sobre 6:8). No hay nadie recto. Este versículo explica la alegoría del versículo 1.
+
+---
+
+### Miqueas 7:4
+El mejor de ellos es como una zarza. Así como una persona que busca frutos selectos y solo encuentra zarzas y espinos, una persona justa no puede ser encontrada. centinelas. Metáfora de los profetas que anunciaron el juicio venidero (Ezequiel 3:17; 33:7).
+
+---
+
+### Miqueas 7:5
+Este pasaje se utiliza más adelante en la literatura apocalíptica extrabíblica judía para describir el conflicto que acompañará el último día del Señor. Jesús cita el versículo 6 al describir el conflicto asociado con su venida (Mateo 10:35-39; Lucas 12:51-53).
+
+---
+
+### Miqueas 7
+Este himno final consta de cuatro estrofas: (1) La Dama Jerusalén en su estado caído confiesa su pecado y su fe en el Señor (vv. 8–10); (2) el profeta promete que ella se convertirá en un redil que ofrecerá salvación al mundo bajo juicio (vv. 11–13); (3) Miqueas ora para que el Señor pastoree nuevamente milagrosamente a Su pueblo (v. 14), lo cual el Señor promete hacer (v. 15), y luego Miqueas profetiza que el enemigo incrédulo será conquistado (vv. 16, 17); y (4) el pueblo celebra el perdón y la fidelidad de Dios con un himno de alabanza (vv. 18–20). 7:8 Oscuridad. Una mazmorra sin luz es una figura apropiada para una ciudad bajo juicio divino.
+
+---
+
+### Miqueas 7:9
+Veré su vindicación. La justicia del Señor se manifestará en la salvación del fiel Israel (vv. 8, 9) y la destrucción de su enemigo incrédulo (v. 10).
+
+---
+
+### Miqueas 7:11
+día. Véase 4:1, 6; 5:10–15. El último día se representa simbólicamente mediante la restauración de los muros de la ciudad de Jerusalén (v. 11) y la extensión de los límites de la tierra hasta los límites profetizados por Moisés y disfrutados bajo David y Salomón (v. 12; Gén. 15:18; Éx. 23:31; Deut. 11:24; 1 Jn. 1:13). Rey. 4:21, 25).
+
+---
+
+### Miqueas 7:12
+El río. El Éufrates.
+
+---
+
+### Miqueas 7:13
+La tierra quedará desolada. Fuera de las fronteras seguras de los elegidos se producirá el juicio universal. El juicio final está a la vista.
+
+---
+
+### Miqueas 7:14
+Basán y Galaad. Zonas fértiles al este del Jordán, famosas por su ganado vacuno y ovino.
+
+---
+
+### Miqueas 7:16
+manos sobre sus bocas... se harán sordos. Estas son señales de humillación ante el abrumador poder divino. Ya no se burlarán de Israel ni escucharán las vanas jactancias de los demás.
+
+---
+
+### Miqueas 7:18
+¿Quién es Dios como tú? Miqueas, cuyo nombre significa “¿quién como el Señor?” (nota de 1:1), quizá emplee un juego de palabras con su propio nombre para enfatizar la gracia perdonadora de Dios. porque se deleita en la misericordia. La palabra que se usa aquí (y en el v. 20) para “Misericordia inquebrantable” es el término hesed, que se usa comúnmente en la Biblia. Se refiere al compromiso absoluto de Dios con la relación de pacto que Él instituyó soberanamente y que persiste a pesar de la rebeldía de sus socios en el pacto. Él se deleita en mostrar su compromiso resuelto y eficaz al asegurarles perdón y aceptación, sin importar el costo o la dificultad que esto implique. De esta manera, Él se asegurará de que la relación interrumpida por el pecado de ellos se consumará de acuerdo con su propósito.
+
+---
+
+### Miqueas 7:19
+arrojaron... al mar. Así como Dios comenzó el viaje de Israel arrojando a los egipcios al Mar Rojo (v. 15; cf. Éx. 15:1–5), Él arrojará... Concluye su historia arrojando a las profundidades las iniquidades de su pueblo. MIQUEAS 7:19
+
+---
+
+### Miqueas 7:20
+Demostrar fidelidad. La fidelidad amorosa de Dios hacia los patriarcas es la base de la esperanza de la iglesia (Rom. 4:17; Gál. 3:7–9, 29).
+
+---

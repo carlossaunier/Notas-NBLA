@@ -1,0 +1,921 @@
+# Notas de Estudio - Apocalipsis
+
+### Apocalipsis 1:1
+La parte principal de Apocalipsis (1:4–22:21) tiene la forma de una carta, con un saludo, un cuerpo y una despedida. Este prólogo ayuda a orientar a los lectores respecto del contenido que pueden esperar. Se hace hincapié en la autoridad divina del mensaje (de Dios y de Jesucristo), su certeza (nótese la palabra “debe” en el v. 1) y su relevancia crucial (v. 3). Dios hace provisión completa para el proceso de comunicación: el mensaje se origina en Dios el Padre, es dado a Jesucristo y se da a conocer a Juan por medio de un ángel (v. 1). Juan testifica al escribirlo (v. 2), y se anima a todos a leerlo y escucharlo (v. 3). Apocalipsis enfatiza que, aunque viene en forma simbólica, es comprensible. Es “revelación”, que revela la verdad en lugar de ocultarla (v. 1). Es para “sus siervos”, no para una élite especial (v. 1). Dios espera que los cristianos “guarden lo que está escrito” para obtener provecho espiritual (v. 3). Una bendición anima a la gente a leer y escuchar (v. 3). 1:1 La revelación de Jesucristo. La palabra “revelación” (o “apocalipsis”; griego: apokalypsis ) expresa el tema y la naturaleza del libro. El libro es una forma elevada de profecía, a la que se puede llamar “apocalíptica”, como se desprende del uso de “revelación” y “profecía” en los versículos 1–3 y en 22:7. Juan comienza describiendo su visión como una revelación que “Dios le dio para manifestar a sus siervos las cosas que deben suceder pronto”. Las raíces de este versículo están en Daniel 2:28-30, 45-47, donde en dos traducciones griegas del Antiguo Testamento (la Septuaginta y Teodoción), el verbo “reveló” aparece cinco veces, el verbo “mostrar” dos veces y la frase “lo que debe suceder” tres veces. La clave para entender el significado de estas alusiones es que Daniel está hablando del reino de Dios que sucederá en los últimos días. Pero lo que Daniel afirma explícitamente que sucederá “en los últimos días”, Juan lo reformula: estos eventos sucederán. “pronto”. Estas palabras no connotan la manera rápida en que se cumplirá la profecía de Daniel, ni la mera posibilidad de que pueda cumplirse en cualquier momento, sino el tiempo definitivo e inminente de cumplimiento, que ya ha comenzado en el presente mediante la muerte y resurrección de Cristo. El tiempo de espera ha terminado, y Dios está llevando a cabo la fase final de su guerra victoriosa contra maldad. Según este cálculo, hoy es “la última hora” (1 Juan 2:18).
+
+---
+
+### Apocalipsis 1:2
+El testimonio de Jesucristo. Debido a la inminencia de la persecución que amenaza con suprimir el testimonio cristiano (17:6), Apocalipsis está lleno del tema del testimonio. Jesucristo es el testigo preeminente (v. 5; 3:14; 19:11). La imitación de Él puede incluir el martirio (12:11). El Apocalipsis en sí mismo es un testimonio que tiene como fin fortalecer el testimonio de sus lectores. Su mensaje lleva consigo plena autoridad y autenticidad divinas (19:10; 22:6, 16, 20).
+
+---
+
+### Apocalipsis 1:3
+Bienaventurados. El Apocalipsis no sólo pronuncia juicio sobre los infieles, sino también bendiciones sobre los fieles (14:13; 16:15; 19:9; 20:6; 22:7, 14). Profecía. Véase 22:7–10, 18, 19. Al igual que la profecía del Antiguo Testamento, el libro de Apocalipsis combina visiones del futuro de Dios con exhortaciones a la fidelidad. Esta profecía es una forma distintiva e inspirada del testimonio que todos los cristianos deben dar (v. 2 nota). Apocalipsis no tiene como objetivo entretener a los lectores, sino fortalecer a los creyentes. Corazones (Introducción: Características y Temas Primarios).
+
+---
+
+### Apocalipsis 1:4
+a las siete iglesias. Véase v. 11; 2:1–3:22. El Apocalipsis está organizado en sietes, el número bíblico que simboliza la completitud (Gén. 2:2, 3). La elección de siete iglesias expresa este tema e insinúa la relevancia más amplia del mensaje para todas las iglesias en todos los tiempos (vv. 1, 3; 2:7, 11, 17, 29; 3:6, 13, 22; 22:7, 11–14, 16, 18–21). Asia. La provincia romana de Asia se encuentra en lo que hoy es el oeste de Turquía. El que es y que era y que ha de venir. Cf. Éx. 3:14, 15. El propósito de esta revelación es dar a los creyentes la perspectiva eterna y transhistórica de Dios, capacitándolos para entender sus mandamientos y motivándolos a la obediencia (cf. v. 3). De manera similar, la expresión se usa aquí para inspirar confianza en la dirección soberana de Dios en todos los asuntos terrenales y para infundir valor para permanecer firmes frente a las dificultades que ponen a prueba la fe. Véase la nota sobre el v. 8. siete espíritus. Nótese el origen de la gracia y la paz de la Trinidad: Dios Padre (“el que es”), el Hijo (1:5), y el Espíritu (cf. 2 Cor. 13:14; 1 Ped. 1:1, 2). El mensaje profético no sólo proviene de Dios y de Cristo, sino también del “siete espíritus” delante del trono. La referencia aquí es al Espíritu Santo, el número “siete” representa nuevamente la plenitud. El Espíritu Santo es necesario para traer a los creyentes la gracia y la paz con las que Juan los saluda aquí, y Su obra será necesaria si los creyentes han de responder obedientemente a las palabras proféticas que pronto vendrán. Los lectores cristianos necesitan gracia para perseverar en su fe en medio de la tribulación, especialmente la presión para transigir (cf. caps. 2; 3). Y, en medio de tal agitación externa, necesitan la paz interior que solo el Dios eterno, quien es soberano por encima de las pruebas y luchas de las realidades cotidianas que enfrentan los creyentes, puede dar. Juan está aludiendo aquí a Zacarías 4:2-9, donde siete lámparas representan un Espíritu que trae gracia para la construcción del templo. Observe nuevamente cómo 4:5, 6 identifica las siete lámparas delante del trono con los siete espíritus. El Espíritu Santo nos capacita plenamente para convertirnos en el templo en el que habita Dios.
+
+---
+
+### Apocalipsis 1:5
+Juan alaba a Dios de una manera similar a la que se encuentra al comienzo de la mayoría de las cartas paulinas. Los temas de la soberanía de Dios, la redención y la segunda venida de Cristo se repiten a lo largo de Apocalipsis. 1:5 El papel clave de Jesucristo en todo el Apocalipsis ya está anticipado en esta descripción. Testigo fiel. Véase nota al v. 2. el primogénito. Véase nota sobre el v. 18. gobernante. Véase nota sobre 4:1–5:14. nos liberó. Véase nota sobre 5:1–14.
+
+---
+
+### Apocalipsis 1:6
+El tema de la adoración y la alabanza a Dios se extiende a lo largo de Apocalipsis. Observe las alabanzas en 4:8, 11; 5:9, 13; 7:12; 11:15; 12:10-12; 15:3, 4; 19:1-8. Las expresiones de alabanza son una parte integral de la guerra espiritual. Reino, sacerdotes. Los santos disfrutan del gobierno de Dios y como sacerdotes tienen acceso íntimo a Él (Hebreos 10:19-22; 1 Pedro 2:5-9). En el futuro, reinarán con Él (2:26, 27; 3:21; 5:10; 20:4, 6). En Cristo, la gente de todas las naciones ahora comparte los privilegios sacerdotales dados a Israel en Éxodo 19:6, al que alude 1:6. Los propósitos de redención que se ven en el éxodo de Egipto y los propósitos de dominio dados a la humanidad en la creación se cumplen ambos a través de Cristo (5:9, 10). El tema de la adoración sacerdotal y el acceso a Dios es complementario al tema del templo en Apocalipsis (nota 4:1- 5:14).
+
+---
+
+### Apocalipsis 1:8
+El Alfa y la Omega. La primera y la última letra del alfabeto griego. Dios es Alfa (Creador) y Omega (Aquel que inaugura el nuevo cielo y la nueva tierra). Él es Señor de todo — pasado, presente y futuro— como lo sugiere “el que es... el que ha de venir” (cf. 4:1–5:14 nota). Su soberanía en la creación garantiza el cumplimiento de sus propósitos en la recreación (Rom. 8:18–25). que ha de venir. En el futuro Dios vendrá a cumplir todos sus propósitos (21:1– 22:5)
+
+---
+
+### Apocalipsis 1
+Una identificación de Juan y sus circunstancias (en las que representa a toda la iglesia) prepara el camino para la primera visión principal en 1:12–3:22. 1:9 La paciencia. La exhortación a perseverar y permanecer fieles se encuentra en todo el Apocalipsis (2:2, 3, 13, 19; 3:10; 6:11; 13:10; 14:12; 16:15; 18:4; 20:4; 22:7, 11, 14). Aquí hay una exhortación práctica en medio de la persecución y la tentación (Introducción: Fecha y ocasión). Patmos. Una pequeña isla frente a la costa occidental de Asia Menor (actual Turquía). Patmos era un asentamiento penal romano utilizado para personas consideradas peligrosas para el orden público.
+
+---
+
+### Apocalipsis 1:10
+en el Espíritu. El Espíritu le proporciona a Juan las visiones especiales y lo transporta a diversos puntos estratégicos para verlas (4:2; 17:3; 21:10). El domingo, día de culto cristiano en el que se celebra la resurrección de Cristo. La celebración dominical anticipa la celebración de la victoria final de Dios (19:1–10). Voz fuerte. La voz de Cristo. Las voces fuertes y los ruidos indican el poder y la relevancia universal de los mensajes y los acontecimientos (1:15; 4:1, 5; 5:2, 12; 6:1; 7:2, 10; 8:5, 13; 10:3; 11:12, 15, 19; 12:10; 14:7, 9, 15, 18; 19:1, 3, 6, 17).
+
+---
+
+### Apocalipsis 1:11
+Siete iglesias. Véase la nota sobre el versículo 4.
+
+---
+
+### Apocalipsis 1:12
+Cristo aparece en una gloria abrumadora (cf. 21:22–24). “Como un hijo de hombre” alude a Daniel 7:13. Las características de los versículos 12–16 son reminiscentes de Daniel 7:9, 10; 10:5, 6; y Ezequiel 1:25–28, pero incluyen similitudes más distantes con muchas apariciones de Dios en el Antiguo Testamento. La visión muestra a Cristo como sacerdote, juez y gobernante, primero que todo sobre las iglesias (1:20–21). 3:22), sino también sobre todo el universo (2:27; 3:21). Esta triple descripción de Cristo en los vv. 12-16 es la base del temor de Juan (v. 17a) y la respuesta de Jesús “no temas” (v. 17b), que se basa en la muerte y resurrección de Cristo (v. 17c, 18a), que lo lanzó a una posición de ser el soberano sobre “la muerte y el Hades” (v. 18b). La deidad de Cristo, su autoridad y su conquista de la muerte garantizan la victoria final (vv. 17, 18; 17:14; 19:11-16) y deberían ser grandes estímulos para Juan. Sobre la base de que Juan “no debe temer” debido a la posición soberana resucitada de Cristo, Juan ahora está listo para ser comisionado para escribir el libro completo (“escribe, pues”). El versículo 20 nos lleva entre paréntesis al pasado y nos da una interpretación clara de las “estrellas” y los “candelabros”: las estrellas son los ángeles de las iglesias y los candeleros son las iglesias. Esta visión de la soberanía de Dios ejercida a través de Cristo es un punto fundamental del mensaje de Apocalipsis (Introducción: Características y Temas Primarios). La aparición guerrera de Cristo (v. 16) anticipa su papel en la batalla final (19:11-21) y mira hacia atrás a las batallas de Dios en el Antiguo Testamento (Éx. 15:3; Dt. 32:41, 42; Is. 59:17, 18; 1 Cor. 1:1-10). Zac. 14:3). Cristo presenta el modelo en el que se resume el destino de todo el universo (Efesios 1:10; Colosenses 1:16, 17). Puesto que todas las cosas se mantienen unidas en Cristo (Col. 1:17), la imagen trinitaria de los versículos 12- 20 y los capítulos 4; 5 constituye el fundamento de todo el Apocalipsis. Puesto que la Trinidad es profundamente misteriosa, las imágenes del Apocalipsis tienen una profundidad inagotable. 1:12 Siete candelabros de oro. Los candelabros simbolizan a las iglesias en su función de dar luz o testimonio (1:20; Mt. 5:14-16). Cristo camina entre las iglesias como Señor y Pastor (v. 13). En Zac. 4:2-6, el candelabro con sus siete lámparas es una expresión figurativa por la cual parte del mobiliario del templo representa todo el templo, que por extensión también representa al Israel fiel (cf. Zac. 4:6-9). En el tabernáculo y el templo, el candelabro y sus siete lámparas estaban en el Lugar Santo ante la presencia misma de Dios en el Lugar Santísimo, junto con el pan de la presencia, y los judíos entendían que la luz que provenía de sus lámparas representaba la presencia del Señor (Nm. 8:1–4). En la visión de Zacarías, las siete lámparas (4:2) parecen representar el poder del Espíritu (4:6), que dará al pueblo de Israel (el candelabro sobre el que se asientan las lámparas) el poder para reconstruir el templo. Juan ve siete candelabros, cada uno de los cuales representa una de las siete iglesias, y que juntos representan a la iglesia universal. La iglesia, como continuación del verdadero Israel, también debe obtener su poder de las siete lámparas, que representan al Espíritu Santo (Ap. 1:4, 4:5), mientras busca construir el nuevo templo de Dios.
+
+---
+
+### Apocalipsis 1:13
+Así como los sacerdotes del Antiguo Testamento cuidaban las lámparas y los candeleros, aquí se describe a Cristo como un sacerdote celestial que cuida las iglesias (candeleros) corrigiéndolas y exhortándolas (caps. 2; 3). El hecho de que los ojos de Cristo sean como “llama de fuego” (v. 14) habla de su papel de juez, como queda claro en 19:12, donde se usa la misma frase para describir a Cristo en su papel de juez.
+
+---
+
+### Apocalipsis 1:14
+La descripción del Hijo del Hombre “Cabeza y cabello” proviene de la imagen del Anciano de Días en Daniel 7:9, que identifica a Cristo con el Dios del Antiguo Testamento.
+
+---
+
+### Apocalipsis 1:15
+Estruendo de muchas aguas. Véase la nota sobre el versículo 10. La descripción de la “voz de Cristo como el estruendo de muchas aguas” también está tomada de una visión del Todopoderoso, esta vez de Ezequiel (Ezequiel 1:24; 43:2).
+
+---
+
+### Apocalipsis 1:16
+espada. Véase 19:15; cf. Is. 11:4; 49:2; Heb. 4:12. La “espada aguda de dos filos” que sale de la boca de Cristo (cf. 2:16; 19:15) se basa en las profecías de Isaías 11:4 y 49:2, ambas hablando de Cristo en su papel de Juez. El sol. Véase 21:22–25; cf. Is. 60:1–3, 19, 20.
+
+---
+
+### Apocalipsis 1:17
+el primero y el último. Esencialmente lo mismo que el Alfa y la Omega (nota del v. 8; 2:8; 22:13; Is. 41:4; 44:6; 48:12). El Hijo del Hombre se describe a sí mismo como el “primero y el último”, usando las mismas palabras que Dios se atribuye a Sí mismo en Is. 41:4; 44:6; 48:12 y también en Apoc. 1:8. Esta frase se refiere a la soberanía completa de Dios sobre la historia humana desde el principio hasta el fin, y su uso por el Cristo exaltado aquí muestra que Él también es Señor de la historia, eliminando así cualquier duda de su divinidad.
+
+---
+
+### Apocalipsis 1:18
+El que vive. La resurrección y la nueva vida de Cristo proveen la nueva vida de Su pueblo (2:8; 5:9, 10; 20:4, 5) y la renovación del mundo mismo (22:1). Las llaves de la muerte. Esta frase anticipa 20:14.
+
+---
+
+### Apocalipsis 1:19
+La triple referencia aquí ha recibido una variedad de interpretaciones. El versículo podría sugerir una triple división del Apocalipsis en pasado (vv. 12–16), presente (caps. 2; 3) y futuro (4:1–4:2). 22:5). Lo más probable es que se refiera al tipo de literatura (género literario) que es el Apocalipsis: su fuente es una visión del cielo (“cosas que has visto”; v. 19a), es simbólico (v. 19b; “los que son” se refiere al significado de un símbolo, como en 1:20), y se trata de los últimos días (“los que han de suceder después de estos”; v. 19c) O bien, la cláusula triple del v. 19 podría referirse a la idea de que todo el libro A lo largo de todo el texto se compone de referencias al presente y al futuro.
+
+---
+
+### Apocalipsis 1:20
+los ángeles. La palabra griega significa “mensajeros”. Puede referirse a mensajeros humanos, específicamente a los pastores de las iglesias, o a ángeles. La prominencia de los ángeles en Apocalipsis apoyaría este último significado aquí (22:6; Dan. 10:10–21).
+
+---
+
+### Apocalipsis 2:1
+Cristo muestra interés por las iglesias al dirigirse a cada una según sus necesidades, con estímulo, reprensión, exhortación y promesa. Demuestra un conocimiento detallado de ellas (“Yo sé”). En todas las cartas hay alusiones a circunstancias o tradiciones de la ciudad en particular, probablemente incluyendo algunas que ya no se reconocen. Al mismo tiempo, todas las iglesias están incluidas en un llamado universal a la fidelidad y la perseverancia hasta que las promesas alcancen su cumplimiento en la Jerusalén celestial. Sus luchas contrastan con la paz y la satisfacción descritas en 21:1–22:5. Las exhortaciones se refuerzan con una alusión inicial a algún elemento de la majestuosa visión de 1:12–20, y por lo tanto tienen un alcance universal (nota 1:4). Cada mensaje tiene la misma forma básica: 1. Destinatario: “al ángel de la iglesia ... escribe.” 2. Identificación de Cristo, aludiendo a Su majestad mostrada en 1:12–20: “Las palabras de él.” 3. Afirmación de conocimiento: “Yo sé.” 4. Evaluación: reprensiones o elogios. 5. Promesa o amenaza: usualmente “Lo haré.” 6. Promesa de “el que vence.” 7. Exhortación a escuchar: “El que tiene oídos.” Tenga en cuenta que (6) y (7) pueden ocurrir en orden inverso y (5) puede incluirse con (4).
+
+---
+
+### Apocalipsis 2:5
+Quita tu candelero. La ciudad de Éfeso había sido reubicada debido a la sedimentación gradual de su río, el Cayster. Por analogía, Cristo amenaza con quitar la iglesia a menos que su gente se arrepienta. Si la iglesia no hace brillar su luz de testimonio, entonces Dios la “quitará” ellos como un candelero, es decir, ya no lo consideren un verdadero candelero, es decir, una verdadera iglesia.
+
+---
+
+### Apocalipsis 2:6
+Nicolaítas. Grupo herético que probablemente tenía puntos de vista similares a las enseñanzas de Balaam y Jezabel (vv. 14, 20). notas)
+
+---
+
+### Apocalipsis 2:7
+El que vence. En este versículo y en otros paralelos a las otras iglesias, a los santos fieles se les promete participar en todos los aspectos de la Nueva Jerusalén (2:11, 17, 26; 3:5, 12, 21; 21:1–22:5). árbol de la vida. Véase nota sobre 22:2.
+
+---
+
+### Apocalipsis 2:9
+Sinagoga de Satanás. La sinagoga judía de Esmirna estaba compuesta por judíos que habían rechazado el mensaje sobre la venida del Mesías. Aunque profesaban adorar a Dios, su oposición a los cristianos demostraba que, de hecho, estaban bajo el poder de las tinieblas satánicas (2 Corintios 4:4).
+
+---
+
+### Apocalipsis 2:10
+Sé fiel. La ciudad de Esmirna se enorgullecía de su fidelidad a Roma. Corona de vida. La diosa Cibeles de Esmirna aparece representada en las monedas con una corona que imita el diseño de las almenas de una ciudad. Se decía que los edificios del monte Pagos de Esmirna parecían una corona. En contra de estas afirmaciones, Jesús ofrece dar la verdadera corona.
+
+---
+
+### Apocalipsis 2:13
+donde está el trono de Satanás. Pérgamo poseía el templo más antiguo de Asia Menor dedicado al culto del emperador.
+
+---
+
+### Apocalipsis 2:14
+Balaam. El vidente pagano (Núm. 22:5) le dio a Balac consejos que llevaron a la prostitución de Israel en Moab (Núm. 25:1–4). Jezabel (v. 20) y otros cristianos profesantes en las siete iglesias estaban disfrutando de los placeres que ofrecía su entorno pagano (nota 17:1–19:10).
+
+---
+
+### Apocalipsis 2:15
+Nicolaítas. Véase la nota sobre el versículo 6.
+
+---
+
+### Apocalipsis 2:17
+Maná escondido. Quizás una alusión al maná dado por Dios a Israel en el desierto, parte del cual fue preservado en el Lugar Santísimo del tabernáculo (Éx. 16:33–35; Heb. 9:4). La “piedra blanca” probablemente esté relacionada con el “maná”, ya que Núm. 11:7 describe el maná como si se tratara de bedelio, una piedra blanca. Cristo promete nutrir a los fieles con un suministro inagotable de alimento espiritual celestial, aunque eso es “Oculto” o no visible ahora con ojos humanos (Juan 6:32–58). Finalmente, recibir el “nombre nuevo” cumple la profecía de Isaías, en la que los fieles en Israel serían llamados por un nombre nuevo (Is. 62:2, 65:15), mostrando así nuevamente cómo Cristo ve a la iglesia como el nuevo Israel.
+
+---
+
+### Apocalipsis 2:18
+bronce bruñido. Tiatira tenía un famoso gremio de trabajadores del bronce.
+
+---
+
+### Apocalipsis 2:20
+Jezabel. Véase 1 R 16:31; 19:1, 2; 21:5–26; 2 R 9:30–37. La mujer de Tiatira recibe el nombre de Jezabel porque, al igual que la figura del Antiguo Testamento, seducía a la gente a la inmoralidad sexual y la idolatría, dos formas principales de indulgencia en la pagana Asia Menor. Esta mujer enseña que los cristianos pueden seguir siendo fieles incluso si cometen algún grado de idolatría. Véanse las notas sobre 14:8; 17:1–19:10. 2:20, 21 inmoralidad sexual... adulterio. Esta nueva Jezabel, como la Jezabel de viejo (1 R 16:31; 21:25, 26), representaba el compromiso con las prácticas idólatras, y por eso la enseñanza probablemente era similar a la del grupo de Balaam y la Nicolaítas en Pérgamo. En ambos casos (cf. vv. 14, 20), “actos de inmoralidad ” y Se menciona el consumo de carne “sacrificada a los ídolos”. La palabra griega para inmoralidad se utiliza en otras partes de Apocalipsis para referirse no tanto a la inmoralidad sexual literal pero a participar en relaciones ilícitas con (es decir, adoración de) dioses que están detrás de los ídolos. Tiatira era un centro económico con un número particularmente grande de sociedades comerciales o gremios, cada uno de los cuales requería que los miembros participaran en prácticas idólatras para conservar la membresía. En la práctica, sería difícil participar en el comercio en la ciudad sin ser parte de tales organizaciones , por lo que La presión sobre los cristianos que viven en la ciudad para que participen en tales prácticas habría sido sustancial.
+
+---
+
+### Apocalipsis 2:26
+Cristo promete que si el Los lectores perseveran, Él les concederá una parte en el reino mesiánico . profetizado en el Salmo 2, sobre el cual Él ya ha recibido autoridad para gobernar : ellos recibirá autoridad como Él también recibió autoridad, y gobernará sobre el mundo. naciones. Aquí cita el Salmo 2:8, 9, que es significativo como el versículo 7 de ese salmo. se refiere a Cristo como Hijo de Dios, la misma frase con la que Él se presentó A la iglesia de Tiatira en el v. 18.
+
+---
+
+### Apocalipsis 3:3
+Vendré como ladrón . La aparentemente inexpugnable fortaleza de Sardis había sido capturada dos veces en tiempos de guerra por sorpresa, probablemente de noche. Cristo advierte que una experiencia similar ocurrirá en el otoño. La iglesia no podrá ser destruida a menos que su gente despierte.
+
+---
+
+### Apocalipsis 3:5
+El libro de la vida. El elenco celestial de Los destinados a una nueva vida (nota 13:8).
+
+---
+
+### Apocalipsis 3:9
+Sinagoga de Satanás. Ver nota sobre 2:9.
+
+---
+
+### Apocalipsis 3:14
+Las palabras del Amén. El único otro lugar en la Biblia donde se usa “Amén” como nombre es Isaías 65:16: “El que es bendito en la tierra será bendecido por el Dios de Amén” (traducido como “Dios de verdad” en la versión NVI). Aquí Cristo se identifica con el Señor que habla en Is. 65:16. Jesús es el Señor, el único Dios verdadero y creador.
+
+---
+
+### Apocalipsis 3:15
+Ni fría ni caliente. El suministro de agua de Laodicea tenía que provenir de una fuente distante a través de tuberías. El agua resultante era tibia y apenas potable. En contraste, la ciudad vecina de Hierápolis tenía fuentes termales medicinales, y la vecina Colosas se abastecía de un arroyo frío de montaña. Cristo insta a la iglesia a ser refrescante (fría) o curativa medicinalmente (caliente), en lugar de como el suministro de agua tibia insalubre de Laodicea.
+
+---
+
+### Apocalipsis 3:20
+Yo estoy a la puerta y llamo... . entrarán a él. Las palabras de Cristo aquí probablemente se basan en las palabras dirigidas a la novia en Cantares 5:2: “¡Un sonido! Mi amado llama: ¡Ábreme!”. Esta no es una invitación a que los lectores se conviertan, sino a que se renueven en una relación con Cristo que ya había comenzado, como se desprende del v. 19 (“Yo reprendo a los que amo... sé celoso y arrepiéntete”). La alusión al Cantar de los Cantares apunta a un enfoque en la renovación de una relación, ya que allí el esposo llama a la puerta del dormitorio para animar a su esposa a seguir expresándole su amor y dejarlo entrar, pero ella al principio duda en hacerlo. Cristo, el esposo, está haciendo lo mismo con su novia, la iglesia.
+
+---
+
+### Apocalipsis 5:14
+Dios aparece en una hermosa escena de adoración como el Rey del cielo y de la tierra. Está rodeado de cortesanos angelicales (1 R. 22:19; Job 1:6; 2:1; Sal. 89:6, 7; Ez. 1; Dn. 7:9, 10). Estos dos capítulos, inspirados en Ez. 1 y especialmente Dn. 7:19–27, describen el cumplimiento inicial del gobierno del Hijo del Hombre (es decir, el Cordero) y sus santos en el tiempo del fin. El gobierno de Dios se estableció en la creación (4:11), se ejerce en el panorama de la historia (6:1–22:5), se lleva a cumplimiento por medio del Cordero (cap. 5; 22:1), y se celebra en cánticos de alabanza (nota 1:6). El Apocalipsis es Este libro trata principalmente de Dios y de su grandeza. Los secretos de la historia y del conflicto espiritual se centran en Dios mismo. El universo entero está destinado a llenarse de la gloria de Dios (21:22, 23), de su bondad (22:1–5) y de su alabanza (5:13). Por lo tanto, el modelo del desenlace de la historia se revela aquí en miniatura (Mt. 6:10). Cuando el pueblo de Dios se ve asediado por la tentación o la persecución, el mejor remedio es una revelación del carácter y la gloria de Dios. Su poder garantiza la victoria final, su justicia garantiza la reivindicación de lo que es justo, su bondad y magnificencia garantizan la bendición y el consuelo. La sangre del Cordero demuestra que la redención ya se ha realizado. 4:1 Subid acá. Moisés subió al monte Sinaí (Éx. 19:3, 20) y Pablo fue arrebatado al cielo (2 Cor. 12:2) para recibir revelaciones especiales. Lo que debe suceder después de esto. Véase la nota sobre 1:19.
+
+---
+
+### Apocalipsis 4:2
+en el Espíritu. Véase la nota sobre 1:10. En el cielo había un trono. El gobierno real de Dios es un tema fundamental del libro (Introducción: Características y temas principales). En el Antiguo Testamento, el tabernáculo (Éx. 25-40) y el templo (1 R. 5-7; 2 Cr. 2-4) eran sombras de la sala del trono de Dios en el cielo (Éx. 25:40; Heb. 8:5, 6; 9:1-14). Juan ve el original celestial en lugar de una copia terrenal. El Apocalipsis contiene apropiadamente muchas alusiones al templo celestial (3:12; 7:15; 11:19; 14:15, 17; 15:5-16:1; 16:17; 21:22) y a elementos dentro de él. Por ejemplo, están las lámparas (1:12; 4:5), los seres vivientes como los querubines (4:6-9), el incienso y la oración (5:8), los cánticos de alabanza como los que ofrecían los cantores levíticos en el Antiguo Testamento (4:8, 11; 5:9-13; cf. 1 Cr 16), un sacrificio (5:6, 9), el arca del pacto (11:19), el altar (11:1) y el atrio exterior (11:2). Este templo celestial descenderá y se transformará en los nuevos cielos y la nueva tierra (21:1-22:5). El que está sentado en el trono. No se describen los detalles de la aparición de Dios, lo que nos recuerda que su grandeza y gloria siempre superan la comprensión humana. Véase la nota sobre 1:12–20.
+
+---
+
+### Apocalipsis 4:4
+veinticuatro ancianos. A estos ministros angelicales (7:13) se les llama aquí “ancianos” debido a su sabiduría. Como oficiales del gabinete de Dios, deben reflejar Su propia sabiduría, que está simbolizada por la edad (Dn. 7:9). El término “anciano” también sugiere una analogía con los ancianos de la iglesia que sirven en la tierra; por lo tanto, algunos han sugerido que los ancianos aquí son simplemente un grupo de ancianos. representación de la iglesia. A la luz de 21:12-14 (donde los apóstoles y los “Las tribus de los hijos de Israel” se mencionan juntas en relación con la Nueva Jerusalén), los “veinticuatro ancianos” probablemente, al menos, se refieren a la suma de las doce tribus de Israel y los doce apóstoles que, tomados en conjunto, representan a la iglesia en su carácter de sacerdocio universal de creyentes. Sin embargo, los ancianos no pueden clasificarse como santos redimidos reales, porque se distinguen claramente de la multitud de los salvos en 7:9–17 (cf. 7:13, 14). Probablemente sean ángeles que representan a la totalidad del pueblo de Dios, así como los ángeles representan a las iglesias en 1:12–3:14.
+
+---
+
+### Apocalipsis 4:5
+El relámpago. Dios exhibe su poder de una manera análoga a su autorrevelación en el monte Sinaí (Éx. 19:16-19) y otras apariciones divinas (8:5; 11:19; 16:18; cf. Sal. 18:11-15; Eze. 1:4). Él le recuerda a la iglesia el poder de su voz (1:10, 15 y notas) y el zarandeo final de la creación que aún está por venir (11:19; 21:1; Heb. 12:25- 27). Siete antorchas. Véase nota sobre 1:12; cf. Zac. 4:2, 6. La luz séptuple del Espíritu Santo es la luz original de la cual está hecho el candelabro de siete brazos de Éx. 25:31–40 era una copia. Las similitudes con 1:12 sugieren que las siete iglesias, como verdadero templo de Dios, deben emitir luz que refleje la presencia misma de Dios a través de su Espíritu. Siete espíritus de Dios. El Espíritu Santo (nota 1:4).
+
+---
+
+### Apocalipsis 4:6
+El mar de vidrio. Véase 15:2; cf. Éxodo 24:10. Esta imagen podría sugerir varias asociaciones. El versículo paralelo en 15:2 El mar de vidrio evoca las aguas del Mar Rojo. El rechazo de las aguas y la derrota del faraón prefiguraron la victoria final de Dios sobre el mal (Is. 51:9- 11). Si es así, el mar de vidrio representa las aguas sometidas bajo el poder de Dios. Además, la extensión y belleza del mar cristalino, cuando se toman en conjunto con las piedras preciosas en los versículos 3 y 21:18-21, sugieren la magnificencia y preciosidad del trono de Dios. Los numerosos paralelos en otras partes con el templo (nota 4:2) podrían sugerir que este mar es la contraparte celestial del mar en el templo de Salomón (1 R. 7:23-25). Finalmente, la imagen del agua celestial podría sugerir que Dios suministra fielmente agua del cielo (Dt. 11:11). Es coherente con el estilo de Apocalipsis entretejer una serie de imágenes del Antiguo Testamento. Cuatro seres vivientes. Estos ministros angelicales de Dios recuerdan a los seres vivientes o querubines de Ezequiel 1; 10 y a los serafines de Isaías 6. Son guardianes y portadores del trono de Dios, como en Génesis 3:24; Éxodo 25:17- 22; Salmo 116:1-13. 18:10; 1 Crónicas 28:18.
+
+---
+
+### Apocalipsis 4:11
+Los siervos de Dios traen cánticos de alabanza como una respuesta adecuada a su gloria y sus obras (nota 1:6; cf. Éx. 15:11; Is. 6:3). Tú creaste. La alabanza y las imágenes del capítulo 4 se centran en la creación, afirmando la soberanía de Dios sobre el universo (nota 1:8).
+
+---
+
+### Apocalipsis 5
+Juan relata dos partes de una sola visión magnífica de la gloria de Dios en los capítulos 4 y 5 (nota 4:1– 5:14). En 5:1 se presenta un segundo acto dramático dentro de la visión. De la creación en 4:11, la acción cambia a un enfoque en la redención y la recreación. Los propósitos de Dios de redención y gobierno pueden cumplirse solo por medio de Uno que es excepcionalmente digno: Jesucristo. Él es simultáneamente el feroz León de la tribu de Judá, que guerrea contra los enemigos de Dios (17:14; 19:11–21), y el manso Cordero que ha sido inmolado, que compró a Su pueblo con la sangre de Su sacrificio expiatorio (vv. 9, 10). Sólo Dios en su plenitud trinitaria puede llevar a cabo estos magníficos propósitos. Nótese la presencia del Padre (“el que estaba sentado en el trono”; vv. 1, 7), el Hijo (“Cordero”; vv. 6, 7), y el Espíritu de Dios (v. 6; 1:4 nota), que es los cuernos y los ojos del Cordero. Este capítulo constituye la escena inicial del primer ciclo de juicios que conducen a la segunda venida de Cristo (Introducción: Bosquejo). Se presentan el Cordero y el rollo sellado. La apertura de los sellos en 6:1–8:1 pone en marcha una serie de juicios que tienen su origen en el trono y el propósito de Dios, y que desembocan en Su manifestación final como Juez. Véanse las notas sobre 6:12– 17 y 8:1. 5:1 El rollo. El rollo podría representar varias cosas: el pacto de Dios, su ley, sus promesas, sus planes o tal vez un testamento legal. El estrecho paralelo con Daniel 12:4 hace probable que el rollo sea un libro celestial que contiene el plan de Dios y el destino del mundo. La apertura del libro implica el cumplimiento de las cosas que Dios se ha propuesto. Juan llora (v. 4) porque anhela que se cumplan los propósitos de Dios (Mt. 6:10), y es difícil ver cómo puede suceder eso. Sin embargo, mediante el sacrificio decisivo de Cristo, una multitud entera es redimida (v. 9), y los propósitos del éxodo y del dominio original del hombre finalmente se cumplen (v. 10). Las alabanzas que comenzaron en los círculos internos de adoración alrededor del trono ahora se extienden hacia afuera hasta llenar el universo.
+
+---
+
+### Apocalipsis 5:6
+como si hubiera sido inmolado. “Como Aunque” se usa porque el Cordero fue inmolado, pero ahora está vivo “para siempre” (1:18) Sólo sobre la base de la muerte y resurrección de Cristo pueden cumplirse los propósitos de Dios para la historia. Siete cuernos. Los cuernos representan frecuentemente poder (Sal. 89:17; 92:10; Dn. 7:8; 8:3), en este caso el poder de la vida eterna de Cristo llena del Espíritu (Jn. 3:34; Ro. 1:11). 8:11; 1 Cor. 15:45). Los siete espíritus de Dios. Véase la nota sobre 1:4.
+
+---
+
+### Apocalipsis 5:9
+toda tribu y lengua y pueblo y nación. En la batalla espiritual, tanto Dios como Satanás reclaman lealtades a escala universal (7:9; 10:11; 11:9; 12:5; 13:7; 14:6, 8; 15:4; 17:15; 18:3; 19:15; 20:3). Mediante el mérito y el poder del sacrificio de Cristo, se cumplirán los propósitos de Dios, cumpliendo la promesa abrahámica de bendecir a todas las naciones (7:9– 17; 21:24–27; cf. Génesis 12:3; 22:18; Is. 60:1–5).
+
+---
+
+### Apocalipsis 5:10
+reino y sacerdotes. Véase la nota sobre 1:6.
+
+---
+
+### Apocalipsis 6:1
+Los juicios desde el trono de Dios se desarrollan a medida que los siete sellos se abren uno por uno. La participación del Cordero nos recuerda que tales juicios se basan en Sus calificaciones y logros únicos (cap. 5). En estructura formal, 5:1–8:1 transcurre en paralelo a 8:2–11:19, que también son paralelos en alcance temporal. Cada uno tiene una escena inicial que presenta el origen de los juicios (cap. 5; 8:2–6). Siguen seis juicios (cap. 6; 8:7–9:21). Un interludio dramático promete cuidado para el pueblo de Dios (cap. 7; 10:1–11:14). El séptimo y culminante juicio sigue al interludio (8:1; 11:15–19; Introducción: Bosquejo). Los siete juicios avanzan hacia la segunda venida, que ocurre en 6:12–17 y 11:15–19. Los primeros cuatro de los siete juicios tienen una unidad interna. Los cuatro seres vivientes de 4:6 y los cuatro jinetes de Zacarías 1:8 se reflejan en 6:1-8. Las cuatro regiones principales del mundo (tierra seca, mar, agua dulce y cielo) se consideran en 8:7- 12. 6:1–8 Los cuatro jinetes representan la conquista, la guerra, el hambre y la muerte. Las calamidades caracterizan un período indefinido antes de la segunda venida (Marcos 13:6–8). Tales cosas ocurrieron durante los tumultos del Imperio Romano, y pueden ser Se espera que ocurra ahora y antes de la segunda venida. Las imágenes son capaces de múltiples aplicaciones a lo largo de la historia de la iglesia (Introducción: Historia de Interpretación). Se exhortó a las siete iglesias a poner su confianza no en la paz y prosperidad supuestamente lograda por el gobierno romano, sino en Dios y Sus promesas seguras de un mundo nuevo (2:17; 3:12; 21:4). Cuando se produjeron tumultos, Se les aseguró que el Cordero todavía estaba en control; de hecho, los tumultos se desencadenaron de su dignidad para romper los sellos y de la voz de los seres vivientes . Tales juicios representaban la mano castigadora de Dios sobre un mundo rebelde. (9:20, 21). Los santos serían cuidados espiritualmente en medio del sufrimiento. Tales pruebas (cap. 7). Fueron selladas como una marca de propiedad por Dios y una marca de protección espiritual (7:1–10; 9:4) y de descanso perfecto al final (7: 15–17). Tales promesas son válidas para los santos a lo largo de la era de la iglesia, no menos que para los siete iglesias, ya que las siete iglesias representan la iglesia universal , la redimidos de todos los tiempos.
+
+---
+
+### Apocalipsis 6:2
+El caballo blanco. Sobre la base de similitudes con 19:11, algunos piensan que Cristo aparece aquí, venciendo a través de El evangelio. Lo más probable es que el caballo blanco simbolice una figura maligna que vence mediante el engaño. Así, la calamidad maligna de los versículos 1 y 2 es paralela a la calamidades de los versículos 3–8 (nota 6:1–8:1).
+
+---
+
+### Apocalipsis 6:6
+Un litro de trigo. El hambre vendrá Ven, hambruna tan severa que todo el salario de un trabajador se destinará sólo a comida. Las familias tendrán que comprar cebada, un grano de peor calidad. El aceite y el vino son Se salvó, tal vez una indicación de que los ricos aún podrán disfrutar. ellos mismos.
+
+---
+
+### Apocalipsis 6:9
+Los santos martirizados claman por justicia, no por deseos egoístas, sino en sintonía con la justicia del trono de Dios (v. 10). Desean ver la justicia de Dios plenamente manifestada. Esta es una respuesta a las calamidades de 6:1–8, que también afectan a los creyentes, principalmente a través de Persecución.
+
+---
+
+### Apocalipsis 6:10
+aquellos ... en la tierra. Revelación muestra que la humanidad se compone de dos grupos: el pueblo de Dios, cuyo La ciudadanía está en los cielos (Fil. 3:20), y, en oposición a ellos, los rebeldes y los habitantes idólatras de la tierra (v. 15; 8:13; 11:10; 13:3, 8, 12, 14; 17:2, 8).
+
+---
+
+### Apocalipsis 6:12
+Todos los habitantes de la tierra y del universo creado experimentan el juicio de Dios. Estos versículos dan la primera de siete descripciones en Apocalipsis de los eventos asociados con la segunda venida de Cristo (Introducción: Características literarias). Las siete partes de la creación (vv. 12-14) y los siete tipos de personas (v. 15) sugieren la identidad de los incrédulos y su confianza en la seguridad terrenal y sugieren un juicio completo, al igual que la caracterización de “el gran día de la ira” (vv. 16, 17). Puesto que este mundo será sacudido tan profundamente, los santos deben poner su esperanza en Dios (Lucas 12:32-34; 1 Corintios 7:29-31; Hebreos 12:25-29).
+
+---
+
+### Apocalipsis 7:1
+El anuncio del séptimo sello se retrasa dramáticamente mientras los santos reciben la seguridad de que Dios los conoce y los protege en medio de las calamidades descritas en el capítulo 6.
+
+---
+
+### Apocalipsis 7:3
+sellado. Los fieles son sellados como un señal de protección y propiedad (9:4; 14:1; cf. Ezequiel 9:4).
+
+---
+
+### Apocalipsis 7:4
+La numeración equilibrada sugiere que “doce” es un número simbólico de la plenitud del pueblo de Dios y que 144.000 no es el número real de los que están sellados. La asociación temprana de la tribu de Dan con la idolatría (Jue. 18) puede explicar su omisión de esta lista (21:8; 22:15). Algunos piensan que los 144.000 aquí incluyen solo a los creyentes judíos. Pero los “siervos de nuestro Dios” en el v. 3 deben incluir también a los santos gentiles. La condición igual de gentiles y judíos en las siete iglesias (Efe. 2:11-22) y las promesas asociadas solo con los 144.000 (9:4; 14:1-5) confirman esto. Según los versículos 1–8, Dios conoce a los santos individualmente, y ninguno escapa a su cuidado (Mateo 10:30); según los versículos 9–17, ningún ser humano puede contar su número. La imagen de los versículos 9-17 muestra a la misma hueste de la que se habla en los versículos anteriores desde el punto de vista de su gran número real. Aunque son un remanente salvo (7:1-8), también son aquellos que han sido reunidos de toda la faz de la tierra y han vivido durante todo el período de la era de la iglesia. Por lo tanto, son una multitud numerosa.
+
+---
+
+### Apocalipsis 7:14
+La gran tribulación. Muchos identifican la “gran tribulación” con un período final de persecución poco antes de la segunda venida. Pero las tribulaciones para los cristianos ocurren durante toda la era de la iglesia, de modo que toda la era también puede caracterizarse como un tiempo de tribulación (2 Tes. 1:14). 1:5, 6; 2 Tim. 3:1, 12), que empeorará al final de los tiempos. El pasaje tenía como propósito consolar a los cristianos del primer siglo, así como a los que estaban en la crisis final. Véase la nota sobre 11:2.
+
+---
+
+### Apocalipsis 8:1
+Silencio en el cielo. El siguiente acontecimiento después de 6:12-17 sería, naturalmente, la aparición de Cristo mismo como el último guerrero y juez (cf. Mr. 13:24-26). El silencio puede indicar que el cielo se asombra ante su presencia, especialmente cuando esto se expresa en el juicio que precede directamente a su venida (Hab. 2:20; Sof. 1:7). En este punto inicial, al vidente no se le da un cuadro más completo que revele los acontecimientos del juicio final y la recreación. Esta reserva mantiene el interés del lector en ciclos de juicio posteriores.
+
+---
+
+### Apocalipsis 8:2
+Siete ángeles tocan siete trompetas. Las trompetas ponen en marcha siete juicios que conducen a la segunda venida de Jesús. Las trompetas forman el segundo ciclo de varios que representan el gobierno de Dios sobre la historia desde varios ángulos. Sobre la estructura de estos juicios, véase la nota sobre 6:1–8:1. Al igual que las trompetas utilizadas en la batalla de Jericó (Jos. 6), estas trompetas conducen a la caída de la ciudad mundana (nota sobre 11:8, 11:13), y en la séptima trompeta llega la victoria completa de Dios. Las plagas de las trompetas están modeladas especialmente sobre las plagas contra Egipto, lo que significa los juicios de Dios sobre el poder idólatra. Los siete sellos comienzan con anuncios de jinetes comisionados para traer calamidades (6:1–8 nota). Las siete trompetas, por el contrario, contienen descripciones de las calamidades mismas. La intensidad del juicio ha aumentado. Pero aún así algunas cosas se salvan: la mayoría de las plagas de las trompetas caen sobre un tercio del pueblo o de la tierra, no sobre todos; la plaga de langostas de 9:1–12 termina después de cinco meses; algunas personas sobreviven al colapso de la ciudad en 11:13. En contraste, los juicios de las copas posteriores (15:1–16:21) son completamente devastadores. 8:2–6 Los juicios de las trompetas proceden de los ángeles de Dios, que están delante de su trono (v. 2). La visión de los capítulos 4 y 5 sigue siendo un punto de anclaje para este nuevo ciclo de visiones. Al igual que los juicios de los sellos de 6:1–8:1, estos juicios se ejecutan de acuerdo con el plan de Dios y de acuerdo con sus órdenes. Las oraciones de los santos desempeñar un papel notable en el origen de los juicios (vv. 3–5).
+
+---
+
+### Apocalipsis 8:7
+Las primeras cuatro plagas de las trompetas azotan las cuatro regiones principales de la creación: la tierra, el mar, el agua dulce y el cielo. Las primeras cuatro copas afectan las mismas cuatro regiones (16:1-9). En el período de la iglesia primitiva, estas visiones se cumplieron tanto por medio de calamidades naturales como por medio de calamidades espirituales análogas que afligieron las almas de los malvados. En tales imágenes apocalípticas, un tipo de calamidad puede representar al otro. Los principios generales se pueden aplicar de manera más amplia. Tanto los seres humanos como el mundo natural sufren estrés hasta el momento de la renovación final (Rom. 8:18-25). La destrucción final del universo natural, así como el juicio de los seres humanos, acompaña la segunda venida de Cristo (2 Ped. 3:10, 12). 8:7 Granizo y fuego. Paralelo a Éxodo 9:23, 24.
+
+---
+
+### Apocalipsis 8:8
+sangre. Paralelo a Éxodo 7:14-24.
+
+---
+
+### Apocalipsis 8:12
+Se oscureció. Paralelo a Éxodo 10:21– 23.
+
+---
+
+### Apocalipsis 8:13
+Ay. Un comienzo típico de un oráculo profético (p. ej., Amós 5:18; 6:1). Las últimas tres trompetas se agrupan como tres ayes (9:12; 11:14). Estas plagas diferencian explícitamente entre los justos y los malvados, al igual que las plagas egipcias anteriores.
+
+---
+
+### Apocalipsis 9:1
+El toque de trompeta pone en movimiento un ejército terrible de langostas, alimentadas por fuentes demoníacas (vv. 1, 2). La imagen se deriva de Éxodo 10:13-15 y Joel 2:1-11, donde una plaga literal de langostas presagia un juicio aún más devastador que vendrá de un ejército comisionado divinamente (Joel 2:11). Sus poderes aterradores solo se comparan con los de la bestia (13:1-10). Estos monstruos infernales atacan solo a los malvados, no a los malvados. santos (v. 4). Los malvados a veces sufren incluso en esta vida como un anticipo de su castigo final (20:11-15). Según los intérpretes idealistas (Introducción: Historia de la interpretación), la visión describe la naturaleza contraproducente y atormentadora de la maldad demoníaca que afecta al alma humana. Los poderes del abismo atacan no a los santos sino sólo a los malvados. Los historicistas han visto generalmente la visión como una representación de la conquista islámica de una Europa occidental degenerada (612-762 d. C.), pero tal aplicación sería sólo una encarnación muy débil y vaga del principio. Los futuristas entienden la visión como una plaga sobrenatural de espíritus demoníacos, que se desatará en la tierra poco antes de la segunda venida. El principio fundamental es el mismo en todas estas interpretaciones, y son posibles múltiples aplicaciones del principio.
+
+---
+
+### Apocalipsis 9:5
+cinco meses. Una plaga normal de langostas se iría después de unos días. Esta plaga demoníaca se queda durante todo el período durante el cual se pueden ver langostas.
+
+---
+
+### Apocalipsis 9:11
+Apolión. Véase la nota del texto. Puede haber una alusión irónica a Nerón o a Domiciano, quienes se consideraban similares al dios griego Apolo.
+
+---
+
+### Apocalipsis 9:13
+El Imperio Romano temía un ataque de los partos desde más allá del Éufrates (v. 14), la frontera oriental del imperio. Pero todos esos temores quedan eclipsados por lo que describe Apocalipsis. Las amenazas externas que experimentó el Imperio Romano presagian el día final de la batalla cósmica (16:14). Los eventos de estos versículos son similares a los de 16:14, pero la Las consecuencias son menos severas, dejando tiempo para el arrepentimiento (vv. 18-21). APOCALIPSIS 9:13
+
+---
+
+### Apocalipsis 10:1
+Entre la sexta y la séptima trompeta hay un interludio con dos escenas (cap. 10; 11:1–14). Ambas escenas tratan sobre el papel del pueblo de Dios y su testimonio profético durante el tiempo de prueba. En la primera escena, Juan recibe mensajes proféticos y es comisionado para proclamarlos. La segunda describe la historia de los dos testigos y su entorno más amplio. 10:1–11 Dan. 10:5, 6 y el llamado de Ezequiel (Ezequiel 2:1–3:11) tienen paralelo en Este capítulo. Juan recibe los mensajes proféticos de un “librito”. Algunos han pensado que el libro contiene el contenido de 12:1–22:5, y que 12:1 comienza una nueva división importante en la estructura de Apocalipsis. El “librito” de Juan probablemente contiene los mismos temas que se asocian con el gran libro del Cordero en el capítulo 5: juicio y sufrimiento por medio del testimonio, que resultan en vindicación. La visión de este capítulo habla de manera general de que Juan recibe poder para continuar profetizando. Aunque el papel de Juan es único, sigue siendo en muchos sentidos un ejemplo y un modelo para el testimonio de la iglesia (nota 1:2). La iglesia debe tomar en serio el mensaje del libro (1:3), vivir por él y estar lista para comunicar sus implicaciones a “pueblos, naciones, lenguas y reyes” (v. 11). 10:1, 2 Aparece un ángel poderoso, que refleja la gloria misma de Dios y su trono (cf. 1:14–16; Ezequiel 1:27, 28; Daniel 10:5, 6). La majestad del ángel refuerza la autoridad y la fuente divina del mensaje.
+
+---
+
+### Apocalipsis 10:9
+Amargará tu estómago. El contenido del libro contiene noticias de juicio y sufrimiento, según el modelo de Ezequiel 2:8–3:3. Dulce como la miel. Cf. Sal. 19:10; 119:103; Eze. 3:3. La Palabra de Dios proporciona comunión con Dios y su bondad; por lo tanto, la dulzura acompaña incluso al mensaje de aflicción. Nótese el estrecho paralelo con Jer. 15:15-18. Primero, el profeta encuentra gozo en su comisión (v. 16). Sin embargo, cuando sus palabras son rechazadas, su gozo se convierte en amargura en los vv. 17, 18.
+
+---
+
+### Apocalipsis 10:11
+muchos pueblos. Véase la nota sobre 5:9.
+
+---
+
+### Apocalipsis 11:1
+Esta segunda parte del interludio se concentra en la historia de los dos testigos. Al igual que Moisés y Elías, estos testigos realizan milagros sorprendentes (vv. 5, 6). Otras alusiones del Antiguo Testamento se entretejen en la visión. La mención de dos olivos y candelabros (v. 4) compara a los testigos con la visión de Zacarías 4, en la que los árboles probablemente simbolizan los oficios gobernantes y sacerdotales de Zorobabel y Josué. Por lo tanto, los testigos son voceros prominentes de Dios que representan a la iglesia, que ya ha sido llamada dos veces un “reino y sacerdotes” (1:6; 5:10). La postura de los testigos contra “La bestia” (vv. 7–10) nos recuerda los conflictos contra los reinos bestiales en Daniel. Hay un recordatorio de ciudades y poderes malvados y opresores en el v. 8: Sodoma, Egipto y la Jerusalén que crucificó a Jesús. La resurrección en los vv. 11, 12 recuerda la resurrección de Cristo, pero también el lenguaje de Ezequiel 37 y el rapto de Elías. Los dos testigos, junto con Juan (cap. 10), son modelos para los santos. Todos deben ser fieles al testimonio de Jesús, incluso frente a la persecución violenta de la bestia. Deben estar dispuestos a enfrentar el martirio, con Dios garantizando su vindicación (vv. 11, 12). 11:1, 2 La descripción recuerda la caída de Jerusalén en el año 70 d.C. Suponiendo que el Apocalipsis fue escrito antes de esa fecha, algunos intérpretes ven los capítulos 6-11 o incluso porciones más extensas del Apocalipsis como profecías acerca de la caída de Jerusalén. Pero estos versículos pueden ser más bien figurativos de la preservación del pueblo de Dios en medio de los ataques. El templo representa la presencia de Dios en la tierra, especialmente con su pueblo (nota 4:1-5:14). La medida significa el conocimiento y el cuidado de Dios (Ezequiel 40; 41). El altar y los que adoran allí representan a los verdaderos adoradores de Dios, que están sellados y protegidos (cap. 7). La destrucción del atrio exterior representa el ataque de los forasteros contra el pueblo de Dios.
+
+---
+
+### Apocalipsis 11:3
+Dos testigos. Es posible que se trate de dos seres humanos literales: o bien dos profetas cristianos que fueron martirizados poco antes de la caída de Jerusalén, o bien dos profetas que aparecerán poco antes de la segunda venida. Pero su identificación con dos candeleros (v. 4) sugiere que es más probable que sean figuras simbólicas que representan el testimonio de las iglesias de los candeleros de 1:20. Si este es el caso, simbolizan iglesias en lugar de individuos específicos y continúan la imagen del templo de los vv. 1, 2, ya que el candelabro era parte integral del templo en el Antiguo Testamento. Se mencionan dos candelabros, en lugar de siete, para imitar el modelo de Zacarías 4. y de Moisés y Elías (nota 11:1–14; cf. Dt. 17:6; Mt. 17:3, 4; Lc. 10:1). “Dos” también puede deberse al hecho de que sólo dos de las siete iglesias (Esmirna y Filadelfia) no tenían acusaciones presentadas contra ellas por Cristo. Además, los dos testigos también pueden estar relacionados con el número de “dos”, que se refiere al número de testigos necesarios para establecer una ofensa contra la ley (Núm. 35:30; Deut. 17:6, 19:15). Jesús también utilizó el mismo principio (Mat. 2:11). 18:16; Lucas 10:1–24; Juan 8:17). Lo mismo hizo Pablo (2 Corintios 13:1; 1 Timoteo 5:19). Note también que Dios envió dos ángeles para testificar de la verdad de la resurrección (Lucas 24:4) y para testificar del hecho de que Jesús regresaría (Hechos 1:10, 11).
+
+---
+
+### Apocalipsis 11:7
+La bestia. Véase la nota sobre 13:2 y Introducción: Características y temas principales.
+
+---
+
+### Apocalipsis 11:8
+La gran ciudad. Este versículo sugiere a muchos que en todo este capítulo se hace referencia a la antigua Jerusalén (nota 11:1, 2). Pero el simbolismo tiene muchas aplicaciones potenciales. La ciudad es la ciudad mundana, que representa a la humanidad y a la civilización humana en su rebelión contra Dios. Babel, Sodoma, Egipto, Jerusalén, la antigua Roma, las ciudades modernas y una apostasía final antes de la segunda venida son ejemplos de este tipo de rebelión. Véase Introducción: El libro de Apocalipsis en la historia más amplia de la Biblia y la nota sobre 17:1–19:10.
+
+---
+
+### Apocalipsis 11:9
+tres días y medio. Véase la nota sobre el versículo 2. pueblos, tribus, lenguas y naciones. Véase nota sobre 5:9.
+
+---
+
+### Apocalipsis 11:10
+los que moran en la tierra. Véase la nota sobre 6:10.
+
+---
+
+### Apocalipsis 11:11
+Si los dos testigos son individuos, su resurrección presumiblemente debe interpretarse de manera literal. Si los testigos son símbolos de las iglesias, lo cual es más probable, su resurrección simboliza la victoria del testimonio cristiano después de un tiempo de intensa persecución (6:9, 10; 20:1–6). Véase la nota sobre el v. 3.
+
+---
+
+### Apocalipsis 11
+El segundo ciclo de juicios (8:2–11:19) cierra con una segunda descripción de la segunda venida de Cristo, centrándose en el juicio final (v. 18) y el triunfo del gobierno real de Dios (vv. 15, 17).
+
+---
+
+### Apocalipsis 11:19
+El templo de Dios. Véase la nota sobre 4:2. arca. El arca del pacto era el objeto más sagrado del tabernáculo (Éx. 25:10–22). Normalmente estaba oculto a la vista detrás de las cortinas del tabernáculo. La revelación de este objeto más íntimo significa que Dios ha revelado Su gloria, tanto la gloria de Su ley como la de Su misericordia (como se representa mediante el velo de expiación), así como Su presencia reveladora especial en el tiempo del fin, que anteriormente estaba limitada al Lugar Santísimo.
+
+---
+
+### Apocalipsis 12:1
+Este tercer ciclo de visiones consiste principalmente en historias de personajes simbólicos clave: el dragón, la mujer, la bestia, el falso profeta, los 144.000, los anunciadores angelicales y el Hijo del Hombre (Introducción: Bosquejo). A diferencia de los ciclos de los siete sellos (5:1–8:1) y las siete trompetas (8:2–11:19), estas visiones no tienen una numeración explícita. Pero, al igual que los ciclos anteriores, conducen a una visión de la segunda venida (14:14–20). Los dos ciclos anteriores se centraron en los juicios que emanan del trono de Dios. Este ciclo describe en profundidad la naturaleza del conflicto espiritual. Los personajes aparecen en forma simbólica para representar las fuerzas de ambos bandos en una guerra espiritual cósmica. Dios mismo ya ha sido revelado en los capítulos 4 y 5. En oposición a Dios están Satanás (el dragón) y sus agentes, la bestia (13:1–10) y el falso profeta (13:11– 18; 16:13). Del lado de Dios está su pueblo, representado como una mujer portadora de luz (12:1–13). 6, 13–17) y como una multitud casta, numerada y protegida (14:1–5). Estas dos imágenes complementarias muestran a los santos en su capacidad de testigos de la luz de Dios y separados de las corrupciones del mundo. Así, se exhorta a los santos a permanecer fieles a Cristo en respuesta a la persecución de la bestia, y a permanecer puros resistiendo la seducción de la ramera (Introducción: Características y temas principales). Las imágenes simbólicas muestran a los dos bandos despojados de toda inconsistencia y confusión para expresar claramente la naturaleza de la guerra espiritual (Ef. 6:10–20). Los conflictos actuales serán seguidos por la paz de 21:1–22:5 cuando se haga efectivo el cumplimiento de los planes de Dios. 12:1 una mujer. La imagen evoca el sueño de José (Gén. 37:9, 10) y la imagen de Jerusalén dando a luz al Mesías y su remanente (Is. 54:1–4; 66:7–13; Miq. 5:3). Se tiene en cuenta a los santos del Antiguo Testamento en conjunto. María, la madre de Jesús, está incluida en este grupo, pero sólo como miembro destacado del conjunto. La historia posterior muestra que los santos del NT también están incluidos (vv. 13-17). El carácter portador de luz de la mujer prefigura la gloria de la Nueva Jerusalén (21:11, 22-27). En sus privilegios, la iglesia ahora participa de las bendiciones que serán consumadas en el regreso de Cristo. Mientras tanto, ella es abofeteada por Satanás (12:1-14:20 nota).
+
+---
+
+### Apocalipsis 12:3
+Un gran dragón rojo. Esta figura se identifica como Satanás, el diablo, en el v. 9. La imagen de un dragón representa a Satanás en su monstruoso poder y su horrible enemistad contra Dios. Satanás se ha opuesto constantemente a los planes de Dios y ha sido derrotado repetidamente en los grandes actos del poder salvador de Dios (Gén. 3:1, 15; Sal. 74:13, 14; Is. 27:1; 51:9, 10; Eze. 29:3; Luc. 10:18; 11:14–23; Jn. 12:31; Col. 2:15). Se levanta contra el Mesías (vv. 4, 5) y sus siervos (v. 17), pero finalmente será condenado al castigo eterno (20:10).
+
+---
+
+### Apocalipsis 12:5
+un hijo varón. En cumplimiento de Miqueas 12:1-14. 5:3, Cristo nacerá y se establecerá su gobierno triunfante sobre las naciones, como lo certifica su resurrección y ascensión.
+
+---
+
+### Apocalipsis 12:6
+Dios promete protección para una iglesia perseguida. Sobre los 1.260 días, véase la nota sobre 11:2. Este período comienza inmediatamente después de la ascensión de Cristo y se extiende a lo largo de toda la era de la iglesia. REGRESE A APOCALIPSIS 12:6
+
+---
+
+### Apocalipsis 12:7
+La victoria de Cristo (v. 5) tiene consecuencias radicales, comenzando con la expulsión de Satanás por parte de Miguel, quien está funcionando como agente de Cristo. El pasaje no habla de la caída de Satanás en el momento de la creación, sino de la derrota de Satanás en el cielo en el momento de la creación. crucifixión y resurrección de Cristo (v. 12; Juan 12:31; Col. 2:15).
+
+---
+
+### Apocalipsis 12
+Habiendo fracasado en su intento de destruir a Cristo (vv. 4, 5), el Dragón trata de destruir al pueblo de Cristo. Utiliza su boca, que representa el engaño (representado como una inundación en el v. 15; cf. v. 9; 2 Tes. 2:9, 10). 10) Cuando el engaño falla, intenta perseguir al poder (12:17–13:10).
+
+---
+
+### Apocalipsis 12:14
+un tiempo, y tiempos, y medio tiempo. tiempo. Véase nota sobre 11:2.
+
+---
+
+### Apocalipsis 13:1
+Una bestia que sube del mar representa el poder perseguidor, especialmente el poder de un estado endemoniado. Véase Introducción: Características y temas principales. Este capítulo está marcado por alusiones a los perseguidores estatales del pueblo de Dios de Daniel 7, especialmente en los versículos 1–11.
+
+---
+
+### Apocalipsis 13:2
+leopardo... oso... león. Esta bestia combina características de las cuatro bestias de Daniel 7:1–8, 17–27, que representan reinos idólatras. Por lo tanto, esta bestia de Apocalipsis debe ser un reino mundano que los resume a todos. De esta manera, las persecuciones estatales de Daniel y sus amigos sugieren la naturaleza de la persecución que las siete iglesias deben enfrentar por parte del estado romano, y posiblemente persecuciones de épocas posteriores. Los intérpretes no están de acuerdo sobre qué persecución particular en la historia representa más directamente la bestia (Introducción: Historia de la interpretación). En Asia Menor, los funcionarios locales amenazaron con matar a los cristianos si se negaban a adorar al emperador romano. Una oposición similar a la adoración piadosa surgirá justo antes de la segunda venida (2 Tes. 2:4). En el período que media entre estos dos tiempos, se producen persecuciones esporádicas (Mateo 24:9; 2 Timoteo 3:12, 13; 1 Pedro 4:12-19). En 2 Tesalonicenses 2:7, 8 se sugiere aparentemente tanto un patrón repetido de oposición satánica como un estallido final y culminante. Los cristianos no deben sorprenderse por estas presiones. Deben afrontar el martirio, si es necesario, sabiendo que Dios está en control y que su triunfo es seguro.
+
+---
+
+### Apocalipsis 13:5
+Cuarenta y dos meses. Véase la nota sobre 11:2.
+
+---
+
+### Apocalipsis 13:7
+Guerra contra los santos. La bestia obliga a los santos a adorar (v. 8), y cuando los santos se niegan a someterse, son martirizados. Pero a pesar de su aparente derrota, los mártires disfrutan de la victoria con Cristo tanto inmediatamente (6:9-11) como cuando sus oraciones por la derrota final de la bestia son respondidas (19:11-21). tribu y pueblo y lengua y nación. Véase nota sobre 5:9.
+
+---
+
+### Apocalipsis 13:8
+libro de la vida. El griego también puede traducirse como “escrito en el libro de la vida del Cordero inmolado desde la fundación del mundo” (cf. 17:8). El libro es el registro celestial de aquellos destinados a una nueva vida mediante la compra de la sangre de Cristo (3:5; 5:9). En medio de la persecución y del inmenso poder de la bestia, los santos pueden hallar seguridad en la garantía de Dios de su ciudadanía celestial (17:8; 20:12, 15; 21:27). Una garantía similar se encuentra en el cap. 7.
+
+---
+
+### Apocalipsis 13:10
+perseverancia. Véase la nota sobre 1:9.
+
+---
+
+### Apocalipsis 13:11
+La bestia que sube de la tierra, también llamada el falso profeta (16:13; 19:20; 20:10), actúa como propagandista de la bestia. Sus acciones falsifican el testimonio del Espíritu Santo (Introducción: Características y temas principales). En Asia Menor del primer siglo, los principales propagandistas habrían sido sacerdotes del culto al emperador y la Comuna de Asia, un consejo de representantes distinguidos de la ciudad que promovían la lealtad al emperador. En los tiempos modernos también, el totalitarismo recluta propagandistas. Justo antes de la segunda venida, milagros falsos acompañarán la aparición del “hombre de pecado” (2 Tes. 2:3, 9). El falso profeta encarna un patrón repetitivo (Introducción: Historia de la interpretación).
+
+---
+
+### Apocalipsis 13:16
+La marca de la bestia es una falsificación del sello del nombre de Dios sobre los santos (7:2–8; 14:1; Ezequiel 9). La bestia es dueña de aquellos que están marcados, y ellos son sus esclavos (14:9; 19:20; 20:4). Las especulaciones acerca de una marca física visible pasan por alto el punto principal de la distinción espiritual entre los dos grupos, especialmente porque el “nombre” de Cristo y del Padre “en las frentes” de los redimidos en 14:1, directamente después de Apocalipsis 13:18, no es una marca física visible sino espiritual.
+
+---
+
+### Apocalipsis 13:18
+En tiempos de Domiciano, el emperador Nerón se había convertido en una figura tradicional del anticristo, y probablemente ya se sabía que 666 era el valor numérico asociado con el nombre Nerón César en hebreo. El número entonces designa al propio Nerón (quien resucitaría de entre los muertos y lideraría una invasión contra Roma según una creencia generalizada durante el reinado de Domiciano) o a una figura posterior que imitaría la impiedad de Nerón. Muchos han tratado de identificar al Anticristo final sobre la base del número, pero sus conexiones con Nerón bien pueden ser su único significado (texto Nota). Sin embargo, todos los intentos de identificar el número con el cálculo literal del nombre de algún individuo encuentran dificultades debido a la manera metafórica en que se utilizan el lenguaje y los números en el libro. La traducción del v. 18b podría ser “porque el número es el de [un] hombre”, lo que podría traducirse individualmente como, “porque es un número de una persona específica” o mejor genéricamente como, “porque es un número de la humanidad”. Necesitamos estar siempre atentos a la venida de Cristo, sin caer en el intento de establecer fechas (Mt. 24:36–51).
+
+---
+
+### Apocalipsis 14:1
+Los 144.000 representan a los santos en su número completo (nota 7:4–8). Forman una compañía sacerdotal (5:10) Consagrado para ofrecer alabanza a Dios en el monte santo.
+
+---
+
+### Apocalipsis 14:4
+vírgenes. Se utilizan imágenes sexuales para denotar pureza espiritual. Los fieles seguidores de Cristo se mantienen alejados de Babilonia la ramera (v. 8; 17:1–6) y son leales exclusivamente a Él, como Su novia pura (19:7, 8; Efe. 5:26, 27). La pureza en la conducta sexual es un elemento de esta pureza integral (1 Cor. 6:15–20). Ellos, y nosotros, debemos “seguir al Cordero por dondequiera que vaya”.
+
+---
+
+### Apocalipsis 14:6
+toda nación y tribu y Lengua y gente. Véase nota sobre 5:9.
+
+---
+
+### Apocalipsis 14:8
+Babilonia la grande. Véase la nota sobre 17:1–19:10. Vino... de su inmoralidad sexual. La inmoralidad sexual aquí puede ser literal, pero el enfoque está en las relaciones espirituales ilícitas con la ramera (el sistema del mundo), que es idolatría (adulterio espiritual). Estas fueron las principales tentaciones para las siete iglesias (nota 2:20). Pero el efecto, como el de la embriaguez, es la vergüenza, necedad y deshonra (17:2, 4; 18:3; 19:2; Prov. 9:13–18; Jer. 51:7).
+
+---
+
+### Apocalipsis 14:9
+La bestia. Véase la nota sobre 13:2 y la Introducción: Características y temas principales. una marca. Véase la nota sobre 13:16.
+
+---
+
+### Apocalipsis 14:12
+La perseverancia de los santos. Véase la nota sobre 1:9.
+
+---
+
+### Apocalipsis 14:14
+Se describe la segunda venida de Cristo como la cosecha sobre la cual Él preside (Mt. 13:36-43; cf. Jl. 3:12-16) como “uno como un hijo de hombre” (1:13; cf. Dn. 7:13, 14). Se describen dos cosechas: la de cereales (vv. 14-16) y la de uvas (vv. 17-20). Quizás sean dos aspectos de los mismos eventos de juicio. Sin embargo, la cosecha de cereales puede simbolizar la cosecha de los justos (Lc. 3:17), seguida por la cosecha de los malvados (uvas).
+
+---
+
+### Apocalipsis 15:1
+El ciclo de las siete copas de la ira de Dios compone el cuarto ciclo de visiones que conducen a la segunda venida de Cristo (Introducción: Características literarias). La escena inicial de adoración (15:1–16:21) 16:1) evoca la adoración alrededor del trono de Dios en los caps. 4; 5. Los vencedores se regocijan en la presencia de Dios (15:3, 4). Siete ángeles resplandecientes reciben copas de la presencia de Dios en el templo. Las copas simbolizan la copa de la ira de Dios, que embriaga a las naciones (14:10; 16:19; cf. Is. 51:17, 20, 22; Jer. 25:15–29; Lam. 4:21; Eze. 23:31–34; Hab. 2:16). Las copas se derraman por orden de Dios (16:1), lo que resulta en siete últimas plagas. Las plagas conducen a la segunda venida, ya que “con ellas se acaba la ira de Dios” (15:1). Las siete copas muestran notables similitudes con las siete trompetas. Las primeras cuatro copas, al igual que las primeras cuatro trompetas, causan devastación en las cuatro regiones principales de la creación: tierra, mar, agua dulce y cielo. Al igual que las trompetas, las copas están inspiradas en las plagas contra Egipto. Pero las copas pueden tener como resultado juicios más severos que las trompetas. Los juicios de las trompetas generalmente afectaban a un tercio del total, pero las copas afectan a la totalidad. Estas copas simbolizan los juicios de Dios contra los malhechores. El patrón general puede incluir tanto los juicios contra el impío Imperio Romano como la crisis final que conduce a la segunda venida de Cristo (Introducción: Historia de la interpretación).
+
+---
+
+### Apocalipsis 15:2
+El mar de vidrio. Véase la nota sobre 4:6. Los que habían vencido. Los santos, a través de sus oraciones, tienen un papel que desempeñar en los juicios de Dios (6:9-11). Como en el cap. 7, aunque sufren físicamente De los juicios que caen sobre la tierra, están protegidos espiritualmente de estos juicios.
+
+---
+
+### Apocalipsis 15:3
+Cántico de Moisés. Una alusión a Éxodo 15:3. 15. Al igual que los israelitas, los santos son liberados de la opresión idólatra mediante plagas enviadas por Dios. Justo. Los actos de juicio de Dios nunca son arbitrarios ni rencorosos, sino que son pagos justos por las malas acciones (v. 4; 16:5, 7; 19:2, 11).
+
+---
+
+### Apocalipsis 15:5
+El santuario. El área interior de la morada celestial de Dios ya ha sido descrita en los capítulos 4 y 5 (nota 4:1–5:14).
+
+---
+
+### Apocalipsis 15:6
+Lino puro y resplandeciente. El lino era una vestimenta sacerdotal del Antiguo Testamento (Éx. 28:42; Lev. 16:4). Con ello se enfatiza la santidad de los juicios de Dios (nota del v. 3).
+
+---
+
+### Apocalipsis 15:7
+Los cuatro seres vivientes. Véase la nota sobre 4:6.
+
+---
+
+### Apocalipsis 15:8
+Humo. El humo o una nube espesa acompañan frecuentemente la presencia de Dios, especialmente cuando está enojado. Las asociaciones incluyen el monte Sinaí (Éxodo 19:9, 16, 18; 20:18) y las visiones de Isaías y Ezequiel (Is. 6:4; Eze. 1:4; cf. Núm. 12:5; Sal. 18:8, 11; 74:1).
+
+---
+
+### Apocalipsis 16:2
+llagas. Paralelo a Éxodo 9:8-12.
+
+---
+
+### Apocalipsis 16:3
+sangre. Paralelo a Éxodo 7:14-24.
+
+---
+
+### Apocalipsis 16:5
+Ver nota sobre 15:3.
+
+---
+
+### Apocalipsis 16:10
+oscuridad. Paralelo a Éxodo 10:21– 23.
+
+---
+
+### Apocalipsis 16:14
+para reunirlos para la batalla. En la batalla culminante, todas las fuerzas de la maldad se reúnen para hacer la guerra. contra el Cordero guerrero (17:14). Las imágenes aluden a la batalla entre Dios y Faraón en Éxodo 15:1-21, pero el panorama es de alcance universal. Varios pasajes de Apocalipsis describen la batalla final del tiempo del fin con cada vez mayor detalle y precisión (17:13, 14; 19:11-21; 20:7-10; cf. 6:12-17), todos basados en la batalla escatológica de Gog y Magog en Ezequiel 38; 39. A lo largo de la era de la iglesia, hay momentos de intensa confrontación entre Dios y las fuerzas de Satanás (2:10, 13), pero la batalla más intensa tiene lugar en la segunda venida de Jesús (19:11-21).
+
+---
+
+### Apocalipsis 16:16
+Armagedón. Transliteración del término hebreo para “monte de Meguido”. En el antiguo Israel, Meguido era una ciudad clave que dominaba una importante ruta de tránsito entre los grandes reinos de Mesopotamia y Egipto. Enormes ejércitos podían reunirse en la vecina llanura de Esdrelón. Por lo tanto, es un nombre apropiado para el lugar de la batalla culminante.
+
+---
+
+### Apocalipsis 16
+La séptima copa pone fin al ciclo de juicios. Al igual que los otros ciclos, este termina con el juicio final y la segunda venida de Cristo (Introducción: Características literarias), aunque los símbolos de la segunda venida no son tan obvios como en otros casos. Observe las siguientes características: a los lectores se les ha dicho que el fin de la ira de Dios vendría con la séptima copa (15:1); la remoción de todas las islas y montañas en el v. 20 corresponde al sacudimiento final de la tierra en 6:14 y 20:11 (Heb. 12:26, 27); en otros lugares, la caída de Babilonia es seguida inmediatamente por la cena de bodas del Cordero (19:1-10); y en 17:14-17, la caída de Babilonia está asociada con la última batalla, que tiene lugar en la segunda venida (19:11-21). Además, esa batalla final era inminente en el v. 16. El juicio de la séptima copa continúa la práctica de extraer las imágenes de la batalla final del conflicto con Gog y Magog (nota del v. 14) al agrupar un terremoto, el derrumbe de las montañas y el granizo, como en Ezequiel 1:16. 38:19–23. Por lo tanto, describe las plagas divinas que acompañan la batalla; la descripción de otros aspectos de la batalla se retrasa hasta 19:11–21, en consonancia con el plan dramático de Apocalipsis.
+
+---
+
+### Apocalipsis 17:1
+Aparece Babilonia la prostituta, que representa las seducciones del mundo (17:4; 18:3; cf. Introducción: Características y temas principales). “Babilonia” es probablemente un símbolo de la ciudad de Roma y, por extensión, un símbolo del sistema mundial corrupto e inmoral a lo largo de la era de la iglesia (nota 17:9; 17:18) con su inmoralidad. El paganismo convirtió a cada una de las ciudades de Asia Menor en una pequeña manifestación de esta Babilonia. La participación económica y social plena (13:17) implicaba la asistencia a las fiestas y celebraciones religiosas paganas. La adoración al emperador era una expresión esperada de lealtad política. Los paganos llamaban a los cristianos ateos porque no adoraban a los muchos dioses, y los llamaban odiadores de la humanidad porque se apartaban de las formas comprometidas de vida social (1 Ped. 2:12; 4:3, 4). En reacción a esta presión, algunos cristianos profesantes argumentaron que la participación en fiestas idólatras y la inmoralidad sexual eran aceptables (2:12, 20; cf. 1 Cor. 6:12–20). La mujer Jezabel en 2:20–23 fue una seductora clave cuya obra se generaliza y se simboliza más profundamente en Babilonia la prostituta (2:21, 22; cf. 17:2). Algunos intérpretes prefieren identificar a Babilonia, “la gran ramera”, con Jerusalén. Al negarse a aceptar al Mesías, se convirtió en una prostituta según la imagen del Antiguo Testamento (Is. 1:21; Ez. 16; 23; Os. 2; cf. Lc. 11:47–51; 21:9–18). Pero Jerusalén fue sólo un ejemplo de una sociedad que sedujo a la gente para que se alejara de la verdadera adoración. La antigua Babilonia fue otro ejemplo, y en consecuencia el Apocalipsis retoma el lenguaje de las condenas proféticas de Babilonia y Tiro (Jeremías 50; 51; Ezequiel 27). Las ciudades modernas con sus religiones falsas y su explotación sexual también son formas de Babilonia. Por lo tanto, el simbolismo de Babilonia es capaz de muchas encarnaciones históricas, incluida la manifestación final y culminante de esta “Babilonia” justo antes de la segunda venida (Introducción: Historia de la interpretación). Cuando la destrucción de la adoración falsa esté completa (17:1–18:24), los verdaderos adoradores, la novia del Cordero, se destacarán en su esplendor y alegría (19:1–10).
+
+---
+
+### Apocalipsis 17:3
+en el Espíritu. Véase la nota sobre 1:10. La bestia escarlata. Esta prostituta cabalga sobre una bestia horrible, evidentemente la misma bestia que aparece en 13:1-10. La bestia, que representa al Imperio Romano, apoya a la ciudad de Roma en su idolatría lujuriosa. También difunde las prácticas de Roma por todo el imperio. Sin embargo, con el tiempo la bestia se vuelve contra la prostituta y la destruye (vv. 16, 17). Los poderes rapaces del gobierno romano y las legiones romanas destruyeron la prosperidad, y finalmente los poderes militares de las tribus circundantes destruyeron por completo la ciudad de Roma. La lección de Los tiempos romanos pueden generalizarse: los estados idólatras terminan destruyendo los mismos poderes, riquezas, privilegios y personas que originalmente apoyaron, y esto será especialmente así en el fin del mundo. La adoración falsa es inherentemente autodestructiva.
+
+---
+
+### Apocalipsis 17:4
+inmoralidad sexual. Ver nota sobre 2:20.
+
+---
+
+### Apocalipsis 17:7
+Siete mensajes de juicio sobre Babilonia están organizados en grupos más grandes: tres mensajes angelicales de condenación (17:7–18; 18:1–3; 18:4–8), tres lamentos de los comprometidos con Babilonia (18:9–11; 12:1–13; 13:1–14; 15:1–16; 17:1–17; 18:1–18; 19:2–20; 21:2–22; 23:2–24; 25:2–25; 26:2–26; 27:2–27; 28:2–28; 29:2–29; 30:2–30; 31:2–32; 33:2–34; 35:2–36; 37:2–38; 10, 11–17a, 17b–19), y un pronunciamiento culminante de la permanencia de su caída (18:21–24). Nótese también las numerosas alusiones a Jeremías 50; 51; Ezequiel 27.
+
+---
+
+### Apocalipsis 17:8
+fue, y no es, y está por ser La descripción es una falsificación de la soberanía de Dios, que se proclama en 1:4, 8; 4:8. “Y no es” indica que la persecución está en su punto más bajo , pero que aumentará con renovada intensidad en el futuro. La bestia representa un patrón repetido de persecución, como lo hicieron las cuatro bestias sucesivas de Daniel 7 (nota 13:2). Libro de la vida. Véase nota sobre 13:8.
+
+---
+
+### Apocalipsis 17:9
+Siete montes. Roma fue construida sobre siete montes o colinas.
+
+---
+
+### Apocalipsis 17:10
+cinco de los cuales han caído. Si Apocalipsis fue escrito alrededor del año 67 d. C., estos cinco pueden ser los primeros cinco emperadores romanos, comenzando con Julio César. El sexto es Nerón, el emperador que reina actualmente si Juan escribió a mediados de los años 60. Pero lo más preferible es que los cinco reyes simplemente representen un número indefinido de estados perseguidores anteriores (como las bestias de Daniel 7). La presencia del sexto indica de manera simbólica que los cristianos están cerca del fin, pero que todavía no han llegado. El séptimo rey al final, junto con los seis anteriores, representa simbólicamente el número completo de reinados malvados a lo largo de los siglos.
+
+---
+
+### Apocalipsis 17:12
+Los diez cuernos. El número “diez” se remonta al versículo 7 y al 13:1 hasta Daniel 7:7, 24. Pero la bestia de Apocalipsis no puede simplemente identificarse con la cuarta bestia de Daniel; más bien, es una combinación de las características de las cuatro bestias de Daniel. En Apocalipsis, los diez cuernos son confederados reales de la bestia. En vista de 16:12, 14, 16; 19:19; 20:8, la bestia de Apocalipsis es una bestia que se encuentra en el centro de la batalla. En cierta medida, se podría pensar en poderes políticos más allá de las fronteras del Imperio Romano. Roma fue finalmente invadida por tribus bárbaras. Pero la imagen se eleva más allá de las limitaciones de Roma y abre una imagen de la batalla final en La bestia solicitará ayuda en gran escala.
+
+---
+
+### Apocalipsis 17:14
+Harán guerra contra el Cordero y el Cordero los vencerán, porque él es Señor de señores y Rey de reyes. En la primera cláusula, el mismo lenguaje con el que se describe a la bestia en Daniel 7:21; Apocalipsis 11:7; 13:7a como la que derrota a los santos se aplica ahora a la representación del Cordero como el que vence a las fuerzas del tiempo del fin de la bestia y sus aliados con cuernos. La base para la victoria del Cordero radica en el hecho de que "Él es Señor de señores y Rey de reyes". El título se toma de la Septuaginta de Daniel 4:37, que se refiere a Dios como el que demostró Su verdadera soberanía divina y reveló que las afirmaciones de Nabucodonosor sobre el título eran vacías al juzgar al rey (literalmente) bestial de "Babilonia la grande". Ahora el título se aplica al Cordero, que De la misma manera derrotarán a los aliados con “Babilonia la Grande” (17:1– 5).
+
+---
+
+### Apocalipsis 17:15
+pueblos y muchedumbres y naciones y lenguas. Véase nota sobre 5:9.
+
+---
+
+### Apocalipsis 17:16
+odiará a la prostituta. Véase la nota sobre 17:1–19:10.
+
+---
+
+### Apocalipsis 17:17
+Dios lo ha puesto en sus corazones. En medio de las pruebas, los santos tienen la seguridad de que Dios tiene el control incluso de este terrible conflicto.
+
+---
+
+### Apocalipsis 18:1
+Su gloria. Debido a su elevada comisión, el esplendor del ángel refleja el de Dios mismo (nota de 10:1, 2).
+
+---
+
+### Apocalipsis 18:2
+morada. Véase Jeremías 50:39.
+
+---
+
+### Apocalipsis 18:3
+vino de... su fornicación. Véase la nota sobre 2:20.
+
+---
+
+### Apocalipsis 18:4
+Salid. Véase Is. 48:20; 52:11; Jer. 50:8; 51:6, 45; 2 Cor. 6:17.
+
+---
+
+### Apocalipsis 18:5
+que se amontonan en lo alto del cielo. Una reminiscencia irónica de Génesis 11:4; Jeremías 51:9.
+
+---
+
+### Apocalipsis 18:6
+Págale lo que le haya hecho. El juicio se ajusta a la naturaleza de la ofensa (Éxodo 21:23-25).
+
+---
+
+### Apocalipsis 18:8
+quemado con fuego. Véase Jer. 50:32.
+
+---
+
+### Apocalipsis 18:11
+compra su carga. Reyes, Los comerciantes y los marineros han sido seducidos a adorar el lujo.
+
+---
+
+### Apocalipsis 18:12
+La lista de productos se basa en parte en Ezequiel 27:12-24, donde aproximadamente la mitad de los artículos mencionados allí se enumeran juntos junto con el uso repetitivo de “comerciantes” (es decir, “mercaderes”, como en los vv. 11a, 15). Los artículos en común con Ezequiel no son el resultado de una mera construcción literaria, sino que eran una parte real del sistema de comercio entre Roma y Asia Menor en ese momento. Estos productos representan el tipo de bienes terrenales en los que los idólatras incrédulos ponen su confianza.
+
+---
+
+### Apocalipsis 18:21
+La caída definitiva de Babilonia se describe mediante el acto irreversible de arrojar una gran piedra al mar (Jeremías 51:63, 64).
+
+---
+
+### Apocalipsis 19
+El triunfo de la novia pura se contrasta con la destrucción de la iglesia falsa y corrupta (Babilonia). Nótese el repetido “¡Aleluya!” (vv. 1, 3–6). En estos versículos se presenta el sexto ciclo de juicios que conduce al juicio final y la segunda venida de Cristo (Introducción: Características literarias). En los últimos ciclos, las imágenes se concentran cada vez más intensamente en el juicio final y la segunda venida y los acontecimientos que los preceden inmediatamente. En este ciclo, todos los acontecimientos son en realidad parte de la segunda venida. Pero, como es típico de Apocalipsis, revelan principios de guerra espiritual que han estado en funcionamiento durante toda la era de la iglesia (Efesios 6:10-20; 1 Juan 5:4, 5). Al final, Jesucristo es revelado (Hebreos 13:8; Efesios 2:13). Cristo parece librar la batalla final contra todos los enemigos de Dios, encabezados por la bestia y el falso profeta. Los atributos santos de Cristo contrastan marcadamente con los atributos impíos y falsos de la bestia (nota 13:1-10). Esta guerra final lleva a su clímax todas las guerras que Dios ha librado en favor de su pueblo (Éx. 15:1-21; Dt. 20; Is. 59:16-18; Ez. 38; 39; Hab. 3:8-15; Zac. 12:1-9; 14:3-5) y consuma el triunfo alcanzado por Cristo en la cruz (5:9, 10; 12:10, 11; Jn. 12:31; Col. 2:15). Algunos han interpretado las imágenes como una referencia a la propagación del gobierno de Cristo a través de la sumisión al evangelio, pero los paralelos con otras visiones muestran que la batalla final está principalmente en vista (16:14, 16-21 y notas; 17:14; 20:7-10). 19:11 El cielo se abrió. En contraste con 4:1, la presencia celestial de Dios ahora se revela no sólo a Juan el vidente sino a toda la humanidad. La aparición de Cristo en Su majestad debe significar el fin de la batalla y la destrucción de todos los enemigos ante Él.
+
+---
+
+### Apocalipsis 19:2
+Véase la nota sobre 15:3.
+
+---
+
+### Apocalipsis 19:4
+veinticuatro ancianos... cuatro vivientes criaturas. Véanse las notas sobre 4:4, 6. La celebración final de la victoria de Dios tiene lugar apropiadamente ante Su presencia en compañía de la hueste celestial (Heb. 12:22–24).
+
+---
+
+### Apocalipsis 19:7
+Las bodas del Cordero. La imagen de las bodas expresa la intimidad, el amor y el gozo entre Cristo y su pueblo. Cumple los compromisos expresados anteriormente en las Escrituras (Is. 54:5–8; Os. 2:19, 20; Efe. 5:26, 27).
+
+---
+
+### Apocalipsis 19:10
+El testimonio de Jesús es el Espíritu de profecía. El ángel es un consiervo de los profetas (22:9). Juan tiene el espíritu de profecía (22:6); recibe el testimonio que Jesús da y lo presenta a la iglesia (1:2; 6:9). El ministerio de Juan se compara al de los ángeles. REGRESE A APOCALIPSIS 19:10
+
+---
+
+### Apocalipsis 19:17
+La gran cena. Véase Ezequiel 39:4, 17–20.
+
+---
+
+### Apocalipsis 19:19
+La bestia. Véase la nota sobre 13:1–10. Se reunieron ejércitos. Véase nota sobre 16:14.
+
+---
+
+### Apocalipsis 19:20
+Lago de fuego. Infierno, lugar de tormento eterno para los malvados (14:9, 10; 20:10, 14, 15; 21:8; Is. 66:24). El fuego se asocia frecuentemente con el juicio que todo lo consume (Is. 66:15, 16; Joel 2:3). Véase la nota teológica “Infierno” en la pág. 1753.
+
+---
+
+### Apocalipsis 20:1
+Un ángel desciende del cielo y ata a Satanás por mil años (Introducción: Asuntos especiales). Los mártires fieles (v. 4) vuelven a la vida y reinan con Cristo. Después de los mil años, Satanás es liberado, reúne a las naciones para la batalla y finalmente queda sin poder (v. 10)
+
+---
+
+### Apocalipsis 20:2
+mil años. Véase la nota sobre los vv. 1–10; Introducción: Números especiales. lo ató. El poder de Satanás para influir en las naciones queda suprimido. Los premilenialistas y algunos postmilenialistas asocian este evento con el comienzo de una era futura extraordinaria de paz y prosperidad, en contraste con la actual (1 Tes. 2:18; 1 Ped. 5:8). Los amilenialistas piensan que la atadura de Satanás ya ha tenido lugar mediante la muerte y resurrección de Cristo (12:9; Mt. 12:29; Jn. 12:31; Col. 2:15), que es la posición adoptada aquí. La actual propagación del evangelio a las naciones, cuyo inicio se describe en el libro de los Hechos, resulta de una restricción del poder de Satanás para engañar. Posiblemente esta restricción del poder de Satanás esté estrechamente asociada con la presente era temporal. La muerte de la bestia (17:8). Véase Introducción: Asuntos especiales.
+
+---
+
+### Apocalipsis 20:3
+engañar a las naciones. Véase los versículos 8, 10; 13:14; 16:14; 19:20.
+
+---
+
+### Apocalipsis 20:4
+almas. Véase 6:9, 10. Se destaca a los mártires como el grupo más notable de testigos fieles, pero no se excluye a otros santos de los privilegios mencionados. la bestia. Véase nota sobre 13:1–10. reinó. Véase 2:26, 27; 3:21.
+
+---
+
+### Apocalipsis 20:5
+la primera resurrección. Si esta resurrección significa resurrección corporal, coincide con la segunda venida de Cristo (1 Cor. 15:51–57; 1 Tes. 4:13–18) y los premilenialistas están en lo cierto (vv. 1–10 nota). Por otra parte, el lenguaje concerniente a la segunda muerte en los vv. 6, 14 y 21:8 sugiere un contraste entre la primera muerte y la segunda. La primera muerte es muerte corporal, pero es solo preliminar, no definitiva. La segunda muerte es definitiva y de carácter espiritual. De la misma manera, la primera y la segunda resurrección pueden ser preliminares y definitivas, respectivamente. La primera es espiritual; la segunda es del cuerpo. La primera resurrección debe entonces entenderse como coincidente ya sea con el nuevo nacimiento espiritual (Jn. 5:24, 25) o, más probablemente, con el ir a estar con Cristo en el momento de la muerte corporal (6:9, 10; cf. 2 Cor. 5:8; Flp. 1:11). 1:23). 20:6 sacerdotes. Véase la nota sobre 1:6.
+
+---
+
+### Apocalipsis 20:8
+Gog y Magog. Estos nombres, tomados de Ezequiel 38; 39, representan a los enemigos finales de Dios. Reúnelos para la batalla. Véase 16:14.
+
+---
+
+### Apocalipsis 20:11
+Dios aparece en una escena de juicio final. La autoridad de Dios para juzgar ya se ha anticipado en los capítulos 4 y 5. Ahora ejecuta el juicio que corresponde a su carácter y poder sobre el universo creado. La visión comparte características con Salmos 7:6-8; 47:8, 9; Daniel 7:9, 10; y otras escenas de juicio del Antiguo Testamento (cf. Mateo 25:31-46). Estos versículos nos recuerdan que las injusticias y los sufrimientos de la historia nunca escapan a la mirada de Dios. Quienes persiguen y practican la injusticia no pueden, en última instancia, ganar. Dios juzgará cada obra, todos los males serán corregidos y todos los intentos de destronar a Dios y entronizar a cualquier otra cosa o persona serán revertidos para frustrar por completo a los enemigos de Dios. La perspectiva del juicio final debería ser un terror para los enemigos de Dios, pero un fundamento de seguridad para los santos. Este juicio sigue a los mil años de los versículos 2 y 7. Los premilenialistas creen que la segunda venida de Cristo precede a los mil años, y por lo tanto debe incluir un juicio distinto propio. En la segunda venida, los cristianos reciben su recompensa, y este juicio posterior es para los malvados y aquellos que viven en cuerpos no transformados durante los mil años. Los amilenialistas y Los posmilenialistas, por otra parte, generalmente han entendido este pasaje como una entre muchas referencias a un juicio final universal en la segunda venida (vv. 1–10 nota). Véase Introducción: Historia de la interpretación. 20:11 trono. Véase nota sobre 4:2. La tierra y el cielo huyeron. Véase 6:14.
+
+---
+
+### Apocalipsis 20:12
+El libro de la vida. Véase la nota sobre 13:8.
+
+---
+
+### Apocalipsis 20:14
+lago de fuego… la muerte segunda. El estado final de tormento eterno, al que son condenados todos los que se rebelan impenitentemente contra el gobierno soberano de Dios. Véase la nota sobre 19:20; nota teológica “Infierno” en la pág. 1753.
+
+---
+
+### Apocalipsis 21:1
+La voz de Dios anuncia el descenso de la Nueva Jerusalén en el contexto de una renovación total: un nuevo cielo y una nueva tierra. Dios es el Alfa (nota 1:8), el Creador cuyos propósitos se han expresado desde el principio, y la Omega, el Consumador que lleva Sus propósitos a la realización final. La gloria, el poder y la belleza de Dios dentro de la esfera del cielo (cap. 4) ahora se extienden a todo Su pueblo (v. 3). El mal y el dolor son abolidos en la nueva creación, en contraste con el dolor, el sufrimiento y las luchas que se encuentran en las partes anteriores de Apocalipsis. Las promesas hechas a los vencedores ahora se cumplen (nota 2:7). Las visiones finales del Apocalipsis entrelazan en una hermosa unidad una multitud de temas bíblicos. Nótese los temas de la creación (v. 1), la ciudad santa de Jerusalén, la comunión con Dios expresada a través de imágenes del matrimonio (v. 2), la morada de Dios, incluyendo el tabernáculo y el templo (4:1–5:14 nota), los santos como pueblo de Dios (v. 3), el fin del sufrimiento y la muerte (v. 4), nuevas obras de salvación, la confiabilidad de la Palabra de Dios (v. 5), el agua viva (v. 6), convertirse en hijo de Dios (v. 7), advertencias a los infieles y el juicio (v. 8). En particular, 21:1–22:5 Representan los nuevos cielos y la tierra como una ciudad (21:2, 10, 14–16, 18) en forma de templo (21:3, 22) o del Lugar Santísimo (21:16) y que es como un jardín (22:1, 2). El objetivo de esto es resumir las esperanzas del Antiguo Testamento, respectivamente, de una Nueva Jerusalén, la reversión de la caída en el primer santuario-jardín y un nuevo templo del tiempo del fin. Estas tres esperanzas se superponen entre sí y se complementan entre sí. otro. Estos versículos suelen agruparse con 21:9–22:5. Los dos pasajes presentan dos aspectos de la visión final de la Nueva Jerusalén. En los versículos 1–8 se presentan muchas realidades que aparecen con mayor elaboración y en una descripción más visionaria en 21:9–22:5. Pero los versículos 1–8 también tienen una relación estrecha con 20:11–15. El juicio final de Dios, de hecho, tiene dos caras: la cara negativa (el juicio de los malvados) se expresa en 20:11–15, mientras que la cara positiva (la recompensa para los justos) se expresa aquí. Dentro del mensaje negativo de 20:11–15 hay una nota positiva, el Libro de la Vida (20:15). De manera similar, dentro del mensaje positivo de los versículos 1–8 hay una nota negativa, el lago de fuego (v. 8). Estos versículos y 20:11–15 son escenas simétricas que representan el juicio tanto de manera negativa como positiva. 21:1 Un cielo nuevo y una tierra nueva. Algunos han pensado que el nuevo universo será un mundo completamente nuevo sin conexión con el antiguo. Pero Is. 65:17–25 y Romanos 8:21–23 indican que se tiene en mente una transfiguración del viejo mundo, así como nuestros nuevos cuerpos serán transfiguraciones del viejo (1 Cor. 15:35–57). Todo es nuevo (v. 5), lo que indica la minuciosidad de la transfiguración, pero el resultado es la redención y no simplemente la abolición de lo viejo. Véase la nota teológica “El cielo”.
+
+---
+
+### Apocalipsis 21:6
+El agua de la vida. Véase la nota sobre 22:1.
+
+---
+
+### Apocalipsis 21:8
+La segunda muerte. Véase la nota sobre 20:14.
+
+---
+
+### Apocalipsis 21:9
+Ahora se despliega en detalle el cuadro de la Nueva Jerusalén. La morada final de los santos es simultáneamente el cumplimiento de las revelaciones anteriores de la aparición de Dios en gloria y el reinado en su corte celestial (21:22, 23; 22:1, 3; cf. cap. 4), la ciudad santa de Jerusalén (21:10), el huerto del Edén (22:1–3), la novia, la compañera matrimonial del Señor (21:9), y el templo como morada de Dios (21:22, 23). La figura central y la bendición central de la ciudad son Dios mismo y el Cordero (21:22, 23; 22:1–5). La revelación final de Dios necesariamente lleva a un clímax todas las revelaciones anteriores. Completa el propósito de Dios de poner todas las cosas bajo una Cabeza: Cristo (11:15; cf. Efe. 1:10). Armoniza con la creación de todas las cosas por Cristo al principio (1:17; 4:11; cf. Col. 1:15-17) y la redención de todas las cosas por medio de Cristo en el medio (5:9-14; cf. Ro. 11:36; Col. 1:18-20). Debido al carácter fluido de las imágenes, es prudente no distinguir rígidamente entre los habitantes de la ciudad (los santos) y la ciudad misma (los santos junto con la creación glorificada). 21:9 La novia. Véase la nota sobre 19:1–10.
+
+---
+
+### Apocalipsis 21:10
+en el Espíritu. Véase la nota sobre 1:10. montaña. La montaña como lugar especial de encuentro de Dios con los seres humanos, aludiendo a 14:1 así como a Éxodo 15:17; 19:1–25; Salmo 48:1, 2; 68:15, 16; Ezequiel 12:1-10. 28:14; Miqueas 4:1, 2; y otros pasajes.
+
+---
+
+### Apocalipsis 21:11
+La gloria de Dios. Estrechamente asociada con la imagen de la luz, la gloria representa la majestad, la grandeza y la belleza de Dios. La gloria, un tema prominente en 21:9–22:5, está asociada con el templo y la aparición de Dios en el Antiguo Testamento (vv. 22, 23; 15:8; 22:5; cf. Éx. 16:10; 24:16, 17; 40:34, 35; Is. 6:3; 40:3–5; 60:1, 2, 19, 20; Hab. 2:14; Zac. 2:5; Jn 1:14). El esplendor celestial de Dios, como se ve en el capítulo 4, ahora llena el nuevo mundo. APOCALIPSIS 21:11
+
+---
+
+### Apocalipsis 21:16
+largo, ancho y alto. La ciudad es un cubo perfecto, la misma forma que el Lugar Santísimo del templo. Toda la ciudad es arquitectónicamente perfecta y se ha convertido en la morada más íntima de Dios (vv. 22, 23; 22:4). Esto es en parte una alusión a 1 R. 6:20, que se refiere a la anchura, altura y longitud iguales del Lugar Santísimo en el templo de Salomón. Ahora todo el nuevo cosmos se describe como el Lugar Santísimo porque la presencia reveladora especial de Dios ya no está confinada a una habitación trasera del templo de Israel.
+
+---
+
+### Apocalipsis 21:17
+codos. Es decir, doce veces doce codos. Todas las dimensiones de la ciudad revelan sus asociaciones con las doce tribus de Israel y los doce apóstoles (vv. 12, 14). “Doce” designa simbólicamente a todo el pueblo de Dios.
+
+---
+
+### Apocalipsis 21:19
+toda clase de joyas. La lista de piedras preciosas muestra la belleza y magnificencia de la ciudad y la forma en que refleja la belleza de Dios, quien la llena de Su gloria (4:3). La lista también corresponde aproximadamente a las doce piedras preciosas del pectoral de Aarón (Éx. 28:15–21). Las prerrogativas que antes estaban reservadas al sumo sacerdote ahora pertenecen a toda la ciudad.
+
+---
+
+### Apocalipsis 21:22
+El templo. Véase la nota sobre 4:1–5:14.
+
+---
+
+### Apocalipsis 21:23
+sol o luna. Cumplimiento de Is. 60:19, 20.
+
+---
+
+### Apocalipsis 21:24
+las naciones. Redimió a la humanidad en toda su diversidad cultural (nota 5:9; cf. Is. 60:3–12). gloria. Véase Is. 60:3–5; Hageo 2:7–9.
+
+---
+
+### Apocalipsis 21:25
+Las puertas nunca se cerrarán. Las puertas de las ciudades antiguas debían cerrarse en caso de ataque. Las puertas de la Nueva Jerusalén nunca necesitan cerrarse porque en la creación renovada no habrá amenazas. El pueblo de Dios. Aquí está el cumplimiento de Is. 60:11.
+
+---
+
+### Apocalipsis 21:27
+El libro de la vida. Véase la nota sobre 13:8.
+
+---
+
+### Apocalipsis 22:1
+La descripción final del paraíso contiene elementos que aluden al jardín del Edén. La intimidad de Dios con su pueblo (vv. 3, 4) y la abundancia de su bendición (vv. 1, 2, 5) se enfatizan aún más que en los versículos anteriores. El estado final restaura la comunión ininterrumpida e idílica entre Dios y los seres humanos. Pero el punto culminante de la historia es más magnífico que el principio. El jardín ahora es también una ciudad y un templo, y la luz ha expulsado toda la noche. El Apocalipsis no sólo tiene por objeto informar y asegurar a los cristianos acerca de los propósitos finales de Dios, sino también aumentar su anhelo por Dios y por la realización de su propósito. La certeza de esa consumación reconforta a los santos en tiempos de tentación y persecución. 22:1 río de agua de vida. Este abundante suministro de agua vivificante proviene de Dios. El Apocalipsis entrelaza alusiones a Génesis 2:10-14; Salmo 46:4; Ezequiel 47:1–12; Joel 3:18; Juan 4:10–14; 7:37–39.
+
+---
+
+### Apocalipsis 22:2
+El árbol de la vida. El acceso a las bendiciones vivificantes de Dios, vedadas después de la caída, se renueva aquí (vv. 14, 19; 2:7; Génesis 2:9; 3:22–24; Ezequiel 47:12).
+
+---
+
+### Apocalipsis 22:6
+La parte central de la visión de Apocalipsis termina en el versículo 5. El libro concluye con promesa, exhortación y confirmación para hacer entender el mensaje de las visiones y despertar la esperanza en la venida del Señor Jesús (v. 20). Sus temas principales siguen entretejidos en esta sección final. Hay muchas alusiones al capítulo 1. 22:6 Fiel y verdadero. Véase la nota sobre 1:2.
+
+---
+
+### Apocalipsis 22:7
+pronto. Ver nota sobre 1:1.
+
+---
+
+### Apocalipsis 22:8
+adorar. Ver 19:10.
+
+---
+
+### Apocalipsis 22:10
+No selles. El rollo de Daniel fue sellado porque el tiempo del cumplimiento estaba distante (Dan. 12:4), pero ahora el cumplimiento ha comenzado y se consumará en el futuro. El tiempo está cerca. Véase nota sobre 1:1.
+
+---
+
+### Apocalipsis 22:11
+Véase Ezequiel 3:27; Daniel 12:10; 2 Corintios 12. 2:15, 16. Si las personas no se arrepienten cuando escuchan la Palabra de Dios, esto aumenta su dureza. Si escuchar la Revelación no cambia el curso de la vida de las personas, las establece más firmemente en su actual curso de oposición al Señor. Pero los que oyen y creen, perseveran y crecen en justicia.
+
+---
+
+### Apocalipsis 22:12
+por lo que ha hecho. Véase 20:12.
+
+---
+
+### Apocalipsis 22:13
+El Alfa y la Omega. Véase la nota sobre 1:8.
+
+---
+
+### Apocalipsis 22:14
+Bienaventurados. Véase la nota sobre 1:3. árbol de la vida. Véase la nota sobre el versículo 2.
+
+---
+
+### Apocalipsis 22:15
+Afuera. Véase 20:15; 21:8, 27. Todos los malhechores son desterrados de la ciudad santa (que es toda la nueva creación) no sólo para castigarlos por su maldad, sino para proteger a la ciudad de su contaminación. La firmeza del compromiso de Dios de excluir el mal de la El reino es una bendición y un estímulo para los santos.
+
+---
+
+### Apocalipsis 22:17
+El agua de la vida. Véase la nota sobre el versículo 1.
+
+---
+
+### Apocalipsis 22:18
+Esta advertencia contra la adición o sustracción coloca el libro de Apocalipsis al mismo nivel que las palabras de Dios del Antiguo Testamento (Deut. 4:2; 12:32). La Palabra de Dios debe ser protegida de la corrupción y debe distinguirse de las meras palabras humanas.
+
+---
+
+### Apocalipsis 22:20
+próximamente. Véase la nota sobre 1:1. Ven, Señor Jesús. Todo el Apocalipsis tiene como objetivo despertar el anhelo y las oraciones de los cristianos por la realización de los propósitos de Dios que acompañan a la segunda venida. El Apocalipsis termina con esta nota de expectativa y esperanza por el regreso de Cristo (1 Cor. 16:22). Que esta sea también nuestra oración: “¡Amén, ven, Señor Jesús!”.
+
+---
