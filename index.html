@@ -211,6 +211,7 @@
       font-size: 14px;
       line-height: 1.7;
       color: #c8c8d8;
+      white-space: pre-wrap;
     }
 
     .note-entry + .note-entry {
@@ -492,7 +493,7 @@ async function procesarTexto() {
 
   for (const ref of refs) {
     // Append text before the reference, converting newlines to <br>
-    bodyText += input.substring(lastIdx, ref.pos).replace(/\n/g, '<br>');
+    bodyText += input.substring(lastIdx, ref.pos).replace(/\r?\n/g, '<br>');
     
     const verseText = verses[ref.key];
     // Only embed the full verse text the FIRST time it appears
@@ -505,7 +506,7 @@ async function procesarTexto() {
     lastIdx = ref.pos + ref.raw.length;
   }
   // Append remaining text and convert newlines
-  bodyText += input.substring(lastIdx).replace(/\n/g, '<br>');
+  bodyText += input.substring(lastIdx).replace(/\r?\n/g, '<br>');
 
   // --- Build notes section at the end ---
   const foundNotes = [];
@@ -531,7 +532,7 @@ async function procesarTexto() {
       ${foundNotes.map(n => `
         <div class="note-entry">
           <div class="note-ref">${n.ref}</div>
-          <div class="note-text">${n.text}</div>
+          <div class="note-text">${n.text.replace(/\r?\n/g, '<br>')}</div>
         </div>
       `).join('')}
       ${notFoundRefs.length > 0 ? `<div class="no-notes">Sin nota disponible para: ${notFoundRefs.join(', ')}</div>` : ''}
@@ -601,7 +602,9 @@ async function copiarSalida() {
     clone.querySelectorAll('.note-text').forEach(s => {
       s.style.color = '#1a1a1a';
       s.style.fontSize = '14px';
-      s.style.lineHeight = '1.5';
+      s.style.lineHeight = '1.6';
+      s.style.whiteSpace = 'pre-wrap';
+      s.style.marginBottom = '15px';
     });
 
     const html = clone.innerHTML;
